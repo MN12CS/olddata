@@ -1,0 +1,28 @@
+---
+title: "LEO GIRLS - Cô Nàng Hoa Mặt Trời (Part 1)"
+date: 2025-06-12T13:32:06Z
+slug: leo-girls-co-nang-hoa-mat-troi-part-1
+draft: false
+---
+
+## LEO GIRLS - Cô Nàng Hoa Mặt Trời (Part 1)
+
+## Anh Mặt Ngầu
+
+_Nàng có hiện thân là cung mặt trời, theo đó cá tính nàng cũng khá là bộc trực, và nóng nảy, đa số những Leo nữ thường thích những được tỏa sáng như mặt trời vậy, bất kể ở đâu ​và khi nào... nàng cũng giống hầu hết đồng loại của mình, thích được sự chú ý từ mọi người. Nhưng nàng không giống với những kẻ thích khoe mẽ, hay những cô nàng yểu điệu... gây sự chú ý bằng những chiêu la lơi... Nàng muốn người ta chú ý tới nàng bằng vẻ ngoài đẹp kiêu sa, bằng trí thông minh hơn người và bằng sư dí dỏm duyên dáng đáng yêu... cho nên thật khó mà nói 1 cô nàng Leo ở chốn đông người đừng tỏ ra kiểu cách và xa cách 1 chút.
+
+_Nhưng khi ở chốn bạn bè thân thuộc lại khác, cô nàng tiểu thư kiêu kỳ ấy hoàn toàn thay thế bằng 1 con người chân chất chính hiệu, rất vô tư và gần gũi, thế nên mới có những nhận xét kiểu như " con gái Leo ngoài mặt thì vui vẻ hòa đồng, nhưng bên trong thì lạnh lùng băng giá" và ngược lại.. Bởi vì người ta đâu biết rằng nàng chỉ ấm áp, thân thiện và dễ thương đối vs những người mà nàng yêu quý... còn ngược lại, nàng sẵn sàng "cho lên dĩa" tất cả những kẻ làm ngứa mắt mình như khoe mẽ, tự phụ và khinh người... Đối với nàng, nàng luôn đặt 1 trái tim ấm cho tất cả những người xung quanh, nhưng nếu có ai phủ nhận hay làm điều ngược lại... nàng sẵn sàng đáp lễ thật xứng.
+
+_Cô nàng tự tin này thường sống và làm việc không theo bất kỳ nguyên tác hay khuôn khổ của ai, nàng chỉ làm điều nàng muốn và điều đó là đúng, nếu nàng làm sai- nàng sẽ tự nhận ra và sửa lỗi mà k để ai nhắc. Thế nên đừng bao h có tư tưởng trói buộc 1 cô nàng Sư Tử, đừng bao h bảo cô ấy "phải" làm kái này, làm cái kia... tất cả chỉ là nàng có muốn làm hay không thôi... và để đạt đc điều mình muốn... hãy cho nàng những sự lựa chọn, và nàng sẽ chọn con đường đúng đắn theo ý bạn (dành cho những trai thực sự muốn sở hữu cô gái này)
+
+_Là 1 người sống thoải mái chứ không hề buông thả, bạn có thể thấy cô gái này đi chơi với nhiều người con trai, hoặc có hành động hơi quá trớn... tất cả chỉ vì những cô gái cung Sư Tử thường vô tư trc bạn bè, họ không cho đó là những hành động phải kiêng nể... "Tại sao con trai làm đc, còn con gái thì không, trọng nam khinh nữ à, thôi về nhà chơi vs dế đi". Đấy, nàng đầy lòng kiêu hãnh, nhưng cũng rất tự trọng đúng chỗ... bạn bè thì vô tư, nhưng đối vs những tên có ý đồ xấu, thì đừng trách sao biển mặn haha... Cho nên những cô gái cung Sư Tử luôn biết cách khiến bản thân mình đc vui, sống phóng khoáng và biến mình hạnh phúc hơn là ngồi yên 1 chỗ chờ đợi sự sắp sẵn của người khác.
+
+_Nàng tâm niệm "muốn có người yêu, trc tiên là phãi biết yêu bản thân mình đã" và nàng cực kỳ chiều chuộng bản thân, không để nó vì bất kỳ lí do j mà suy kiệt, từ đó nàng càng xinh đẹp đáng yêu hơn... Nhưng, cũng ích kỷ hơn, ngoài việc nghĩ cho bản thân, gia đình và bạn bè... Cô nàng Sư Tử quên mất mục đích chính là tìm người yêu, nàng yêu bản thân nhiều tới nỗi, không thể yêu ai đc luôn, lâm vào tình trạng sống bất cần tình cảm lúc nào không hay...
+
+_Các cô nàng Leo giống những bông hoa hướng dương lai với bồ công anh... tinh khiết nhưng đầy ý chí, mạnh mẽ và ham thích tự do, ấm áp nhưng luôn biết ngẩng cao đầu. Đối với những người bạn người thân nàng luôn sẵn sàng giúp đỡ, bảo bọc... đó thực sự là 1 nàng Leo xinh đẹp đầy sức quyến rũ trong lòng mọi người. Còn đối với những kẻ mà nàng ta đưa vào tầm ngắm (lí do thì muôn hình vạn trạng, thường thì đúng kẻ đúng tội rồi, k chối đc đâu) thì từ lạnh lùng cho đến chảnh, ngạo mạn... nàng sẽ khiến kẻ đó, vừa ngậm ngùi vừa chỉ biết "rủa" thầm thôi...
+
+_Những cô nàng là Leo nhưng có xu hướng hướng nội cũng không ít, họ tin vào nét đẹp tâm hồn nhiều hơn, giống như nhiều người luôn nhận định gái Leo là phải bốc lửa, cá tính mạnh và luôn là người dang tay che chở những thân phận yếu hơn... thì những cô nàng Leo hướng nội lại phủ định điều đó, nàng chỉ thích những nơi yên tĩnh để nhìn lại bản thân, nhìn mọi người và học cách trở thành 1 người phụ nữ đúng nghĩa. Nhưng như vậy không có nghĩa là nàng luôn cúi đầu hay cam chịu hoàn cảnh tác động. Những cô gái này luôn biết cách để đối mặt với vấn đề, và giải quyết chúng cũng nhanh gọn không khác gì những Leo khác, họ chỉ khác ở lối suy nghĩ và tính cách trầm hơn chứ cũng k hề lắng nhé. Những cô nàng mẫu này chính xác là người thuộc về gia đình. Bởi vì họ toát lên vẻ uy nghiêm nhưng tràn đầy yêu thương, sự quyết đoán của họ k nằm ở khối óc như những cô nàng Leo thích đỉnh thiên lập địa, họ quyết đoán bằng tình cảm dành cho đối phương nhiều hơn và bảo vệ nó bằng mọi giá.
+
+_Chúng ta đều biết là những Leo nữ luôn có 1 vẻ đẹp hoang dã, đẹp mạnh mẽ như 1 vị thần, nhưng nét đẹp đó được quy định nơi tính cách nhiều hơn. 1 cô nàng Leo cá tính không nhất thiết luôn để 1 mái tóc ngắn, họ biết mình đẹp ntn và hiểu bản thân mình muốn j ra sao nên việc cham sóc vẻ ngoài thường không phải là 1 vấn đề quá lớn. Quan trọng và khôn ngoan hơn, họ chọn cho mình cách học hỏi và trau dồi kiến thức, giúp họ đẹp 1 cách toàn diện chứ không hề muốn thành 1 bình hoa di động, chân dài não ngắn như đa số gái đẹp thường làm khi đạt đc đến 1 đỉnh vinh quang nào đó. Gái nhà Sư Tử cũng chỉ thích tìm hiểu những j liên quan tới đầu óc nên khả năng tư duy của nàng thì không phải chê. Chính những điều này khiến cho bản thân nàng càng tăng thêm giá trị và nàng thêm phần tự tin cũng như tha hồ ra vẻ lạnh lùng cho đám trai xin chết vô điều kiện haha.​
+ 
+Kingdom Of Leo - Vương Quốc Sao Sư Tử (23 July-22 Aug) ​

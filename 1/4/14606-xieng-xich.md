@@ -1,0 +1,57 @@
+---
+title: "Xiềng xích..."
+date: 2025-06-12T13:08:32Z
+slug: xieng-xich
+draft: false
+---
+
+## Xiềng xích...
+
+## Libra_tieucancan
+
+Hội những người thuộc cung
+Bọ Cạp (Thần Nông, Thiên Yết)
+- Scorpion
+♥
+.
+.
+.
+Trái tim, tâm hồn, con người thật
+của Thiên Yết ......
+.
+Giống như bị trói buộc...........
+Cái mơ ước được tháo bỏ xiềng
+xích..........
+Tháo bỏ cái mặt nạ ấy........
+Cháy bỏng ...............
+.
+.
+Nhưng sao mà khó khăn thế.......
+.
+Là do không thể tháo nổi cái mặt
+nạ đó.....
+Hay do chính mình sợ hãi chẳng
+muốn tháo ra..............
+.
+Ừ ......
+Cái mặt nạ đó, đống xiềng xích
+đó............
+Vốn cũng là do chính Thiên Yết
+tạo ra để ......
+.
+Giam cầm ước mơ.... giam cầm
+nước mắt....... giam cầm yêu
+thương.... giam cầm những khao
+khát............... giam cầm giấu diếm
+sự yếu mềm..........
+Và.........
+.
+Giam cầm chính con người thật
+của mình.........
+.
+Giam cầm, giấu diếm....... tất cả
+.
+Vướng mắc rong đống xiềng xích
+mà chính mình cũng chẳng dám
+thoát ra.......................
++Mèo+

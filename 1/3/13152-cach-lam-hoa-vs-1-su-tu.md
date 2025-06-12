@@ -1,0 +1,13 @@
+---
+title: "cách làm hòa vs 1 sư tử???"
+date: 2025-06-12T12:37:19Z
+slug: cach-lam-hoa-vs-1-su-tu
+draft: false
+---
+
+## cách làm hòa vs 1 sư tử???
+
+## msgemini
+
+mí mem Leo cho mềnh bon chen tí.... chả là bf mềnh là 1 Leo B-er. Nói chug hắn khá là bá đạo và k thix cái tính bay nhảy gặp ai cũg kết bạn của mình (nhất là mí bạn nam="=)
+mọi đặc điểm như lười nt, lạnh lùg, âm thầm wan sát từ xa và ghen khủg bố hắn đều có hết. Hắn phạm 1 đốg lỗi mà k bao h chịu xl mình (đã biết hoặc jả điên) trog khi mình fạm 1 chút xíu sai lầm là hắn jận dỗi và mình lại fải lọ dọ tìm cách xl cho yên. Rồi 1 hôm mình chịu k nổi đã đem hết cái lỗi của hắn ra nói (1cách nhẹ nhàg và có examples cụ thể) và hắn đã ngồi lại từ từ jải thix cho mình nghe, hắn xl mình rất nhìu và còn cốc đầu mình bảo mình là con nít nữa!!!>< chuyện tưởg chừg êm xuôi rùi thì khỏag 1 tuần sau mình gặp 1 chuyện rất shock, mình hỏag đến nỗi suýt tự tử may nhờ tình êu với hắn mình mới kịp kiềm chế bản thân và lấy lại tinh thần, mình quyết định tối hôm đó gặp hắn tâm sự mọi chuyện, ấy thế mà rốt cuộc hắn lại k ra gặp. Mình tuyệt vọg wá về tâm sự vs ôg anh họ và dặn ổg đừg kể cho ai bít. Ai mà dè ổg lục danh bạ fone mình tìm số hắn và gọi cho hắn bít. Lúc đó 12h khuya, hắn đag ngủ, nghe chữ dc chữ mất thế nào áh, hắn gọi lại cho mình hỏi nhưg kẹt là mình bận k nghe dc dt. Sáng hum sau mình gọi lại cho hắn, mình hỏi hắn hum wa anh họ mình đã nói j, hắn bảo wên rùi, rùi trách mình chuyện k kể hắn nghe mà đi kể cho ng ngoài làm đag ngủ có cái thằg nào gọi nói j hắn chả hỉu j hết!!! mình nói đó là anh họ của mình, hắn lại trách ai cũg kêu là a họ rùi cúp máy lun!!! mình tứk điên lên, mình gặp chuyện mà hắn k hỏi thăm 1 tiếg mà còn trách móc. Mình gọi lại cho hắn mí cuộc mà hắn k thèm bắt, mình nhờ bạn hắn đưa dt hắn cũg k thèm nghe mà bỏ đi. Mình tứk wá nhắn 1 lúc 2 tin nhắn, 1 tin là để jải thix, tin còn lại mình ghi: "Nếu anh cảm thấy chuyện này vượt wá sức của mình thì có thể nói lời ct vs e, mọi lời thề xem như xóa bỏ, nếu anh cảm thấy k chịu nổi thì cứ nói hết vs e" ---> chả thấy hồi âm. Mình chẳg bít hắn đã del tin hay có đọc mà k nói j cả. nếu vậy thì mình cực kỳ thất vọg về con ng hắn. Rùi cách 2 ngày mình nhắn thim cái tin nói cả 2 bọn mình cần 1 khỏag time để suy nghĩ lại mọi việc, xem chuyện của chúg mình có đág níu jữ hay k. Nói thật mình định âm thầm rút lui nhưg vẫn còn wá nhìu khúc mắt jữa bọn mình nên mình k thể ra đi như vậy dc, vs lại mình còn iu hắn nhìu lắm, và mình có thể cảm nhận dc từ trái tim hắn cũg iu mình, mình k mún chấm dứt 1 cách vô lý ntn. Fải làm sao đây hả các bạn??? mí bạn Sư Tử júp mình với

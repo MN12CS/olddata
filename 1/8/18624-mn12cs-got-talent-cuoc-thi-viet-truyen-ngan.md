@@ -1,0 +1,29 @@
+---
+title: "[MN12CS Got Talent] Cuộc thi Viết Truyện Ngắn"
+date: 2025-06-12T14:40:48Z
+slug: mn12cs-got-talent-cuoc-thi-viet-truyen-ngan
+draft: false
+---
+
+## [MN12CS Got Talent] Cuộc thi Viết Truyện Ngắn
+
+## bagiaxulanh
+
+đây sẽ là topic chưng bày những tác phẩm của mem dự thi cuộc thi [MN12CS' Got talent] Cuộc thi Viết Truyện Ngắn
+mọi chi tiết liên quan đến cuộc thi mời các bạn xem tại  http://matngu12chomsao.com/forum/threads/mat-ngu-12-chom-sao-got-talent.17876/MS1:Họ và tên: Nguyễn ÁiNăm sinh: 1994Nick forum: ibitsuTham dự cuộc thi: Viết truyện ngắnMS2:Tên tác phẩm : Cám ơn anh, ký ức một thời đã quaTác giả : Fiona Dao
+Thể loại : Truyện ngắnNăm Vi 17 tuổi, cũng là cuối học kỳ 2 lớp 11, anh bắt đầu bước vào cuộc đời cô. Sơn chuyển đến lớp cô với phong thái ung dụng, tự tại. Cô chẳng hiểu tại sao con tim mình lại lỗi nhịp vì anh. Có thể vì anh đẹp trai , cũng có thể vì anh học giỏi nhất lớp, cũng có thể chẳng là vì cái gì. Khi thích một người, người ta chẳng hiểu rõ mình nghĩ gì và làm gì . Nếu biết lý do để thích một người thì đã có lý do để từ bỏ. Và cô đã say đắm anh từ đấy. Mỗi ngày, Vi chăm chú dõi theo anh, anh làm gì, anh nở nụ cười với ai. Nhưng tất cả chỉ là sự thầm lặng. Cô chính là đơn phương anh, thế nhưng anh lại vô tình không hay biết. Thời gian cứ thế lẳng lặng trôi qua, không ai biết mối tình thầm kín ấy...
+
+Năm 18 tuổi, cả cô và anh bắt đầu bước vào thời kỳ cam go, khó khăn nhất của thời học sinh. Cô tất bật lo bài vở, vùi đầu vào học mong có thể quên anh. Thế nhưng , thật trớ trêu, người bạn thân nhất của anh lại tỏ tình với cô. Cô bối rối, cô khó xử, cô chờ mong 1 tín hiệu dù là nhỏ nhất của anh. Nhưng anh vẫn là vui cười mà chúc mừng Cường và cô. Vâng, cô đã lựa chọn điều ngu xuẩn nhất đời mình. Đồng ý làm bạn gái của Cường , bạn thân của anh. Cường hạnh phúc thông báo với Sơn ; từ ánh mắt anh, Vi hiểu rõ tình cảm ấy là tuyệt vong. Vì anh cũng đã có bạn gái, một Song Tử đào hoa như anh thì có khó gì . Còn Cường, một Thiên Yết mạnh mẽ, chung tình , đúng là mẫu người yêu lý tưởng của biết bao cô gái. Thế nhưng cô không nằm trong số đó.Thật nực cười, người yêu mình thì mình chẳng thể yêu... Hằng đêm , những giọt nước mắt của cô vẫn rơi , vì nhung nhớ 1 người không nên yêu... Từ ngày cô đồng ý làm bạn gái Cường, cô và anh trở nên thân thiết hơn. Anh nhận cô làm em gái và cô chấp nhận. Mỗi lần cô, anh, Cường và bạn gái của anh đi chơi với nhau, cô đều lén nhìn anh,Cường biết điều đó, nhưng anh vẫn lẳng lặng yêu thương, chăm sóc cho cô. Cô hiểu tâm Cường cũng đau đớn như cô, thế nhưng ai có thế bắt trái tim theo ý mình đấy. Vi mặc cảm, cô xấu hổ mỗi lần nhìn anh. Cuối cùng, chính là không chịu nổi nữa mà giải thoát cho anh cũng là tự giải thoát cho chính mình. Anh xót xa nhìn cô nhưng lại không nói nửa lời, cô đáp trả anh bằng ánh mắt lạnh lùng nhất. Vì cô hiểu, chỉ có cách này, Cường mới có thể buông tay. Anh cười lạnh một tiếng rồi bỏ đi....để lại cô gục khóc bên gốc cây phượng đỏ thắm. Đó là lúc hết học kỳ 1...
+
+
+
+Học kỳ hai , Vi bắt đầu vất vả chạy đôn chạy đáo tìm tài liệu ôn thi, chuẩn bị bước vào thời kỳ thi Đại học khó khăn. Cô và Sơn vẫn thế, vẫn thân thiết với nhau như anh em. Cô mừng thầm, cứ lo sợ anh rồi cũng bỏ cô đi vì Cường. Anh quan tâm cô nhiều hơn, tâm sự với cô nhiều hơn, nhìn cô nhiều hơn . Mỗi khi có ngày lễ, anh đều tìm cớ để mua tặng cô một cái gì đó dù cô không cần. Anh bỏ ngoài tai lời cằn nhằn của cô, vẫn tặng cô, Vi hạnh phúc với điều nhỏ nhoi ấy. ....Gần kết thúc tháng 11 lạnh giá để bước vào mùa đông, anh và bạn gái chia tay nhau. Anh không buồn vì cô hiểu đó là sự giải thoát cho cả 2 người. Cô vui mừng , cô lại thầm ước về anh... Anh và cô bắt đầu đi chơi với nhau nhiều hơn, cả lớp bắt đầu bàn tán. Cường vẫn lạnh lùng khi đối diện với cô, nhưng ánh mắt lại nhuốm chút bi thương. Cô không dám nhìn anh, lảng tránh anh. ...Một tháng sau, Sơn ngở lời yêu cô. Lúc này cô lại trầm ngâm không nói gì, nhìn anh. Sơn hoảng hốt hỏi cô có đồng ý hay không ? Cô vẫn là gật đầu, chẳng phải đây là niềm mơ ước cô mơ đã bao lâu rồi sao???Họ hạnh phúc, trao nhau những ánh mắt trìu mến nhất., những nụ hôn ngọt ngào nhất ...Thời gian lại một lần nữa trôi qua...
+
+Cuối cùng, cũng đến kỳ thi Đại học, cô và anh đều quyết tâm thi cùng một trường để có thể lại được gần nhau. ....Nhưng kết quả lại chẳng được như ý nguyện. Cô đỗ, anh trượt... Anh buồn bã chẳng muốn gặp ai, kể cả cô. Vi đã đến nhà anh, gọi điện cho anh, gửi biết bao tin nhắn cho anh thế nhưng anh đều không gặp, không nghe.... Ngày cuối thu năm cô 19 tuổi, anh gửi 1 tin nhắn duy nhất " Chúng ta chia tay đi !" Cô đau đớn, trái tim cô vỡ vụn, cô khóc, những giọt nước mắt xinh đẹp kia một lần nữa lại rơi, cũng là vì anh . Cô chấp nhận, tự cười mình . Đã hiểu rõ anh không thuộc về cô mà cứ cố chấp yêu anh....Cô có thể hiểu lý do mà họ chia tay.
+
+Hai tháng sau. 
+" Em biết chúng ta đã chia tay, thế nhưng anh chỉ cần biết tình yêu này em sẽ cất giữ vào một lời sâu nhất của trái tim, không bao giờ mở nó ra nữa. Vậy nên xin anh hãy sống hạnh phúc, ít nhất là vì em. Hôm nay, em sẽ ra phi trường để bay sang Anh, bắt đầu cuộc sống mới ở đó. ....Cám ơn anh...vì tất cả ! " Tin nhắn cuối cùng của cô gửi cho anh, cô tháo sim cho vào góc túi của mình, gửi lại tất cả vào quá khứ.....
+" Tạm biệt anh, ký ức một thời đã qua...." 
+Cô bước lên máy bay, ngồi im lặng nghe một bản nhạc êm diu, thả hồn mình vào đó và...quên tất cả. Chẳng biết , anh có chạy ngay đến phi trường để gặp cô không ? Anh có còn yêu cô, có muốn đi tìm cô hay không??? Tất cả đã không còn quan trọng nữa rồi. Cô chỉ biết một điều, hãy để tất cả trôi về quá khứ ấy, một quá khứ cô đã từng yêu anh......... 
+
+Đây có thể coi là một nhật ký của tôi , một nhật ký về tình yêu đã qua. Xin cám ơn vì đã đọc ! Thân updating....

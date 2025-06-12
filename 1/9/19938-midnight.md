@@ -1,0 +1,20 @@
+---
+title: "Midnight"
+date: 2025-06-12T15:11:39Z
+slug: midnight
+draft: false
+---
+
+## Midnight
+
+## YuuSkye
+
+….Midnight….Author: Yuu Skye.Thể loại: Xuyên không, huyền huyễn, romance, tragedy, humour, angst,…..?Rating: Không rõ =]].Status: On going.Summary:Ngươi, sinh vật ngây dại tội nghiệp kia…..Ta, trốn chạy suốt hơn 3 thế kỷ….Bước đi trong bóng tối….Vô định, không lối thoát…..Chỉ vì tội lỗi của các ngươi đã gây ra!....Đừng tưởng rằng như thế đã là kết thúc….Đừng nghĩ rằng không có gì là không thể….!Rồi một ngày, ta sẽ quên mất cái tên của ngươi…Và một ngày đẹp trời nào đó, ta sẽ dìm ngươi vào nỗi đau tưởng chừng như đã biến mất của ta…..Xóa đi sự tĩnh lặng…..Xóa đi cuộc sống của ta!......Author’s Note:+ Lấy cảm hứng từ series “Avatar: The Last Airbender” (cảm ơn Nickelodeon <3). Nhưng cũng sẽ thay đổi một chút xíu ^^!+ Các cung sẽ không được xếp như theo mệnh của mình. Vd: cung mệnh Thủy thì sẽ là mệnh Thổ, cái đó thì mình sẽ giải thích sau. Vì thế những bạn dù không thích cách sắp xếp của mình thì thông cảm giùm mình ^^. Cái gì cũng có lí do của nó!!+ Cuối cùng! Trình viết văn của mình còn dở. Thành thử ra phần prologue hơi điêu. Thứ lỗi cho mình nghen ^^!P/s: Mật độ ra chap của mình là RẤT LÂU. Vì mình còn đang cắm một bộ danmei và 3 bộ fanfic. Chap 1 còn đang trong quá trình "xây dựng". Mấy mem đọc truyện của mình thì phải căng dây thần kinh ra hết cỡ nghen =]]]]
+Nvật nữ: Song Ngư, Thiên Bình, Nhân Mã, Cự Giải, Song Tử, Xử Nữ.
+ 
+Nvật nam: Thiên Yết, Ma Kết, Sư Tử, Bạch Dương, Bảo Bình, Kim Ngưu, Xà Phu.
+ 
+ 
+ 
+ GTNV:Phong - Aer.Song Ngư ( Pisces ) : Pisces Cruz – 17t.(?)Thiên Bình ( Libra ) : Libra Cruz – 16t.(?)Nhân Mã ( Stagittarius ) : Sagittarius – 16t.(?)Hỏa - Ignis.Thiên Yết ( Scorpio ) : Scorpio – 17t.(?)Ma Kết ( Capricorn ) : Capricorn – 18t.(?)Bạch Dương (Aries): Aries – 16t.(?)Sư Tử ( Leo ) : Leo – 18t.(?)Thủy - Aqua.Bảo Bình ( Aquarius ) : Aqua Blue – 18t.(?)Cự Giải ( Cancer ) : Cancer – 17t.(?)Song Tử ( Gemini ) : Gemini Blue – 10t.(?)Thổ - Terra.Kim Ngưu (Taurus): Taurus Beifong – 25t.(?)Xử Nữ ( Virgo ) : Virgo Beifong – 17t.(?)Libro 1: Revertimini.Fabula 1: Aer.Chapitre 1.
+ Prologue.“Chòm Tiên Nữ đã bắt đầu lặn rồi”.Ta không nói gì, lẳng lặng hít một hơi dài rồi bắt đầu rảo bước.Bây giờ đã là 11h55’. Chỉ còn 5’ nữa thôi……Tiếng bước chân của hai bọn ta vang lên trong sự tĩnh mịch của một con đường nhỏ ở London.Ahh~ Ban đêm.Thời điểm thích hợp để đi săn…“Dừng lại!”Ta hơi khựng lại. Những cơn gió thổi nhè nhẹ qua nhưng ta cũng có thể cảm nhận được. Có cái gì đó đang đến…..“Got it!” Ta trả lời trước khi rút thanh katana ra khỏi vỏ….……..Huấn luyện bởi thầy tu và sát thủ từ Tibet cho đến Istanbul.Ẩn thân dưới sự bảo hộ của Giáo Đoàn Đen.Ban đêm là thời khắc của bọn ta.………Một thân ảnh to lớn vụt ra từ bóng tối nơi cuối con đường. Và nó đang nhe hàm răng gớm ghiếc của nó ra đe dọa hai kẻ “xấu số” đứng trước mặt nó.Ta vẫn bình thản mà bước thêm vài bước đến gần con quái.Như bị chọc tức vì có người không sợ, nó điên cuồng lao về phía ta trong nháy mắt.……….Buổi sáng, bọn ta ẩn thân dưới lớp vỏ bọc hoàn hảo mà giáo đoàn đã dựng lên.Không một ai nghi ngờ về sự hiện diện của bọn ta.……..Ta vung thanh katana và chém nhẹ vào trong không khí.“Rẹtttt!!”Máu bắn ướt cả người và khuôn mặt ta. Nhìn thân thể bị chém ra từng mảnh của con quái, trong lòng ta có chút xót xa.Nhưng biết sao được. Nó là nguyên nhân dẫn đến những vụ mất tích vào ban đêm suốt mấy tháng nay ở London.Và cũng là nguyên nhân khiến ta phải lang thang ngoài đường vào thời điểm “đèn nhà ai nấy tắt” thế này.……….Ta là một người trừ tà – Exorcist.Không phải theo kiểu đuổi linh hồn ra khỏi xác đâu!Nhiệm vụ của ta là đi tiêu diệt những điều siêu nhiên khiến cho trật tự của thế giới này bị đảo lộn.……….“Mau gọi người đến dọn cái đống này đi.”“Haizz. Sao lúc nào cũng phải be bét thế hả Pisces? Mình còn phải bắt nó về cho phòng thí nghiệm mà.”Ta không nói gì, lau vết máu bị bắn lên thanh katana rồi trút vào vỏ.Ta ngước nhìn lên bầu trời. Một màu đen đặc chỉ có ánh trăng đơn độc chiếu sáng màn đêm. Không có một ánh sao nào.“Đi thôi nào.”Libra kéo tay ta đi trước khi người của giáo đoàn kịp đến.…………Ta…..là Pisces Cruz

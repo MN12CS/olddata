@@ -1,0 +1,72 @@
+---
+title: "Máu và Nước mắt~Chap 10"
+date: 2025-06-12T13:43:58Z
+slug: mau-va-nuoc-matchap-10
+draft: false
+---
+
+## Máu và Nước mắt~Chap 10
+
+## light_capricorn
+
+Song Ngư~Ảo ảnh và hiện thực
+ 
+Một căn phòng, à không, nói chính xác hơn là một khoảng không vô định, trắng toát, không giới hạn, không bề rộng cũng chẳng có bề cao, nó chỉ đơn giản là 1 khoảng không trắng toát. Có 1 người con gái ở trong căn phòng ấy. Cô gái đang chạy, cô đang cắm đầu cắm cổ chạy thật nhanh, khuôn mặt cô hiện rõ sự sợ hãi, có gì trong căn phòng đó khiến cô sợ sao? Có.....phía sau có gì đó đang đuổi theo, nó không có hình thù chỉ đơn giản...đơn giản là....căn phòng đang chuyển màu, không phải chuyển màu mà là....có thứ chất lỏng nhầy nhụa đang tràn khắp phòng, thứ chất lỏng đặc sệt kinh tởm...MÁU....là....MÁU. Người con gái vẫn tiếp tục chạy, sự sợ hãi của cô ngày 1 lớn. 
+Bỗng, thứ chất lỏng bám theo cô biến mất, bỏ lại người con gái đang sợ hãi đứng giữa thứ không thể gọi là thế giới cũng chẳng thể gọi là địa ngục, mọi thứ vẫn trắng xóa. Bỗng đằng xa, có 1 người con trai đang đứng, mái tóc đen đang khẽ tung bay, người con trai ấy quay lưng về phía cô, rồi anh quay lại, từ xa cô chỉ thấy 1 nửa khuôn mặt của anh, đôi mắt xám lạnh lẽo và mái tóc đen rồi chàng trai bỏ đi.
+"Chờ...chờ với..." Cô thét lên rồi đuổi theo chàng trai ấy. Cô gái cố sức đuổi theo thì cơn gió bỗng đến cuốn cô đi và đưa cô trở về thực tại.
+~o0o~​ Người con gái nằm trên giường bật dậy nhanh chóng tóc tai rũ rượi hơi thở gấp gáp. Cửa sổ ban công vẫn mở, tấm màn đang bay phấp phới để lộ vầng trăng ngoài trời. Ánh trăng đang phản chiếu trên khuôn mặt gầy gò trắng bệt của cô.
+Ánh trăng đêm nay sao không như thường ngày, nó đã không còn màu vàng dịu dàng tha thiết như xưa, cũng không trở nên ấm áp vỗ về lúc thường. Nó rất khác biệt, vì hôm nay trăng lại mang một màu sắc khác.............màu xanh biếc huyền ảo đẹp đẽ nhưng lạnh lẽo đến rùng mình (Blue Moon). Màu xanh biếc của trăng soi xuống mặt đất khiến mọi vật phía dưới nhân gian bỗng trở nên lạnh lẽo và sầu thảm. Ngay cả gió cũng chẳng còn dịu hiền như trước, từng cơn gió mạnh thổi qua những hàng cây đứng trên sân phải nghiêng ngả trong sức thổi của gió như phải hứng chịu cơn thịnh nộ của gió. Mọi thứ dưới ánh trăng xanh đêm nay trở nên ma quái hơn ngày thường nhưng....ai biết tại sao?
+Ánh trăng xanh như được gió dẫn đường luồn qua chiếc cửa số ban công đang mở vào bên trong phòng, gió thổi bay phấp phới tấm màn trên chiếc cửa sổ đi ra ban công. Bên trong phòng qua ánh trăng, có thể nhìn thấy rõ 1 người con gái đang ngồi trên giường, hơi thở gấp gáp dần đều nhịp, hình như cô vừa gặp ác mộng và ánh trăng xuyên thẳm vào giấc mơ của cô.
+Người con gái đưa tay vuốt ngược mái tóc dài, thở hắt ra, cô đưa ta lau những giọt mồ hôi lấm tấm trên khuôn mặt cô, người con gái tự nói với chính mình như thầm tự nhủ và trấn an bản thân
+"Song Ngư (Pices) chỉ là ác mộng, ác mộng thôi, quên đi, hãy quên đi, nhưng.....người con trai đó....là ai?"
+Song Ngư nói rồi đứng dậy bước ra khỏi giường, cô tiến về phía cửa sổ ban công nơi ánh trăng lùa vào. Song Ngư đứng đấy, tay vịn vào thành lan can, hơi nhướng người lên phía trước tận hưởng từng làn gió mát lạnh buổi đêm. Gió thôi tung bay mái tóc xanh biếc trùng màu với ánh trăng, mái tóc dài của Song Ngư không những không bị hòa vào màu của trăng mà ngược lại nó làm càng thêm nổi bậc như chính ánh trăng xanh kia ân ái tô điểm cho vẻ đẹp của cô. Đôi mắt của Song Ngư từ từ mở ra nhìn về phía trước, đôi mắt màu xám lạnh nhưng cũng không lạnh đảo nhìn mọi thứ. Khuôn mặt xinh đẹp của cô toát lên sự dịu dàng tao nhã, mềm mại nhưng cũng có nét cứng rắn nơi đôi mắt xám ảm đạm. Song Ngư đứng giữa cơn gió và ánh trăng xanh, trông cô đẹp như 1 vị thần giáng thế, nếu như vị thần của biển cả Poseidon mang vẻ đẹp của sự sung mãn và dữ dội của bão tố thì cô có thể được coi là con gái của người với vẻ đẹp ôn hòa và nhu mì như mặt nước êm ái.
+Song Ngư vẫn đứng đấy nhìn vào vầng trăng đang dần lặn mất, trời sắp sáng rồi. Trước giờ mọi người chỉ bảo rằng ngắm mặt trời lặn và mọc chính là buổi đẹp nhất nhưng ít ai biết được rằng buổi trăng lặn cũng mang 1 vẻ đẹp đến mê lòng người, một vẻ đẹp rất khác biệt, tĩnh lặng không chói lóa như mặt trời. Song Ngư lặng lẽ rời khỏi nơi ban công bước vào trong phòng tắm, 1 ngày mới lại bắt đầu, cơ thể cô ngày một trở nên yếu hơn, nó có thể chịu đựng đến bao giờ? 
+Song Ngư thay 1 bộ váy trắng muốt trễ vai có những đường hoa uốn lượn nơi gấu váy màu dương đậm làm chiếc váy không quá đơn giản những cũng không quá cầu kì, nó chỉ đơn thuần rất mộc mạc và xinh đẹp 1 cách tự nhiên. Song Ngư bước đến trước gương, khuôn mặt trắng bệt mệt mỏi cùng đôi môi tái nhợt vẫn không được giấu hết sau lớp son hồng, cô đưa tay kéo khóe miệng cong lên cố tạo thành 1 nụ cười nhưng nụ cười gượng gạo quá, cô liền bỏ tay ra và tự mỉm cười trở lại, lần này nụ cười của cô có chút khởi sắc, xinh đẹp nhưng lại vô cùng mệt mỏi. Song Ngư đành bỏ cuộc không tập cười nữa, cô bước ra khỏi phòng xuống nhà dưới. 
+Ngôi nhà mà cô đang ở có thể coi là 1 trong 12 ngôi nhà to lớn đồ sộ nhất thành phố London xinh đẹp này (nói tới 12 thì chắc pk của ai hết rùi fải ko) Ngôi nhà với kiến trúc hiện đại cùng những cổ vật xa xưa cách đó hàng ngàn năm tạo nên sự đối lập nhưng không làm cho ngôi nhà trông kì dị, mà làm cho kiểu cách của ngôi nhà thêm phá cách với sự kết hợp của xưa và nay. Ngôi nhà rộng gần 2000m vuông chứa cơ man nào là xe và các món đồ giá trị khác, xinh đẹp, tinh tế, phá cách là những gì nó có. Song Ngư bước trên từng bậc thang được trải thảm đỏ, trông cô cứ như nàng công chúa đang bước xuống thảm đỏ trong ánh đèn sang trọng ở 1 buổi tiệc hoàng gia.
+Ở dưới nhà, 1 cô gái tóc nâu dài đưa đôi mắt lục thích thú đi "khám xét" xung quanh nhà, còn có 1 chàng trai với mái tóc vàng hơi xù lên như bờm sư tử và đôi mắt cam tĩnh lặng, lúc này, đôi mắt của anh thật khó đoán cảm xúc mà anh đang cảm thấy. Nhìn thấy Song Ngư đi xuống, cô gái có mái tóc nâu kêu lên
+"Song Ngư, mau lên nào, chờ lâu quá."
+"Biết rồi, đợi có chút mà than quá Mã à." Song Ngư mỉm cười thân thiện nhìn Nhân Mã trả lời, đồng thời ánh mắt đảo qua chàng trai ngồi bên kia
+"Tiểu Sư, mới sáng sớm mặt đã bí xị rồi" Sư Tử nghe gọi đến tên mình ngước lên nhìn Song Ngư, thì ra từ nãy đến giờ hắn đang.........ngái ngủ (Sư ới là sư)
+"Uôi......ùn....ủ.......á.....ik (tuôi bùn ngủ quá đi)" Sư Tử vừa nói vừa ngáp làm câu nói của anh không còn là tiếng người nữa mà cứ như tiếng người hành tinh nào ấy. Nghe thứ tiếng đó Song Ngư và Nhân Mã chợt bật cười thành tiếng, nhìn cái mặt ngái ngủ trông ngu hết sức của Tiểu Sư đồng thanh cười vang lên làm cho Tiểu Sư mặt vừa ngái ngủ vừa khó hiểu.
+"Được rồi được rồi, đi shopping nào." Nhân Mã cố nén cười để Sư Tử không nổi cơn nói tiếp
+"Tại sao đi shopping lại lôi tôi theo?" Sư Tử bất mãn nói
+"Cậu không đi ai xách đồ cho chúng tôi?" Song Ngư mỉm cười ngọt ngào dụ dỗ
+"Gì? Tôi mà làm osin cho 2 ng á, kêu Cự Giải của cậu đi đi, tại sao là tôi chứ."
+"Này, Giải Giải của tôi còn phải làm việc, đâu có vô công rỗi nghề như con Sư Tử nhà cậu chứ."
+"Mã à, Giải Giải của tôi sao? Từ khi nào thế hả." Song Ngư tinh quái chọt ngay đúng chỗ ngượng của Mã Mã
+"Cái này ngộ à nha, đê tui kể cho nghe, chuyện là.....a......ưm." Sư Tử ranh mãnh chạy sát lại Song Ngư định thó thé gì đó liền bị Nhân Mã nhanh tay chồm tới bịt miệng kéo ngược lại làm anh chàng ngã lăn quay ra sau, Nhân Mã thuận thế liền nhanh chóng nằm đè lên Sư Tử rít vào tai anh đe dọa
+"Sư Tử, cậu mà nói ra Nhân Mã tôi sẽ cho cậu nếm mùi đai đen tứ đẳng Judo đây, nói thử xem."
+ "Không nói thì không nói, làm gì ghê thế, tôi đây cũng học võ không sợ cậu đâu nhá." Sư Tử hất tung tay Nhân Mã ra đứng dậy nói lớn
+"Thế à, cậu học võ gì tôi không biết, võ Sư à?" Nhân Mã nhìn bộ dạng thủ thế của Sư Tử không khỏi khiến cô nổi máu châm chọc liền đụng ngay chỗ mà chọt vào làm Sư cứng họng cà lâm:
+"Võ.....võ....võ...." Sư Tử tài lanh nói cho mạnh miệng, rốt cuộc thì hắn cũng có học gì đâu cơ chứ, còn bày đặt, được cái võ tán gái là hay (Sư: ngươi bôi bác ta thế á tên kia/ Light: này, ngươi có mún bị Mã xử ko? Nếu ko thì ngậm miệng lại/ Sư:.........*im lặng thất thế chạy về nhà Leo, Light toàn thắng )
+Nhân Mã mỉm cười quỷ quyệt bẻ tay từ từ tiến lại gần Sư Tử còn Sư Tử thì cứ đổ mồ hôi hột mà lùi về phía sau, rốt cuộc Mã cứ tiến thì Sư cứ lùi. Thấy tình hình sắp sửa có án mạng xảy ra tại nhà, Song Ngư sợ liên lụy liền nhảy vào can (Light: chỉ vì sợ liên lụy thôi hả Ngư, lòng thươg người của Ngư đâu?/ Ngư: vướg víu quá ta vứt rồi, ngươi xê ra/ Light: *wê 1 cục ngậm ngùi ra viết truyện tiếp tính kế trả thù*)
+"Thôi cho Ngư xin, đừng đánh nhau nữa, án mạng xảy ra thì chết chùm đấy." 
+"Nể mặt liên lụy Ngư, Mã đại nhân ta hôm nay tha cho ngươi đấy." Nhân Mã hất tóc rồi quay đầu đi về phía song Ngư bỏ lại Sư Tử đang thở phào thoát chết phía sau thầm nghĩ
+*Đại nhân cái con khỉ, tiểu nhân thì có, đồ con gái bạo lực*
+"Thế hôm nay cậu kêu Sư theo làm gì?" Song Ngư ngờ vực hỏi lại Nhân Mã
+"Thì đương nhiên là theo hộ tống chúng ta rồi, con gái chân yếu tay mềm như tụi mình ra đường thể nào cũng gặp nguy hiểm, phải tha hắn theo chứ sao." Nhân Mã vuốt vuốt mái tóc nâu lượn sóng của mình trả lời bâng quơ
+"Cái gì, con gái chân yếu tay mềm? Mã ơi, nếu nói Ngư Ngư chân yếu tay mềm tôi còn chấp nhận con cậu......quỷ cậu còn chém nổi mà yếu nỗi gì, cho tớ xin đi." Sư Tử phản bác lại lời của Nhân Mã với khí thế hào hùng ngất trời cao mà quên mất rằng tính mạng cậu đang gặp nguy hiểm với cái sát khí bốc lên ngùn ngụt từ Nhân Mã.
+ Cô rít qua kẽ răng lao đến Sư Tử với tốc độ chóng mặt (sao tài thế) Sư Tử nhà ta cũng không vừa, quay lại mỉm cười nhìn Nhân Mã liền rút ngay khấu súng ống ngắn màu trắng có in hình bông hồng bên trên súng, nhưng Nhân Mã không sợ cô nhanh chóng tung chân đá văng khẩu súng của Sư Tử nhân lúc anh đang ngạc nhiên mất tập trung, Mã Mã liền túm lấy vai áo anh xoay người dùng Judo vật xuống sàn (quen không quen không, ai còn nhớ giơ tay, hú hú ) Sư Tử tròn mắt ngạc nhiên chuyển thành giận dữ và sau cùng là đau đớn (cảm xúc của Tiểu sư thật mâu thuẫn). Anh bị vật đúng 3 lần, và cả 3 lần đều là con gái, thật nhcụ nhã cho 1 đấng nam nhi đại trượng phu như anh. Song Ngư không biết từ lúc nào đã yên vị trên chiếc ghế sofa êm ái và 1 bịch popcorn trong tay, vừa ăn vừa xem "Cine trong nhà" thật hấp dẫn. Khuôn mặt Ngư hiện lên nụ cười thương hại cho sư Tử, đúng là đụng vào Nhân Mã thì chỉ có nước ''chết'', khác với Ngư hền lành ngày thường, khuôn mặt cô lúc này vô cùng gian manh, không biết thay đổi tự lúc nào (chơi vs mã riết nó nhiễm ==!)
+"Tôi biết cậu không bao giờ dám bắn tôi, vì thế đừng dọa tôi bằng khẩu súng này nữa, dùng nó để bắn ai xứng đáng ấy." Nhân Mã cười đểu giả ném khẩu súng lại cho Sư Tử. 
+Sư Tử..........thua tập 2~kết quả: Sư phải theo làm khuân vác bất đắc dĩ cho Ngư và Mã. Mã toàn thắng 
+Song Ngư cùng Nhân Mã bước đi dạo trên con phố tấp nập người qua lại, phía sau là sư Tử đang lững thững vác đồ đi theo. Cả 3 đều nhận được sự chú ý đặc biệt với vẻ ngoài bắt mắt của mình, những cô gái thì cứ thi nhay hét lên khe khẽ khi thấy Sư Tử, tên này dù vác đồ nhưng vẫn không quên nháy mắt với những cô gái đi đường làm họ cứ thi nhau mà đổ rạp (vâng là điêu đấy ạ) còn những chàng trai thấy Song Ngư và Nhân Mã thì cứ huýt sáo mời gọi. Mã quay sang Ngư mỉm cười tỏ vẻ tự hào
+Song Ngư không đế ý đến những ánh mắt trầm trồ cô, cô chỉ lo tận hưởng cảm giác thoải mái khi được ra ngoài của mình. Từng cơn gió luồn qua mái tóc biếc óng ả của cố làm mái tóc bay lên lộ ra đôi mắt xám xinh đẹp lạnh lùng của mình.
+"Lần cuối cậu ra ngoài là khi nào Ngư Nhi?" Nhân Mã mỉm cười nhìn Song Ngư hỏi lại
+"Mình...không nhớ nữa, chắc lần cuối là 3 thang trước." Song Ngư cười buồn trả lời, ánh mắt cô chợt ánh lên nỗi buồn sâu sắc
+"Ngư Nhi........cậu vẫn tin giấc mơ đó sao?" Mã Mã rụt rè hỏi cô như sợ đụng chạm nỗi đau gì đó của cô
+"Người còn trai có mái tóc đen và đôi mắt xám ấy.......mình chưa bao giờ quên" Song Ngư cụp mắt trả lời cố lục lọi trong ký ức mình về mảnh vỡ đó
+"Cậu không quen hay là không nhớ anh ta?"
+"Mình không biết......chỉ cảm thấy....anh ta thân thuộc lắm, cứ như là......" Song Ngư nhìn về phía trước trả lời, bỗng cô ngừng giọng, đôi mắt xám của cô mở to tròn nhìn về ohía trước, mái tóc đen, đôi mắt xám lạnh lùng rất giống cô
+"Là anh ấy." Song Ngư bật nói rồi lao thẳng đến chỗ người con trai ấy, muốn chạy thật nhanh trên con đường tấp nập người qua lại như thế này không phải là chuyện dễ, 
+"Khoan...khoan đã....Ngư ơi, Ngư Nhi...." Nhân Mã gấp rút đuổi theo Song Như phía sau, Sư Tử cũng vội vã chạy theo dù đang mang cả núi đồ. Song Ngư sau khi chen lấn qua cả dòmg người tấp nập thì người con trai ấy đã biến mất như anh chưa bao giờ xuất hiện.
+"Tựa làn gió....người đến rồi lại đi...để lại ta sự ưu hoài mãi không nguôi." Song Ngư đứng giữa biển người thì thầm câu nói, 1 câu nói bất chợt đến với ý nghĩ của cô như thể....cô đã biết câu nói đó từ rất lâu trước đó.
+"Ngư Nhi....Ngư Nhi...cậu sao thế....Ngư à..." Nhân Mã bắt kịp Song Ngư hốt hoảng dò hỏi khi thấy giọt nước mắt lăn dài trên đôi má trắng hồng của cô. Song Ngư lắc đầu nguầy nguậy rũ đi giọt nước mắt lăn dài trên má, từng giọt lệ sóng sánh rơi khỏi gương mặt xinh đẹp của cô, long lanh như từng hạt pha lê.
+"Mãnh vỡ của ký ức....rồi sẽ tìm lại được không?" Song Ngư lại thầm nói với chính mình. Cô bất lực mỉm cười rồi quay bước đi. Nhân Mã và Sư Tử vẫn không hiểu chuyện gì xảy ra nhưng cả 3 vẫn im lặng nhìn nhau và bước theo Song Ngư.
+Chuyến xe số phận đã lăn bánh, nó chẳng bỏ lại ai phía sau, rồi nó sẽ lăn đến đâu trong số phận nghiệt ngã? Và 12 con người bước lên chiếc xe đã lăn bánh ấy sẽ ra sao? Trò chơi sắp bắt đầu
+BLOODY & TEARS GAME IS BEGIN​ 
+GTNV: http://forum.matngu12chomsao.com/th...vat-cua-mau-va-muoc-mat-p1.13672/#post-128789
+Chap 9: http://forum.matngu12chomsao.com/threads/mau-va-nuoc-mat-chap-9.16064/
+-------------------------------------------------------------------------------------------
+Vậy là chap riêng lẽ về 12 sao đã xong rồi, cuộc gặp gỡm định mệnh sắp bắt đầu! Và nhắc đến chap mới sau này.....Light lại bù đầu đây! Những bạn Light nhắc đến từ nay sẽ là nv thứ chính trong truyện của Light nhé! Chúc các bạn đọc truyện vui vẻ và luôn ủng hộ cho Máu và Nước mắt nhé! 
+Thân: Light Elizabeth
+-------------------------------------------------------------------------------------------

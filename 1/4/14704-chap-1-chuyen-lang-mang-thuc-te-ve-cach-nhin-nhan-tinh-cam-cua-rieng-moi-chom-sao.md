@@ -1,0 +1,25 @@
+---
+title: "Chap 1 Chuyện lãng mạng + thực tế về cách nhìn nhận tình cảm của riêng mỗi chòm sao"
+date: 2025-06-12T13:11:31Z
+slug: chap-1-chuyen-lang-mang-thuc-te-ve-cach-nhin-nhan-tinh-cam-cua-rieng-moi-chom-sao
+draft: false
+---
+
+## Chap 1 Chuyện lãng mạng + thực tế về cách nhìn nhận tình cảm của riêng mỗi chòm sao
+
+## Kimnguu01051995
+
+Link truyện: http://forum.matngu12chomsao.com/th...n-nhan-tinh-cam-cua-rieng-moi-chom-sao.16259/
+ 
+Tôi là Kim Ngưu, một nữ sinh 17 tuổi. Và tôi có một cô bạn thân từ hồi còn học ở mẫu giáo luôn (cái này là thiệt, ko phải bịa ) là Bạch Dương. Tôi thích gọi nó bằng 1 tư nghe có vẻ hơi kì cục, đó là “Ku”, và nó cũng gọi tôi như vậy. Hai đứa con gái gọi nhau như vậy quả là kì cục và hơi “thô bỉ”( theo như lời nhận xét của bàn dân thiên hạ). Nhưng chúng tôi thấy ko có vấn đề gì cả và vẫn gọi như thế, dần dần điều đó trở thành một thói wen, và tôi nghĩ cái tên đó khiến chung tôi càng thân với nhau hơn.
+Từ những ngày đầu cấp 1, chúng tôi học chung trường, chung lớp, chung bàn và còn vô vàn thứ CHUNG nữa. Tôi học bán trú, còn BD thì học ngoại chú, nên đến trưa thì nó về nhà, còn tôi ở lại ăn cơm ở trường. Thiệt tình nhìu khi muốn níu chặt nó ở lại ăn chung với tôi mà ko dc. Tôi coi người bạn đó như em gái ruột của mình vậy(dù thực ra là nó sinh trước tôi gần 1 tháng, nhưng nó ngây ngô và trẻ con hơn tôi nhiều).
+Khi tôi lên lớp 4 thì có 1 người bạn mới chuyển vào lớp tôi ( Tôi sẽ đặt cho cậu ta cái tên là Thiên Yết, mà thật sự cậu ta thuộc chòm sao TY).( theo tôi chắc rằng trước đó cậu ấy học trường Hoàng Diệu ) Ngay từ lần đầu gặp tôi thực sự ko ưa nổi cái nhìn đầy kiêu ngạo và thách thức của cậu ta, vậy mà cô giáo lại xếp chỗ cho cậu ta ngồi ngay sau lưng tôi. ( Tin nổi ko, tôi phải chịu đựng 1 thằng con trai mà tôi ghét nhất trên đời ngồi sau lưng mình trong gần 9 tháng trời). Tôi biết thế nào cũng sẽ có chuyện cho mà xem. Y như rằng, ngay hôm đó tôi đã bị cậu ta giựt mất cột tóc rồi chạy biến, hồi lớp 1 tôi cũng từng bị thế này bởi tên lớp trưởng Bảo Bình ( hồi đó ngày nào tôi cũng khóc rồi đi méc cô giáo, nghĩ lại thấy mình ngu thật), nhưng có vẻ như khi lớn hơn thì BB ko còn chọc phá tôi như trước nữa. Không hiểu sao tên này vẫn còn thích chơi trò đó nhỉ? BD cũng an ủi tôi suốt, có lúc tôi cũng thấy khâm phục BD quá, làm sao nó chịu dc cái tật “mít ướt” của tôi suốt 5 năm nhỉ?
+Và các trò đùa của TY ngày càng “nặng đô” hơn, bắt dế thả vào hộc bàn của tôi ( còn nhớ lúc lôi cuốn sách toán trong bàn ra tôi đã la lên thất thanh đủ to cho cả trường cùng “tận hưởng âm nhạc” luôn).
+Và trò đùa cuối cùng là cậu ta đã dùng ná bắn vào người tôi, có khi thì vo tròn cuộn giấy ném vào tôi. Lâu dần wen nên tôi ko thèm quan tâm đến chúng nữa. Và rồi một lần tình cờ tôi mở cuộn giấy nhàu nát mà cậu ta ném vào tôi và trong đó có ghi gì bạn biết ko? Hì , ko nói sao biết! he he he
+“CHÀO, tóc xù”, “làm bạn nhé”, “chọc cậu thật vui”, “cậu khóc trông thật ngố”…v.v….
+Chúng ghi những dòng như thế đấy! Và rồi tôi từng nghĩ:” cậu ấy thật “BẤT BÌNH THƯỜNG”, ai lại đị làm wen bằng cách chọc ghẹo người khác nhỉ? Nhưng mà cậu ta cũng dễ thương đấy nhỉ?”. ( Thật hết chịu nổi, mới tí tuổi đầu đã giỏi tán gái, nhưng tôi còn tệ hơn, mới tí tuổi đầu mà đã “mê zai”) ha ha ha. Tôi từng tự trách mình hang tỉ lần vì điều đó.
+Từ đó, TY …vẫn tiếp tục chọc tôi điên lên nhưng tôi nhận ra những trò đùa đó ko hề có gì ác ý cả, chỉ là cảm giác “thích true chọc” người khác của cậu ấy thôi.
+Nhưng sau đó, cái tin động trời khiến tôi xém ngất nhất là BD bảo với tôi là nó có “hơi thích thích” TY, Nhưng lúc đó chúng tôi chỉ là những đứa nhóc vắt mũi chưa sạch, tôi ko hiểu thích là thích “kiểu gì”?
+Tôi cũng bó tay với BD luôn, nó còn hỏi tôi có thích TY ko nữa kìa? Ôi mai Chúa!
+Nhưng có những chuyện tôi thật ko ngờ tới, Có một lần TY bị sốt suất huyết phải nghỉ ở nhà cả 3 tuần, 3 tuần đó tôi thực sự như người mất hồn, ko cười nữa, cũng ko ăn quà vặt, ko nói chuyện, tự kỉ 1 mình. Nếu BD hỏi thì tôi chỉ trả lời dăm ba câu rồi thôi. Một tuần sau khi TY nghỉ học, BD rủ tôi với mấy bạn đi thăm TY ( theo tôi biết thì trong lớp có cả anh họ của TY là Sư Tử, hai anh em nhà này thật sự rất khác nhau, Sư Tử rất hoà đồng, nói khá to và dáng cao, to, và “nhiều thịt” hơn TY là cái chắc ). Nhà TY ko giàu nhưng cũng ko nghèo, lúc đến thăm nhìn thấy người cậu ấy đỏ ửng, trán nóng như lửa, lúc đó tôi nhận ra trong lòng tôi cũng đang nóng ran như lửa. Không ai nhận ra điều đó trừ BD, “ku” hiểu rõ tôi mà, chúng tôi than nhau ko phải ngày một ngày hai mà đã được 7 năm rồi, từ lúc 3 tuổi.
+Hình như, BD cũng ko còn muốn thích TY nữa. Tôi ko chắc cảm giác của mình lúc đó là gì nữa, nhưng bây h tôi hiểu được phần nào, 1 phần nào đó trong tôi thực sự rất thích TY, một phần là ngưỡng mộ, một phần nào đó tôi đã hiểu được sự chân thành và cái bản tính thích chọc ghẹo tôi tức điên lên của cậu. Nó ko phải lòng thù ghét, mà là tình bạn chân thật, có chăng là cách thể hiện hơi “ki quặc” mà thôi!

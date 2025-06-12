@@ -1,0 +1,18 @@
+---
+title: "Sư Tử - yêu và không yêu"
+date: 2025-06-12T11:47:50Z
+slug: su-tu-yeu-va-khong-yeu
+draft: false
+---
+
+## Sư Tử - yêu và không yêu
+
+## bagiaxulanh
+
+Sư Tử khi đang yêu​ 
+ 
+Chú Sư Tử mạnh mẽ là vậy nhưng vẫn có những mặt vô cùng yếu đuối. Do đặc điểm mạnh mẽ của mình, họ dễ dàng thu hút sự sùng bái và yêu mến của kẻ yếu. Sự kiêu ngạo của nội tâm khiến họ luôn bó tay chịu trận trước những lời nịnh hót và giả dối. Cá tính kịch tính hoá làm Sư Tử luôn đứng ở hai đầu mút đỉnh điểm: hoặc là quá đỗi tin tưởng người khác, hoặc là không tin tưởng một ai.​ 
+Thoạt nhìn bề ngoài, Sư Tử là hiện thân cho sự mạnh mẽ nhưng thực ​chất họ rất dễ bị tổn thương, bởi chỉ cần một vài lời dị nghị chê trách cũng đủ để trái tim họ chảy máu và rạn vỡ, đủ sức đánh gục sự kiêu ngạo ngút ngàn và khiến họ chuyển từ trạng thái rạng rỡ của mặt trời sang sấm rung chớp giật. Nếu người yêu của bạn sinh cung Sư Tử, bạn không bao giờ cần mua vé đến rạp chiếu phim. bởi chỉ cần chìm đắm trong tình yêu của Sư Tử, thì cuộc tình của hai bạn đã là một bộ phim đầy kịch tính.​ ​Sư Tử là người bạn, người tình trung thành, nhiệt tình và khẳng khái nhất. Họ có thể dốc tất cả những gì mình có vào thế giới tình cảm, đồng thời hy vọng đối phương cũng dùng hành động, thái độ như vậy hồi đáp lại. Tình yêu của họ là sự lãng mạn được kịch tính hóa, tuyệt đối không giống như tình cảm với những giai điệu ấm ấp theo kiểu trên hoa dưới nguyệt, ánh ly bóng nến của Kim Ngưu, Cự Giải hay Thiên Bình. Do Sư Tử luôn thôi thúc họ dùng sức mạnh mẽ, đôi khi mang hơi hướng hung hăng của giống đức để thu hút đối phương. Tương tự như vậy, đàn bà Sư Tử dùng bề ngoài và sức sống tràn trề của mình để lôi cuốn người khác phái. Trong tình yêu ,Sư Tử giống như ánh mặt trời rực rỡ, tỏa ánh sáng chói lọi khắp muôn nơi. Đối với người mình yêu, họ dùng phương thức nhiệt huyết của mình để bảo vệ, yêu thương và ủng hộ. Họ hy vọng người yêu luôn tôn sùng và sủng ái mình. khát khao nhìn thấy ánh mắt ghen tị của người khác khi nhìn thấy tình yêu và sự hạnh phúc của họ. Sư Tử mong muốn đối phương coi mình là sự lựa chọn đặc biệt và duy nhất, đồng thời dựa dẫm vào mình ở một mức độ nhất định. Nếu được như vậy, họ sẽ cảm thấy vô cùng tự hào. Vì Sư Tử là "vua", nên họ cho rằng quốc vương và hoàng hậu phải có được sự đãi ngộ tương xứng, Nhưng cũng vì luôn tự coi mình là trung tâm, nên trong lĩnh vực tình cảm,Sư Tử thiếu đường chân trời nhạy cảm, không giỏi trong việc lý giải, thông cảm với nhu cầu tình cảm của người yêu. Do quá độ chú trọng nhu cầu cá nhân mà coi nhẹ tình cảm của đối phương, nên đây cũng là nguyên nhân chủ yếu khiến họ thât bại trong tình yêu.​[k dám tách đoạn này luôn, đọc sao mà có cảm giác mình bị theo dõi rồi viết báo cáo vậy =.=!]​ ​ 
+ ​*Sư Tử khi chia tay:​ ​Nếu Sư Tử tự bản thân muốn kết thúc mối quan hệ, thì sự kiêu ngạo và lòng tự hào sẽ khiến họ khó mở lời trực tiếp với đối phương, mà nó chỉ có thể từ từ rút lui và giữ khoảng cách xa dần đối phương, im lặng, hoặc sử dụng phương thức cố tình tạo ra những hành động, hành vi đáng ghét khiến đối phương cảm thấy phản cảm mà từ bỏ. Nếu đối phương bất chấp tất cả, tình nguyện đối mặt với hiện thực, Sư Tử sẽ cương quyết rũ áo ra đi​ ​Nếu bị phản bội, nội tâm yếu mềm của chú Sư Tử kiêu ngạo sẽ chịu tổn thương to lớn và sâu sắc, nhưng trong lòng tự trọng không cho phép họ thỏa hiệp, cũng như thừa nhận thất bại trong tình cảm. Thông thường, họ sẽ nhanh chóng vượt qua giai đoạn này và tiến vào một mối quan hệ khác để che đậy vết thương lòng đang rỉ máu. Nhưng cho dù vậy thì nỗi đau trong sâu thẳm tâm hồn họ cũng phải mất một thời gian tương đối dài mới có thể trở lại như trạng thái thăng bằng và bình phục.​ 
+ 
+sưu tầm ​

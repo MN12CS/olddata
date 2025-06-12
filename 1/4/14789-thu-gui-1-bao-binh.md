@@ -1,0 +1,21 @@
+---
+title: "thư gửi 1 bảo bình"
+date: 2025-06-12T13:13:01Z
+slug: thu-gui-1-bao-binh
+draft: false
+---
+
+## thư gửi 1 bảo bình
+
+## moonlight
+
+Thân gửi Aquarius, my BFF
+   Nhớ lại hồi tôi gặp được bạn, có thể nói âu cũng là duyên số. Đó là ngày tôi thi đậu vào lớp chọn văn của mái trường THCS và quả thực, tôi bất ngờ vì điều này. Vì thực tình, tôi vốn không có ý định thi chuyên chọn gì đâu, nhưng phải chăng chính vòng quay số phận kia đã khéo sắp xếp cho tôi học lớp ấy, để tôi được gặp bạn. Và cũng không biết là hữu duyên hay vô tình mà trong 45 con người, tôi lại ngồi cùng bàn với bạn. Thế là như 1 điều hiển nhiên, tôi và bạn trở thành bạn bè. Không biết nên nói là may mắn hay xui xẻo, nhưng trong lớp, tôi có rất ít bạn. Điều đó chỉ càng khiến tôi trở nên thân thiết với bạn hơn. Còn bởi tôi nghĩ: Tôi và bạn, 2 con người trầm tính, mang chút lạnh lùng tưởng chừng như chung một tính cách. Nhưng con người là sinh vật cao cấp nhất trên hành tinh này, đâu có thể dễ đoán biết được như vậy phải không?
+   Sang năm lớp 7, tôi khám phá ra bạn ít nói nhưng rất sáng tạo, thông minh, ham tìm tòi và đổi mới. Cũng chính vì vậy, bạn có thêm nhiều bạn bè hơn trước. Tôi cũng không lấy gì làm ngạc nhiên, bởi kết bạn là tốt, có sao đâu?. Nhưng dường như, tình bạn giữa chúng ta không còn được như xưa nữa. Trớ trêu thay, cũng nhờ điều đó mà tôi biết được rằng bạn không như tôi nghĩ. Dường như cái gì của bạn điều liên quan đến chữ 'lạnh'. Sinh cuối mùa đông cùng khuôn mặt lạnh lùng, hành động lạnh lùng dứt khoát, suy nghĩ lí trí lạnh lùng. Ngay cả tên của bạn cũng lạnh nốt. Nói chung là tôi không sợ lạnh vì nó làm ta tỉnh táo. Nhưng quả thực, đôi khi bạn quá lạnh lùng hờ hững trước sự quan tâm chia sẻ của tôi với bạn và tôi cảm thấy rất buồn. Nhưng tôi luôn tự động viên bản thân rằng có thể, đó chỉ là vẻ ngoài của bạn thôi, chỉ cần tôi kiên trì, tôi sẽ hiểu được cá tính của bạn. Và một lần nữa tôi đã nhầm. Bạn như ngọn gió mùa đông bắc, càng cố gắng đuổi theo thì lại càng tuột ra khỏi tầm tay. Luôn luôn hiện hữu nhưng quá khó để nắm bắt. Không biết bao nhiêu lần, bạn đã khiến tôi tổn thương và cũng bấy nhiêu lần, tôi tha thứ cho bạn. Tôi hiểu là bạn không cố ý nên ngoài mặt làm ra vẻ bình thường nhưng rồi lại âm thầm đau khổ. Vì tôi trông cứng rắn mạnh mẽ thế thôi, nhưng quả thật rất nhạy cảm. Cũng chính tại vỏ bọc lạnh lùng cứng rắn đó của tôi càng kiến tôi chịu thêm nhiều đau khổ. Nhưng tôi vẫn cố gắng tiếp tục để gìn giữ tình bạn vốn đã mỏng manh. Tiếc rằng, 'chạy trời không khỏi nắng', cái gì đến thì nó sẽ phải đến.
+    Câu nói của bạn hôm ấy, tôi không thể nào quên. Nó như 1 giọi nước làm tràn ly. Đau đến xé lòng. Cứ giống như bị người mà mình tin tưởng nhất đẩy 1 cái xuống vực thẳm. Hụt hẫng. Bàng hoàng. Nhưng tôi không hề khóc. Phải, tôi không khóc. Tôi cười. Một nụ cười đau khổ đến tái tê. Có lẽ, tình bạn của chúng ta đã khiến tôi chịu nhiều ấm ức đến mức chai lì cả cảm xúc. Tôi không biết nên tự lừa dối mình bao lâu nữa. Chỉ trách mình trước đây đã  quá nhiệt thành tin tưởng vào tình bạn này khiến giờ đây càng thêm đau khổ. Tôi cũng không giận bạn, không trách bạn đôi khi vô tâm; đơn giản vì bạn mãi mãi là người bạn thân nhất của tôi...
+    Và nếu như tôi không gặp bạn, nếu tôi không chơi thân với bạn, nếu như bạn không sinh ra dưới chòm Aquarius và tôi ko thuộc chòm cancer thì có thể, mọi chuyện sẽ khác. Nhưng tất cả, chỉ là "nếu như"....
+ 
+                                                                                                                                                                                                                                                -Thân-
+                                                                                                            your friend                                                                                                                Cancer
+  ---------------------------------------
+p/s: thật ra, tình bạn này vẫn có thể hàn gắn, nhưng liệu tôi có nên làm như vậy không?

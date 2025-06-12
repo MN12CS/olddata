@@ -1,0 +1,53 @@
+---
+title: "Lẩu Song Ngư"
+date: 2025-06-12T14:32:41Z
+slug: lau-song-ngu
+draft: false
+---
+
+## Lẩu Song Ngư
+
+## bagiaxulanh
+
+HÃY COI SONG NGƯ LÀ MỘT NỒI LẨU
+TÔI SẼ CHO CÁC BẠN BIẾT NÓ NGON THẾ NÀO
+ 
+TỔNG QUAN:
+CÓ THỊT CÓ RAU,CÓ VUI CÓ BUỒN, 
+CÓ NÓNG CÓ LẠNH,KHI SÔI NỔI LÚC THU MÌNH VÀO GÓC TỐI
+ĐẦY MÀU SẮC.XANH ĐỎ TÍM VÀNG
+KHẢ NĂNG BẮT CHƯỚC RẤT CAO
+NHƯNG MỖI VỊ TRONG ĐÓ ĐỀU ĐẬM ĐÀ MÀ KHÔNG GẮT
+TRONG VEO,KHÔNG CÓ 1 CHÚT TẠP CHẤT
+ 
+NỒI LẨU BAN ĐẦU CHỈ CÓ VỊ NGỌT CỦA NƯỚC MÀ THÔI, TUYỆT NHIÊN KO CÓ VỊ GÌ KHÁC, NHƯNG NÓ SẼ THAY ĐỔI KHI BẠN BẮT ĐẦU THƯỞNG THỨC
+BẠN CHO VÀO BAO NHIÊU THÌ KHI NHẬN ĐƯỢC SẼ NỔI BẬT BẤY NHIÊU,NẾU BẠN CHO NHIỀU SA TẾ, HAY MƯỚP ĐẮNG,CÁI BẠN NHẬN ĐC LẠI LÀ TẤT CẢ NHỮNG GÌ BẠN ĐÃ CHO VÀO
+SONG NGƯ CHỈ TRẢ LẠI BẠN THEO LUẬT NHÂN QUẢ MÀ THÔI
+SAO KHI LÚC CHO VÀO BẠN KHÔNG NGHĨ KĨ ĐI
+LẨU CÓ MỘT ĐẶC TÍNH LÀ, ĂN CÀNG LÂU CÀNG NGỌT,NHƯ KHI TA QUAN TÂM TỚI SN, LÂU BAO NHIÊU,THÌ LÚC NHẬN ĐC SẼ NGỌT NGÀO BAO NHIÊU..(>.<)
+ĐIỀU ĐƠN GIẢN ĐÓ THÔI KHÔNG PHẢI AI CŨNG HIỂU (BUỒN)
+ 
+NGỌT:VUI
+BẢN CHẤT VUI VẺ HAY NÓI HAY CƯỜI, DỄ THƯƠNG ,DỄ MẾN, LÀM QUEN TỐT, GIÀ TRẺ ĐỀU THÍCH, NHƯNG NẾU LÂU QUÁ NG TA SẼ CẢM THẤY NHÀM CHÁN HAIZZZZ
+KHI MỚI TIẾP XÚC THÌ RẤT THÍCH NHƯNG CẢ THÈM CHÓNG CHÁN
+ 
+MẶN :CÁU KỈNH
+1 CHÚT THÔI, ĐỦ ĐỂ NG TA THẤY DỄ CHỊU, CÁ KHÔNG THÍCH LÀM ĐAU AI, DÙ CÓ KHÓ CHỊU NHƯNG NÓ VẪN CHO QUA,LÒNG VỊ THA CỦA NÓ NHƯ ĐẠI DƯƠNG VẬY
+ 
+CHUA"ĐANH ĐÁ
+CHO BẠN THẤY 1 CẢM GIÁC LẠNH SỐNG LƯNG KHI CON CÁ THI THOẢNG PHÁT BIỂU 1 SỐ CÂU KHỦNG BỐ GIANG HỒ,
+KHÔNG CÓ ÁC Ý ĐÂU
+ 
+NGẬY: NGÔN TỪ,VÀ VẺ MẶT
+DỄ THƯƠNG CHI BI ,KHÔNG AI CÓ THỂ ĐỌ ĐC VỚI SN, VỀ VẺ ĐẸP CHẾT NGƯỜI NÀY, LẴNG MẠN ,TÌNH CẢM NHƯ ĐẤT , MANG CHO NG TA 1 CẢM GIÁC HÀI HÒA, AN TOÀN CHO NG NÀO MUỐN DỰA VÀO
+ 
+CAY:NỔI GIẬN
+PHÁ BỎ MỌI CẢM GIÁC KHÁC, GIẢI PHÓNG TẤT CẢ MỌI THỨ, CHO CÁ CẢM GIÁC TỰ DO,NHƯNG COI CHỪNG GÂY TỔN THƯƠNG NG BÊN CẠNH ĐÓ
+MAY LÀM SAO CÁ KHÔNG CÓ CÁI MIỆNG CAY ĐỘC CỦA TY, NÊN KHÓ LÀM CHO NG TA TỔN THƯƠNG,
+KHI GIẬN VỪA PHẢI SN CŨNG TẠO RA SỰ HẤP DẪN (LẠ THẾ)
+ 
+ĐẮNG: ÍT NG THÍCH THẾ NÊN CON CÁ CHUI VÀO 1 GÓC VÀ TỰ GẶM NHẤM 1 MÌNH
+ 
+CHO DÙ CÓ CHO BAO NHIÊU THỨ VÀO THÌ BẠN CŨNG KHÔNG BAO GIỜ BIẾT NO, CÀNG THÊM VÀO CÀNG ĐẬM ĐÀ, LÒNG DẠ CON CÁ KHÔNG CÓ GÌ CẢ, NÓ KHÔNG CHỨA THỨ GÌ QUÁ LÂU ĐỂ THÊM DẰN VẶT, KHÔNG TOAN TÍNH ĐỂ ĐC THANH THẢN,KHÔNG BAO GIỜ GIỮ 1 THỨ CHO RIÊNG MÌNH, LUÔN CHIA SẺ,VÀ KHI TIỆC TÀN NÓ GIỮ LẠI TẤT CẢ TẠP CHẤT CỦA CUỘC ĐỜI VÀO ĐÁY NỒI
+ 
+CÁ VOI - Hội những người cung Song Ngư

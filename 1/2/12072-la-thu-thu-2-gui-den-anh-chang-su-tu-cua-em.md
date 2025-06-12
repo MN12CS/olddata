@@ -1,0 +1,15 @@
+---
+title: "lá thư thứ 2 gửi đến anh, chàng Sư Tử của em"
+date: 2025-06-12T12:12:52Z
+slug: la-thu-thu-2-gui-den-anh-chang-su-tu-cua-em
+draft: false
+---
+
+## lá thư thứ 2 gửi đến anh, chàng Sư Tử của em
+
+## msgemini
+
+Gửi anh.
+Anh ơi! Mình quen nhau đã là…. 1 năm rồi nhỉ? (theo như anh nói bữa trước áh^^) Nhưng mà tính đến thời điểm này thì chỉ mới là 3 tháng tròn kể từ khi em bắt đầu “say nắng”, và cũng chỉ mới 3 tháng tròn từ khi anh chính thức ngỏ lời với em. Ba tháng tuy ngắn nhưng cũng là thời gian ngọt ngào và hạnh phúc nhất em từng có, là khoảng thời gian mà em được nếm đủ đắng cay ngọt bùi, buồn vui giờn hận của cái mà người ta gọi là tình yêu, được khám phá một người con trai “quái lạ” và không giống bất cứ người nào em từng gặp. Vì điều đó mà hôm nay em quyết định viết bức thư này, vì em nghĩ, đã yêu anh thì nên nói hết suy nghĩ của em cho anh biết, nhưng anh thông cảm cho một con bé tự ái cao ngất trời không thể mở miệng nói trước mặt anh mà chỉ còn cách gửi đến anh vài dòng viết tay của em.
+Em ghét anh! Cái tên cứng đầu, bướng bỉnh, cứ thích làm theo ý mình mà chẳng nghĩ đến cảm nhận của ai cả><. Từ trước đến giờ chưa ai bắt em phải đợi mỗi khi đến lần hẹn, chưa ai dám nói thẳng những tật xấu của em, chưa ai nũng nịu để em phải yêu chiều (toàn em nũng người ta><) hay ngoan cố bảo vệ chính kiến của mình như anh, cũng chưa ai, chưa một ai, khiến em bị tổn thương nhiều và cảm thấy như….(cho em nói thẳng nhé) cái tôi của em bị giẫm đạp. Đến khi anh xuất hiện. Em những tưởng sẽ ghét anh nhưng lại không thể, đáng ra em nên ghét anh, nhưng anh biết không? Mỗi lần chờ đợi lại khiến em hiểu ra khoảng thời gian mình bên nhau quý giá đến mức nào, những lời nói thật lại giúp em tỉnh ngộ, thì ra em còn khờ quá, bấy lâu em chỉ sống trong giả dối mà không hề biết, mấy khi anh nũng đã cho em cơ hội yêu thương chiều chuộng anh, đã đặt em vào đúng vị trí một người bạn gái, cho em cơ hội cho đi và nhận lại. Và những lần vượt qua tổn thương em đã trưởng thành hơn rất nhiều, cái tôi có bị đập bẹp lại xuất hiện một cái khác vững vàng và lập trường hơn. Những giọt nước mắt tuôn ra em lại suy nghĩ và quyết định gạt bỏ tất cả, thôi thì đành chấp nhận và bước đi tiếp. Vì anh biết không? Em đau khổ, nhưng lựa chọn giữa yêu thương và ghét bỏ thì em vẫn chọn ý kiến đầu. Vẫn muốn đi cùng anh đến cuối con đường nếu như anh vẫn chấp nhận.
+Và kết thư em muốn anh biết thêm một điều. Chuyện của mình vẫn như xưa anh àh, hoặc ít nhất phía bên em cảm thấy như thế, em hơi xa cách vì cần thời gian để suy nghĩ nhiều chuyện và nói cho anh nghe. Bây giờ thì em đã thông suốt, em vẫn yêu anh, yêu nhiều và có lẽ thậm chí nhiều hơn cả ngày trước. Đến mức chỉ cần nghĩ đến là lòng em nhói đau vì tự hào, vì hạnh phúc, vì quá hạnh phúc mà bỗng nhiên đâm ra lo sợ vớ vẩn. Những lời em muốn nói có lẽ nên dừng ở đây thôi! Chúc anh thật vui và cố gắng lên anh nhé

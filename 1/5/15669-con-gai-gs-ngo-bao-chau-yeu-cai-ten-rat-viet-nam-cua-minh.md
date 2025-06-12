@@ -1,0 +1,20 @@
+---
+title: "Con gái GS. Ngô Bảo Châu: \"Yêu cái tên rất Việt Nam của mình\""
+date: 2025-06-12T13:30:09Z
+slug: con-gai-gs-ngo-bao-chau-yeu-cai-ten-rat-viet-nam-cua-minh
+draft: false
+---
+
+## Con gái GS. Ngô Bảo Châu: "Yêu cái tên rất Việt Nam của mình"
+
+## teddyhangvu
+
+Mọi người hay gọi là Thanh Hiên, nhưng cô bạn 17 tuổi đã tiết lộ tên thật của mình là "Thanh Hiền". Bạn ấy yêu cái tên "rất Việt Nam" này.Trong buổi triển lãm Chase Hanoi ngày hôm qua (18/7), con gái đầu của Giáo sư Ngô Bảo Châu đã đến tham dự với tư cách khách mời. Cô bạn ngay lập tức trở thành tâm điểm chú ý khi xuất hiện ở buổi triển lãm. Bọn tớ đã túm nhanh Thanh Hiên để trò chuyện và khám phá được rất nhiều điều hay ho ở cô bạn này.Profile:
+Ngô Thanh Hiên
+Sinh ngày 2/4/1995 tại Pháp
+Hiện bạn ấy đang là học sinh năm cuối ở trường Princeton High School, Princeton, New Jersey, MỹThanh Hiên cùng ông bố "nổi tiếng" - Giáo sư Ngô Bảo ChâuChào Hiên, bạn có thường về Việt Nam không? Chuyến về thăm nhà lần này Hiên có cảm xúc và những kỷ niệm gì?Hiên rất hay trở lại việt nam vào mùa hè để thăm từng người một trong gia đình mình. Nhưng đó chỉ là những khoảng thời gian ngắn ngủi, thế nên Hiên trân trọng đến từng phút giây mà mình có thể dành ra để quây quần bên người thân.Việc mình gửi ảnh tham gia Chase Hanoi cũng là một kỷ niệm khó quên. Chase Hanoi giống như nhiều hoạt động ngoại khóa khác ở bên Mỹ nhưng lại rất đặc biệt bởi nó đem lại cho mình cái nhìn sâu sắc hơn về Hà Nội, về Việt Nam.Về cuộc sống của teen, Hiên thấy cuộc sống teen Việt và teen Mỹ có khác biệt gì không ?Theo cách suy nghĩ của Hiên, trong thế giới này mọi teen đều giống nhau. Chúng ta cùng đi học, cùng thực hiện ước vọng vào đại học, cùng thích được dành thời gian bên bạn bè. Mỗi ngày của cuộc sống đều luôn là những điều mới mẻ, chúng ta khám phá, chúng ta vượt qua. Điều duy nhất mà Hiên thấy khác biệt giữa teen hai nước, đấy là lối sống và hoàn cảnh sống.Ví dụ như một cậu bé tuổi teen của Mỹ sẽ ham mê bóng bầu dục hay bóng chày, ngày ngày đi xe ô tô đi học đi chơi, còn nếu là teen Việt thì cậu ấy sẽ chọn bóng đá hay bóng rổ, chạy những chiếc xe máy khắp các con đường. Cuộc sống của teen được hình thành vào thời điểm mà chúng ta trở thành những người lớn trong tương lai, và tất nhiên, điều ấy rất thú vị.Việt Nam có điều gì làm Hiên cảm thấy thích thú nhất ?Việt Nam là mảnh đất mẹ của Hiên, cho nên, Hiên về Việt Nam cảm thấy như một vòng tay ấm áp của gia đình. Du lịch qua nhiều nơi, học hỏi từ nhiều nền văn hóa, Hiên nhận ra rằng Việt Nam chính là nền văn hóa để Hiên nâng cao lối sống của mình.Là con gái một Giáo sư Toán học nổi tiếng, Hiên có cảm xúc thế nào? Suy nghĩ của Hiên thế nào khi bố của mình - Giáo sư Ngô Bảo Châu đạt giải Fields danh giá?Sau khi bố mình được biết đến như một Giáo sư hiểu biết, cả nhà vẫn sống như ngày xưa, giống như một gia đình bình thường. Ngay cả khi ông đạt giải Fields cũng vậy, đối với Hiên và em gái, bố vẫn là bố thôi!Bố có hoàn hảo trong mắt Hiên không?Người hoàn hảo là một người có thể nói là không tồn tại. Chúng ta đều có những mức độ riêng của mình, bố cũng vậy, bố không thể hoàn hảo, bố cũng có những sai sót của bố. Nhưng ngoài những sai sót ấy, bố vẫn khiến bọn mình yêu rất nhiều.
+
+Bạn nghĩ như thế nào về môn toán, hẳn là bạn rất giỏi ở môn này?Đối với mình, Toán là một trong những môn học mình rất thích. Toán không khó nhưng thực sự là một thử thách nếu muốn học tốt nó. Khi giải một bài toán khó, mình thích cái cảm giác "xoay xở" với nó và tìm ra được đáp án.Cái tên Thanh Hiên của bạn nghe rất hay và lạ, bạn có thể chia sẻ về ý nghĩa cái tên của mình không?Mọi người thường gọi mình là Thanh Hiên, nhưng thực sự tên của mình là Thanh Hiền và mình rất vui vì cái tên "rất Việt Nam" này của mình. Có thể đây là một cái tên được đặt khá nhiều ở Việt Nam nhưng mình rất thích ý nghĩa của nó, rất "con gái" và mình cũng thích cách phát âm của cái tên này, nó làm cho tên mình đặc biệt. Chính vì thế mà mình không muốn đặt một cái tên tiếng anh khi ở Pháp, rồi cả khi đến Mỹ cũng thế.
+
+
+ Mlalan - Theo TTVN

@@ -1,0 +1,27 @@
+---
+title: "Tình Đầu"
+date: 2025-06-12T14:33:06Z
+slug: tinh-dau
+draft: false
+---
+
+## Tình Đầu
+
+## teddyhangvu
+
+“ Cái gì đã tan vỡ là tan vỡ… Và tôi thà nhớ lại khi nó đẹp nhất, còn hơn là chắp vá để rồi suốt đời cứ phải thấy những vết nứt của nó“
+(Cuốn theo chiều gió)Đàn bà thường sống bằng kỉ niệm, ký ức, còn đàn ông lại sống bằng những gì anh ta đã quên lãng, đàn bà yêu bằng tai, đàn ông yêu bằng mắt.
+
+Tôi thường cho rằng đàn ông dễ chán, dễ thay đổi và mau quên, có lẽ vì thế tôi không tin vào tình yêu, tình yêu chân thành. Người ta nói rằng, mối tình đầu là mối tình đẹp nhất của đời người, khi chúng ta mang đến cho nhau những rung động đầu tiên, thô sơ và mộc mạc, khi cái nắm tay còn khiến trái tim run lên từng nhịp rõ rệt, khi nụ hôn đầu còn cảm nhận được hơi thở dồn dập xen lẫn lo lắng khôn xiết. Khi người ta không chỉ yêu nhau mà còn yêu cả không gian mà người ta sống, cả khung cảnh tình yêu mà người ta dựng lên, khi mà người ta nỗ lực hoàn thiện nhau từng ngày, từng giờ để trở nên đẹp đẽ, trước và trong mắt nhau. Nhưng người ta cũng nói tình đầu dễ vỡ, dễ tan, nhưng lại để lại vết thương sâu sắc trong lòng, khiến trái tim mỗi khi gợi lại lại đau nhói, như trở trời, gió mùa, kỉ niệm ùa về, lại khiến con người đổ bệnh vì ưu tư. Mối tình đầu của tôi trôi đi nhẹ nhàng và êm ái, tổn thương không quá sâu đậm, hoặc họa chăng đó là tôi nghĩ vậy, cái gì đã qua, cái gì đã mất chẳng thể tìm lại, chẳng thể lôi lại, chỉ còn lại là hoài niệm, kí ức, nằm lòng, và rồi trở thành thói quen đến mức một ngày nào đó, bỗng nhiên nhận ra, hóa ra bao lâu nay, nó vẫn nguyên vẹn, ở nơi đó mà tôi đâu có hay. Mối tình đầu của tôi như một đêm hè êm dịu, sau những gì gắt gỏng, đổ lửa, làm tôi say sưa, say sưa, ru êm tôi vào giấc mộng.
+“Love me tender, love me sweet
+Never let me go
+You have made my life completed
+And i love you so”
+Và rồi tôi lại yêu, lại quên như quy luật muôn thuở của cuộc sống, liệu có ai có thể ngừng yêu trong đời, dù có một trái tim tan vỡ tôi vẫn cứ yêu, dù là trái tim đã đổi thay, tình yêu mang hương vị khác, tôi vẫn cứ yêu, dù dự cảm một sự chia ly trước mắt, tôi vẫn cứ yêu, như một cách để hoàn thiện cuộc sống. Với tôi tình yêu thật đẹp và hoang hoải, tình yêu là một thứ cảm xúc, người ta sống không thể thiếu cảm xúc mà tình yêu là thứ xúc cảm mãnh liệt nhất. Tôi yêu những gì mãnh liệt và nồng nàn,  những sắc vị ấy khiến cuộc sống thêm cuồng nhiệt và say mê. Phụ nữ khi yêu thường lưu giữ nhiều cảm xúc, đã yêu là yêu hết mình từng phút giây, đã ghen là ghen tuyệt đối và vô độ. Có lẽ vì thế phụ nữ luôn là phái yếu, dù họ mạnh mẽ và vững vàng đến bao nhiêu, họ vẫn luôn dễ dàng bị tình yêu quật ngã, vì chính những nông nổi, những quay cuồng của cảm xúc đưa vào ngõ cụt. Họ yêu, sai lầm, rồi lại yêu, rồi lại sai lầm, nhưng không khiến họ dừng lại, tình yêu là thứ thuốc gây nghiện khó bỏ của phụ nữ, đúng ra là hoàn toàn không thể bỏ được. Tôi vẫn thường gọi người tôi yêu là đồ tồi, dù vòng tay vẫn ôm anh thật chặt, tôi vẫn khóc ròng hàng đêm dù trước mặt anh vẫn hạnh phúc và mạnh mẽ tưởng chừng không thể gì quật ngã, tôi vẫn tỏ ra bản lĩnh và độc lập, bất cần và bướng bỉnh dù trái tim cần anh đến tha thiết, không ngượng ngập. Và rồi anh lại xa tôi, rất xa, và rất lâu.
+“Strumming my pain with his fingers,
+Singing my life with his words,
+Killing me softly with his song,
+Killing me softly with his song….”
+Thời gian là liều thuốc cho tình yêu, tình yêu thử thách bằng thời gian, sống bằng thời gian, và chết đi cũng bằng thời gian, với mỗi cuộc tình trôi qua tôi lại có một diện mạo khác nhau, có khi là ngỗ ngược của một con bé bất cần, có khi dịu dàng và đầy nữ tính, nhưng với tôi, tất cả đều là mối tình đầu, tất cả đều là những cảm xúc trong veo và nguyên sơ, có khi nhìn lại khi rời xa một người, cái viễn cảnh trái tim nứt từng vết, từng vết rồi vỡ tan thành từng mảnh vụn khiến tôi sợ hãi, sợ phải đi nhặt nhạnh, từng nơi, từng nơi, rất xa và rất nhiều, rất lâu, khiến tôi muốn tất cả đều là tình đầu, nhẹ nhàng và thanh thản rời đi khiến tôi không hề hay biết, chỉ biết cảm giác nhói đau khi nghĩ về, rồi như sau vị đắng là vị ngọt của một tách cà phê đen, cảm giác lan tỏa chỉ còn là những cảm xúc nghuyên sơ của buổi ban đầu. Mối tình đầu của tôi đã dạy tôi cách yêu thương và cách chia xa, chia xa cũng là vì yêu, yêu thương cũng là vì yêu. Chẳng ai có thể đánh giá tình đầu đẹp hay tình cuối đẹp, đẹp nhất là cảm xúc thăng hoa trong tình yêu. Có lẽ, tôi đã nắm bắt được vì thế, tôi đang yêu anh rất nhiều, rất đậm sâu và rất dài.
+Tôi cứ nghĩ rằng đàn ông dễ thay đổi hóa ra là họ dễ thích ứng, tôi nghĩ rằng đàn ông dễ quên, hóa ra họ gim kỉ niệm vào một góc, lôi nó ra ngắm nghía và vuốt ve hơn là hoài niệm, tôi nghĩ rằng đàn ông nhanh chán, hóa ra họ dễ hài lòng, là đàn ông biết cách yêu hay phụ nữ dễ mất phương hướng? Tôi chẳng biết, có lẽ nếu biết, nếu thỏa mãn được những câu hỏi, tôi sẽ chẳng thấy tình yêu đẹp, chẳng háo hức vì tình yêu, và nếu biết, có lẽ tình yêu sẽ chẳng còn mong manh, dễ vỡ hay trường tồn, bất tử, Có chăng là cách con người nhìn nhận tình yêu, như ở góc này là mảng tối, góc kia là mảng sáng, chúng ta phải cho bản thân cơ hội, nếu tình đầu dễ tan và dễ vỡ, dễ tổn thương, khiến ta ngừng yêu và ngừng cho bản thân cơ hội, ta chẳng thể hoàn thiện mình mà chẳng phải đó là mục đích của tình yêu, là hoàn thiện mình để hòa hợp với một nửa còn lại. Cứ gõ cửa sẽ mở, cứ đi ắt sẽ tìm được đường, cứ yêu ắt hẳn người hòa hợp sẽ đến, đừng sợ chia tay, đừng lo đổ vỡ, đừng bận lòng vì những tổn thương, vì yêu thương cũng là cách để chúng ta trưởng thành.
+Tiểu Xu

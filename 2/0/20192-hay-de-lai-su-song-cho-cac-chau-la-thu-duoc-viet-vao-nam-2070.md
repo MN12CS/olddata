@@ -1,0 +1,34 @@
+---
+title: "Hãy để lại sự sống cho các cháu!\". (Lá thư được viết vào năm 2070)"
+date: 2025-06-12T15:16:44Z
+slug: hay-de-lai-su-song-cho-cac-chau-la-thu-duoc-viet-vao-nam-2070
+draft: false
+---
+
+## Hãy để lại sự sống cho các cháu!". (Lá thư được viết vào năm 2070)
+
+## petran97
+
+Lifein the year 2070 (Cuộc sống năm 2070) là một trong những bài viết chưa được công bố của cựu tổng thống Ấn Độ - tiến sĩ A. P. J. Abdul Kalam. Nó là một cuộc đối thoại nhân bản giữa các thế hệ về giá trị của môi trường tự nhiên đối với sự tồn vong của loài người.
+"Hiện chúng tôi đang sống vào năm 2070. Tôi vừa mừng sinh nhật lần thứ 50, thế mà trông như ông cụ 85 tuổi. Tôi bị đau thận rất nặng vì uốngquá ít nước. Tôi nghĩ mình sẽ không còn sống được bao lâu nữa. Hiện giờ tôi đã là người lớn tuổi nhất ở đây.
+Tôi vẫn còn nhớ về khoảngthời gian khi mới lên 5 tuổi, mọi thứ đều rất khác với hiện nay. Lúc ấy có nhiều cây trong công viên, nhiều căn nhà trong những khu vườn tuyệt đẹp, và tôi có thể tắm thật lâu dưới vòi sen cả giờ đồng hồ. Vậy mà giờ đây, chúng tôi chỉ có thể vệ sinh thân thể bằng những chiếc khăn ẩm thấm dầu khoáng dùng một lần rồi bỏ.
+Trước đây phụ nữ thường tự hào về mái tóc mềm mại và suôn thẳng của mình. Thế mà bây giờ, mọi cô gái đều phải cạo trọc đầu để giữ vệ sinh khi không còn nước gội rửa. Trước đây cha tôi từng xịt rửa xe hơi bằng những luồng nước ào ạt tuôn ra từ chiếc ống dẫn, nay thì lũ con của tôi khó mà tin nổi rằng có một thời người ta đã dùng nước vào những việc kinh khủng như thế.
+Thời ấy, tôi còn nhớ nhiều nơi đã treo tấm bảng cảnh cáo: "Đừng lãng phí nước". Nhưng chẳng ai để ý cả. Mọi người cứ nghĩ rằng nước không bao giờ cạn.
+Bây giờ phần lớn các con sông, đầm lầy, suối nước, cũng như nguồn nước ngầmđều bị ô nhiễm không thể hồi phục. Số còn lại khô cạn hoàn toàn.
+Khu vực xung quanh nơi chúng tôi ở đã biến thành sa mạc nóng bỏng bát ngát.Các bệnh viêm nhiễm đường tiêu hóa, ung thư da và chứng rối loạn đường tiểu đang trở thành nguyên nhân chính gây chết người.
+Nhiều khu công nghiệp bị tê liệt và tỉ lệ mất việc tăng cao chưa từng có. Trong khi đó, các nhà máy lọc nước muối lại trở thành nơi làm việc chính của mọi người. Thay vì trả lương bằng tiền, họ đã dùng nước để thay thế. Điều đáng sợ nhất là có rất nhiều trường hợp bị giết để cướp nước uống nơi các con đường vắng vẻ ở ngoại ô thành phố. Tất cả thức ăn mà chúng tôi dùng hằng ngày đều được tổng hợp bằng hóa chất.
+Trước đây các bác sĩ thường khuyên người lớn nên uống tám ly nước mỗi ngày. Giờ tôi chỉ được phép uống nửa ly thôi.
+Vì không thể giặt quần áo được chúng tôi đã vứt chúng sau vài lần mặc, vànhư thế làm tăng nhanh chóng số lượng rác thải ra môi trường bên ngoài.Chúng tôi phải sử dụng lại loại hố xí tự hoại như người ta đã dùng thờiTrung cổ, chỉ đơn giản vì hệ thống xử lý chất thải không thể hoạt động được do thiếu nước.
+Mọi người trông như những bóng ma: thân thể họ lờ đờ vì yếu đuối, nứt nẻ vì thiếu nước trầm trọng và bị lở loét vì ung thư da do bầu khí quyển không còn khả năng ngăn chặn tia tử ngoại khi tầng ozone bị phá hủy.
+Vì lớp da bị khô nứt, con gái tôi mới 20 tuổi đã trông giống như một bà già 40 tuổi. Các nhà khoa học đã tìm mọi cách để nghiên cứu và khám phá nhưng vẫn chưa đạt được bất cứ kết quả khả quan nào. Chúng tôi không thể chế tạo ra nước. Hiện tượng cây cỏ chết khô làm giảm lượng oxy trong không khí, khiến chỉ số thông minh của các thế hệ loài người sinh ra kế tiếp bị suy sụp nhanh chóng. Cấu trúc tinh trùng của nhiều người đàn ông bị biến thể... gây nhiều hiện tượng khiếm khuyết, đột biến và dị tật ở trẻ sơ sinh.
+Các chính phủ thậm chí còn đánh thuế trên mỗi hơi thở của công dân mình:người lớn chúng tôi chỉ được phép thở 137m3 không khí/ngày (nghĩa làgần bằng 31.102 gallon không khí). Những người nào không thể đóng thuế sẽ bị trục xuất ra khỏi khu vực "thoáng khí", nơi có không khí dễ thở được cung cấp nhờ những lá phổi máy nhân tạo khổng lồ chạy bằng năng lượng mặt trời. Tuy vậy, lượng không khí ở những "khu vực thoáng khí" cũng chẳng trong lành gì, nhưng ít nhất là chúng tôi vẫn còn có thể hít vào thở ra được. Giờ đây, tuổi thọ bình quân của con người là 35 tuổi.
+Một số quốc gia còn bảo tồn và lưu giữ được một ít các hòn đảo có cây xanh và suối nước ở trên đó. Và họ bảo vệ khu vực này rất chặt chẽ với lực lượng quân đội trangbị hùng hậu. Nước trở thành một thứ hàng xa xỉ khó kiếm được, quí hơn cả kho báu và nhiều khi có giá cao hơn cả vàng hoặc kim cương.
+Dĩ nhiên với một tình trạng như thế, hầu hết cây cối đều chết khô vì thiếu mưa. Và cứ mỗi lần trời mưa thì nước mưa có chứa hàm lượng axit rất cao gây gỉ sét và tàn phá nhà cửa của chúng tôi. Chúng tôi không còn phân biệt được mùa hè với mùa đông. Những dấu hiệu biến đổi khí hậu do hiệu ứng nhà kính và các hoạt động làm ô nhiễm môi trường của con người mà trong thế kỷ 20 chúng tôi đã từng phớt lờ, giờ đây ngày càng nghiêm trọng. Chúng tôi đã được cảnh báo về việc phải bảo vệ môi trường, thế mà chẳng ai chịu khó lắng nghe.
+Khi con gái tôi nằng nặc đòi bố kể chuyện về thời còn bé thơ của bố nó, tôi đã mô tả cho cháu nghe về vẻ đẹp của những khu rừng. Tôi mơ màng kể về những cơn mưa đầu mùa ướt đẫm, về những bông hoa nở rộ, về cảm giác dễ chịu khi được tắm mát, về những con cá quẫy nước dưới dòng sông, về những vùng hồ bát ngát xanh trong, và về cái thời mà tôi có thể uống bao nhiêu nước tùy thích. Tôi kể cháu nghe con người lúc ấy thật khỏe mạnh biết bao.
+Con bé chợt gọi làm tôi tỉnh giấc mơ: "Bố ơi! Sao chúng ta không còn nước nữa?".
+Tôi chợt cảm thấy cổ họng khô khốc... Tôi chẳng còn gì để biện minh cho mặc cảm tội lỗi của mình vì tôi thuộc về một thế hệ đã hoàn thành công việc hủy hoại môi trường của chúng tôi, chỉ vì xem thường các cảnh báo ấy... Rất nhiều người đã có thái độ như thế!
+Tôi thuộc về thế hệ loài người cuối cùng đã có thể cứu vớt hành tinh này,nhưng đã chọn cách thờ ơ và không hành động. Giờ đây, con cái chúng tôiphải trả giá quá đắt. Thành thật mà nói, tôi nhận ra rằng không bao lâu nữa Trái đất sẽ không còn là nơi thích hợp cho bất cứ sự sống nào nữa.Đó là vì những tác động hủy hoại môi trường của con người đã vượt quámức không thể cứu vãn được nữa.
+Ôi,tôi ước gì có thể quay trở lại quá khứ và giúp nhân loại hiểu được điều này... khi mà người ta vẫn còn kịp làm một điều gì đó để cứu lấy hành tinh này!
+Hãy gửi lá thư này cho tất cả mọi người bạn gặp, và hãy bắt tay vào việc cảnh báo, dù là nhỏ bé, về một ý thức toàn cầu bảo vệ nguồn nước sạch. Đây không phải là một trò đùa mà đó đã là định mệnh của chúng ta. Hãy làm vì con cái bạn dù bây giờ bạn chưa có con, thì saunày bạn sẽ có... Đừng để lại di sản là một hỏa ngục... Hãy để lại sự sống cho các cháu!".
+ 
+p/s : Suy nghĩ của bạn khi đọc xong nó ?

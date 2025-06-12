@@ -1,0 +1,44 @@
+---
+title: "Thiên Yết cần được lắng nghe"
+date: 2025-06-12T13:07:18Z
+slug: thien-yet-can-duoc-lang-nghe
+draft: false
+---
+
+## Thiên Yết cần được lắng nghe
+
+## Libra_tieucancan
+
+Hội những người thuộc cung
+Bọ Cạp (Thần Nông, Thiên Yết)
+- Scorpion
+Các bạn cứ than phiển rằng Thiên
+yết chẳng chia sẻ gì cả........
+.
+Nhưng mà hãy coi lại xem có ai
+chịu nghe Thiên Yết nói từ đầu
+đến cuối chứ?
+.
+.
+Thiên Yết vốn không giỏi về việc
+chia sẻ.....
+Có lẽ câu chuyện của họ không
+hấp dẫn và cũng chẳng hay......
+Họ tự biết vậy....
+Nhưng vì bạn là người họ quan
+tâm, bạn muốn họ chia sẻ.... họ đã
+làm theo lời bạn.....
+Nhưng họ sẽ ngừng ngay lập tức
+khi thấy bạn có vẻ không nghe
+nữa.........
+Và khi ấy, bạn đã (vô tình) làm
+tổn thương họ........
+Rất SÂU SẮC.......................
+.
+Chẳng lẽ các bạn đã quá quen với
+một Thiên Yết chỉ lắng nghe?...
+.
+Mà quên mất rằng Thiên Yết cũng
+cần một người có thể lắng nghe
+họ.....
++Mèo+

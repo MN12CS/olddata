@@ -1,0 +1,12 @@
+---
+title: "Bạn có hài lòng với cuộc sống của mình không?"
+date: 2025-06-12T11:50:33Z
+slug: ban-co-hai-long-voi-cuoc-song-cua-minh-khong
+draft: false
+---
+
+## Bạn có hài lòng với cuộc sống của mình không?
+
+## teddyhangvu
+
+Bạn giàu hay nghèo, bạn xấu xí hay xinh đẹp, bạn là một vĩ nhân hay chỉ là một người nông dân… tất cả đều không quan trọng.Trong tâm trạng mệt mỏi chán chường, một cô gái than thở với cậu bạn mới quen:- Tớ mệt mỏi với cuộc sống này quá cậu à. Giá như tớ không tồn tại trên đời này, giá như tớ có thể ra đi ngay trong giây phút này, sang thế giới bên kia thì tốt biết mấy.- Tại sao lại phải sang thế giới bên kia? Sang thế giới bên kia thì được cái gì? Cứ sống như thế này có phải tốt hơn không. Cuộc đời còn đẹp lắm mà. - Với nụ cười luôn nở trên môi và cái nhìn ấm áp, cậu bạn quay sang cô gái.- Cậu có ở trong hoàn cảnh của tôi đâu, cậu có phải chịu nhiều áp lực như tôi đâu mà cậu biết! Cậu có nhiều bạn bè, cậu được sinh ra trong một gia đình giàu có, cậu được ba mẹ chiều chuông. Cậu sống sung sướng quen rồi nên cậu đâu hiểu được nỗi khổ của người khác. - Cô gái gần như gắt lên.Cậu bạn mỉm cười, nhẹ nhàng đáp lại: - Tớ cũng như cậu, chẳng qua, cách suy nghĩ, nhìn nhận cuộc sống của chúng ta khác nhau mà thôi.2 tuần sau, cô gái nhận được tin dữ, cậu bạn của cô đã qua đời vì một căn bệnh hiểm nghèo. Cô gái lặng người, những giọt nước cứ lăn dài trên má. Giờ cô đã hiểu vì sao bạn cô lúc nào cũng sống một cách thoải mái, vô tư, yêu đời. Lúc nào cũng hết lòng giúp đỡ người xung quanh và chẳng bao giờ than thở bất cứ điều gì. Cậu ấy không tiết lộ cho ai biết về căn bệnh của mình, cũng không than vãn, không đổ lỗi cho số phận trớ trêu. Cậu chỉ biết sống hết mình cho đến giây phút cuối cùng.Khi thời gian tồn tại không còn nhiều, cái chết cận kề, con người ta mới biết quý trọng và tận hưởng những giá trị của cuộc sống. Mỗi người chỉ được sống một lần, hãy sống tốt để đến khi nhắm mắt xuôi tay, bạn không phải hối hận.Bạn giàu hay nghèo, bạn xấu xí hay xinh đẹp, bạn là một vĩ nhân hay chỉ là một người nông dân,… tất cả đều không quan trọng. Điều mà bạn cần quan tâm là liệu bạn có cảm thấy vui vẻ, hạnh phúc và hài lòng với cuộc sống hiện tại của mình hay không.Vinrose (ST) - Theo TTVN

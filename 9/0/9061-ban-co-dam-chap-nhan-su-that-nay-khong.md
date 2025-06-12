@@ -1,0 +1,23 @@
+---
+title: "Bạn có dám chấp nhận sự thật này không ?"
+date: 2025-06-12T11:30:29Z
+slug: ban-co-dam-chap-nhan-su-that-nay-khong
+draft: false
+---
+
+## Bạn có dám chấp nhận sự thật này không ?
+
+## Thor1201
+
+[h=6]♥ Nếu ai đó nói với bạn :
+ • Yên tâm đi, bề ngoài không quan trọng...
+ • Thì hãy tin là người ấy đang nói dối bạn đấy...
+ ♥ Vì bây giờ :
+ • Phải vượt qua tầm nhìn mới đến được trái tim...
+ • Tin tôi đi, vì chắc bạn cũng thế thôi...
+ • Khi bạn nhìn 1 người nào đó...
+ • Bạn cũng chỉ nhìn mặt trước rồi mới tiếp xúc...
+ P/s: Sự thật thì thường khó chấp nhận...
+ Nhưng đó vẫn là sự thật, bạn biết - Nó Đúng![/h]
+from FB 
+[h=6]CẤM Cười-Cấm Nghĩ BẬY[/h]

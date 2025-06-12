@@ -1,0 +1,12 @@
+---
+title: "CHẲNG LẼ TÔI ĐÃ YÊU SAI NGƯỜI"
+date: 2025-06-12T14:08:31Z
+slug: chang-le-toi-da-yeu-sai-nguoi
+draft: false
+---
+
+## CHẲNG LẼ TÔI ĐÃ YÊU SAI NGƯỜI
+
+## rhythm
+
+Tôi và e tình cờ quen nhau trên vitalk,sau đó tôi và e gặp nhau rồi đi chơi nhiều lần.E biết là tồi đã thương e nhưng e nói rằng:"E không thể chấp nhận tình cảm của a vì trái tim e không thể yêu người nào nữa".E đã kể cho tôi biết ngày trước e cũng đã từng yêu nhưng đă chia tay và việc đó làm e rất buồn.Tôi rất thương e hơn cả bản thân tôi.Tôi muốn mang lại tình yêu cho trái tim của e.Nhà tôi cách nhà e khá xa tôi đạp xe hơn 45 phút mới tới nhưng chẳng sao vì e mà.Nhiều lúc khi nhan được tin nhắn e bị bệnh tôi đã mua thuốc chạy ngay xuống nhà e giữa trưa nắng chang chang.Có khi về bị cảm mấy ngày mới hết.Nhiều bữa e đi chơi tôi lo không ngủ được vì e về quá khuya có bữa tôi đã thức đến 4h sáng chỉ để đợi e nhắn một tin:"e về rồi a" mà thôi.Rồi một buổi tối khi đi chơi với e tôi đã nói với e rằng:"a yêu e làm bạn gái của a nhé".E trả lời rằng:"để e về suy nghĩ mai sẽ nói cho a biết".Thế là cả đêm tôi không ngủ được chỉ mong đến ngày mai.Nhưng tôi không dám tin e đã nói :"Mình làm bạn thôi a".Tôi đau rất đau mọi thứ như quay cuồn.Nhưng tối hôm đó e nhắn tin:"tinh cảm của a chỉ là ngộ nhận".Tôi yêu e như vậy sao lại là ngộ nhận được chứ và để chứng minh tình cảm của mình e cho tôi thời gian 5 năm trong thời gian đó nếu tôi cố gắng e sẽ suy nghĩ lại nhưng không được gặp e.Tôi đã đồng ý và tôi muốn gặp e một lần nữa e cung đồng ý và hẹn tôi 8h30 ngay hôm sau.Đó là ngày hôm nay,tôi đã mặc bộ đồ mà ngày đầu tiên tôi và e gặp nhau tôi còn mua cho e 3 cái bánh vì tôi nợ e những lần mà tôi dỗ ngọt e những lúc e buồn.Khi tôi đến trước hẻm nhà e tôi gọi điện thoại cho e.E nói:"e đang đi uống cafe với bạn rồi đi chơi nữa về trễ lắm thôi nha".Thế là tôi ngồi chờ e về .Đã 11h30 ma e vẫn chưa về tôi gọi e và e nói:"Hôm nay e không về nhà a về đi".Tôi không ngờ e lại đối xử với tôi như vậy sao e lại vô tình như thế tôi làm gì sai sao.Tôi đứng một lát nữa và 12h tôi đành phải về.E có biết là trước ngày hôm đó tôi bị tai nạn xe đi không nổi nhưng tôi cố gắng thoa thuốc vào chân đỡ một chút để đạp xe đến nhà e vậy mà e đi chơi với bạn để tôi một mình đứng đợi e như vậy e không đau lòng sao.Giờ tôi phải làm gì đây tôi muốn hận e lắm nhưng tôi không làm được vì tôi quá yêu e.Tôi nên làm gì tha thứ cho e hay hận e.Các bạn hãy giúp tôi với.

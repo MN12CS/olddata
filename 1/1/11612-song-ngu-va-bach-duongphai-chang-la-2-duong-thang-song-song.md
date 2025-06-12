@@ -1,0 +1,12 @@
+---
+title: "Song Ngư và Bạch Dương...phải chăng là 2 đường thẳng song song"
+date: 2025-06-12T12:02:01Z
+slug: song-ngu-va-bach-duongphai-chang-la-2-duong-thang-song-song
+draft: false
+---
+
+## Song Ngư và Bạch Dương...phải chăng là 2 đường thẳng song song
+
+## Alvin_Massaro_Spears
+
+Mình tìm hiểu về cung hoàng đạo cũng khá lâu và được biết rằng bd sẽ là người làm song ngư đau lắm...quả thật mình sợ đau thêm lần nữa..nhưng không biết sao..số phận luôn cho mình gặp nhiều bd..số phận đang trêu alvin sao?nhiều lúc tự ngẫm nghĩ..mình đang tự hù mình hay mình mê tín quá..nhưng bản thân alvin luôn cảm nhận được 12 chòm sao nói lên những điều rất đúng ( tính cách.cư xử,nói chuyện..) về 12 chòm sao rất đúng..bd 1 người nóng tính giàu nhiệt huyết..coi trọng danh dự...đôi lúc hơi vô tâm nữa...còn mình 1 sn..dịu dàng..sâu sắc..mộng mơ...chân thành.Đôi lúc alvin không chịu được sự vô tâm của người đó..sao mà cứng nhắc thế...sn luôn cần sự lắng nghe và chia sẻ mà,nhưngbd vô tâm dôi lúc làm sn buồn,hơn ai hết sn luôn biết nó không cần gì cao sang 1 vòng tay rắn chắc và 1 bờ vai rộng để khi nó buồn nó sẽ được chia sẻ...nhớ ngày xưa...mình và 1 bd rất cứng đầu thích nhau...nhưng 2 đứa luôn gây nhau,cãi kịch liệt rồi huề..rồi bd đó im lặng 1 thời gian dài,sau này mới biết được bd đó đã quen người khác và bị phụ tình,rồi quay trở về...có phải thượng đế sinh sn ra là đã có trái tim tràn ngập yêu thương và luôn tha thứ.alvin chấp nhận 2 đứa trở lại bình thường,như 2 oan gia,gặp là gây rồi cãi...rồi huề và rồi 1 ngày nọ bd đó chỉ nói đơn giản là đã có người yêu...hì hì chuyện gì đến thì nó sẽ đến...alvin chấp nhận...đúng chất sn..mĩm cười quay bước đi.Người ta thường nói,con trai thì nước mắt chảy vào tim,con gái thì nước mắt chảy từ tim ra ngoài...đúng là như vậy ^^ alvin chỉ biết mĩm cười và giấu nỗi đau đó vào lòng và tập quên người đó..dù alvin biết  phải mất đời này mình mới quên được 1 người...rồi 1 năm sau...song ngư vẫn vượt qua được nổi đau và tiếp tục vui vẻ...và rồi số phận lại cho song ngư gặp lại được thêm 1 bạch dương nữa...rồi sẽ ra sao đây...alvin sẽ còn dũng cảm để yêu 1 bạch dương nữa không?mình nên làm theo lý trí hay con tim...đang tự hỏi lòng..Song Ngư và Bạch Dương có phải là 2 đường thẳng song song...?

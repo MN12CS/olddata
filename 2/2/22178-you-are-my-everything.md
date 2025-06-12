@@ -1,0 +1,18 @@
+---
+title: "You Are My Everything"
+date: 2025-06-12T16:01:04Z
+slug: you-are-my-everything
+draft: false
+---
+
+## You Are My Everything
+
+## MaiYabu
+
+♥ You Are My Everything ♥
+Tác giả: Yabu
+Thể loại: Tình cảm, học đường, hài hước
+Vài lời của tác giả: Tính cách nhân vật mình sẽ đổi khác một tí, cúp pồ thì mình hk sắp theo kiểu truyền thống đâu nhá, giới tính thì mình định sẵn òi, xl các đ/g T^T Với lại sẽ có chuyện tình tay ba, tay tư xảy ra (món khoái khẩu of ta) nên chưa biết e nào vs a nào đâu =]] Không có nhiều thời gian onl nên chưa biết khi nào có chap ms, dù s thì cũng mong m.n ủng hộ○ Bạch Dương ○Giới tính: NữTuổi: 16Chiều cao: 163cmĐặc điểm: Tóc đen ngắn xoã ngang vai. Thường dán vài cái băng cá nhân lên mặt mình (mặc dù không bị gì), nhỏ nói để vậy cho cá tính. Em kết nghĩa của Sư Tử○ Kim Ngưu ○Giới tính: NữTuổi: 16Chiều cao: 158cmĐặc điểm: Lùn nhất bọn. Tóc màu hạt dẻ bẩm sinh, hay búi cao, cài băng đô. Bị cận nên phải đeo kính. Hàng xóm Xử Nữ ○ Song Tử ○Giới tính: NamTuổi: 16Chiều cao: 175cmĐặc điểm: Đứng xa hắn cả chục mét cũng ngửi thấy mùi nước hoa phưng phức. Tay hắn mười ngón thì 6, 7 ngón là đeo nhẫn rồi. Hắn tự hào khoe: "Gái tặng tui đó!"○ Cự Giải ○Giới tính: NữTuổi: 16Chiều cao: 163cmĐặc điểm: Trong tay lúc nào cũng có ít nhất một cây kẹo hoặc bịch snack. Áo dài của nhỏ hay bị dơ. Số là nhiều khi ăn bánh xong, mút tay, làm biếng đi rửa, chùi lên áo dài○ Sư Tử ○Giới tính: NữTuổi: 16Chiều cao: 165cmĐạc điểm: Mều là tín đồ thời trang. Ăn mặc siêu loè loẹt. Cụ thể: mang tất màu bảy sắc cầu vồng, vòng tay mỗi ngày mỗi màu khác nhau,... Chị kết nghĩa Bạch Dương○ Xữ Nử ○Giới tính: NamTuổi: 16Chiều cao: 173cmĐặc điểm: Hắn là hắn cực kì sạch sẽ và thích chau chuốt. Tóc đen vuốt gel cứng như đinh đàng hoàng. Quần áo hắn mặc thì bóng láng, tới nỗi em ruồi nào lỡ đậu lên cũng trượt té. Hàng xóm bé Trâu○ Thiên Bình ○Giới tính: NamTuổi: 16Chiều cao: 175cmĐặc điểm: Thuận tay trái. Người ta thường bắt gặp hắn mon men tới chỗ có nhiều gái đẹp để tán, kết quả 99,99% bị gái tán vì tội nói dai, nói dài và nói dóc (Siêu 3D)○ Thiên Yết ○Giới tính: NamTuổi: 16Chiều cao: 174cmĐặc điểm: Mặt lạnh hơn tiền, ít khi mở miệng nhưng thực chất cũng quậy chả kém các sao nam khác, hay đeo earphone và được cái cực đẹp trai nên gái theo cả tá. Em trai Song Ngư○ Nhân Mã ○Giới tính: NữTuổi: 16Chiều cao: 161cmĐặc điểm: Em là Mã Mã, thế nên em nhí nhảnh, thế nên em buộc tóc hai chùm hai bên. Hát mọi lúc mọi nơi, bị người khác đả đảo, em hùng hồn: "Hát hay không bằng hay hát mấy người nhá!"○ Ma Kết ○Giới tính: NamTuổi: 16Chiều cao: 173cmĐặc điểm: Từ thuở mới lọt lòng đã được trời phú cho cái giọng nói rè rè y chang cái radio, vì vậy đã ít nói lại càng ít nói hơn. Trong túi lúc nào cũng đầy tiền○ Bảo Bình ○Giới tính: NữTuổi: 16Chiều cao: 163cmĐặc điểm: Ngăn bàn của nhỏ đầy những em côn trùng xấu số, nghe nói em dùng chúng để làm thí nghiệm, chả biết ra sao nhưng một ngày lại xuất hiện vài đám tang của mấy em dế, em gián,...○ Song Ngư ○Giới tính: NamTuổi: 16Chiều cao: 172cmĐặc điểm: Cũng bị cận nhưng đeo kính áp tròng. Công tử nhà giàu có sở thích vô cùng tao nhã là đi xe đạp đến trường. Có thể hắn muốn làm bác sĩ (chữ hắn viết rậm rạp như rừng nguyên sinh) Anh trai Thiên Yết○ Xà Phu ○Giới tính: ???Tuổi: 16Chiều cao: 170cmĐặc điểm: Hành tung bí ẩn, hay cười, hay trêu kẻ khác nhưng là người tốt tuyệt đối. Hắn có sở thích vô cùng kì cục là vỗ tay và nhìn cận mặt người khác. Bạn trai cũ của Bảo Bình
+Hình nv: http://forum.matngu12chomsao.com/threads/you-are-my-everything.22178/page-2#post-317548
+Chap 1: http://forum.matngu12chomsao.com/threads/you-are-my-everything.22178/page-9#post-323370
+Chap 2: http://forum.matngu12chomsao.com/threads/you-are-my-everything.22178/page-13

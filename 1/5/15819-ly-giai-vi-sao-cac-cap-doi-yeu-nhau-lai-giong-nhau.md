@@ -1,0 +1,21 @@
+---
+title: "Lý giải vì sao các cặp đôi yêu nhau lại giống nhau"
+date: 2025-06-12T13:33:07Z
+slug: ly-giai-vi-sao-cac-cap-doi-yeu-nhau-lai-giong-nhau
+draft: false
+---
+
+## Lý giải vì sao các cặp đôi yêu nhau lại giống nhau
+
+## teddyhangvu
+
+Có bao giờ bạn thắc mắc tại sao nhiều cặp đôi yêu nhau và vợ chồng lại có nét "hao hao" giống nhau không?​Có thể bạn đã từng nhìn thấy việc này: một cặp đôi "tình củm" nắm tay nhau đi dạo hay ngồi trong quán cà phê, gương mặt hai bạn ấy có nét giống nhau theo cách không thể giải thích được, đến nỗi bạn nghĩ rằng họ có thể là anh chị em một nhà. Có thật sự rằng các cặp đôi này giống nhau đến như vậy không và nguyên do của hiện tượng này là gì?
+​Các nhà khoa học đã vào cuộc để tìm lời giải đáp và tìm ra câu trả lời từ việc đánh giá vẻ bề ngoài, tính cách, tuổi tác của 160 cặp đôi yêu nhau và vợ chồng. Những người đánh giá được phát các bức ảnh riêng biệt của mỗi cặp đôi và không biết ai là người yêu/vợ/chồng của ai. Kết quả cuối cùng cho thấy, những người này đều đánh giá các cặp đôi có những điểm giống nhau về ngoại hình sẽ là người yêu hay vợ chồng. Hơn thế nữa, các nhà nghiên cứu còn tìm ra rằng các cặp đôi càng có thời gian làm quen, chung sống lâu dài (đặc biệt là vợ chồng), họ càng trở nên giống nhau nhiều hơn.
+Điều này có thể gây ngạc nhiên cho nhiều người, tuy nhiên, các nhà khoa học cũng đã đưa ra một vài giả thiết hợp lý. Đầu tiên có thể kể đến việc những trải nghiệm sống được phản ánh qua khuôn mặt. Một người thường xuyên hạnh phúc và cười nhiều sẽ phát triển các cơ trên khuôn mặt cũng như nếp nhăn liên quan đến việc cười. Do vậy mà quãng thời gian làm quen, chung sống hạnh phúc của một cặp đôi có thể được người khác nhìn thấy trên khuôn mặt họ.
+​Càng hẹn hò và chung sống với nhau trong thời gian dài, các cặp đôi càng có nhiều nét tương đồng.​Tác động của gen cũng là một nguyên nhân khác. Một nghiên cứu đã cho thấy những cặp đôi có kiểu gen giống nhau sẽ có cơ hội tiến đến hôn nhân nhiều hơn và những cuộc hôn nhân này cũng sẽ hạnh phúc hơn. Người ta cũng có xu hướng quan tâm đến người khác giới nhiều hơn khi hẹn hò hay lập gia đình cùng người có kiểu gen với mức độ tương đồng cao.
+Một nghiên cứu khác của Đại học Western Ontario (Mỹ) còn cho thấy việc có bộ gen tương đồng chiếm tới 1/3 tiêu chuẩn chọn bạn đời. Có thể do những người có gen giống nhau sẽ dễ dàng sống hòa hợp với nhau hơn. Tuy nhiên, theo các kiến thức sinh học cho thấy, một cặp đôi không nên có bộ gen quá giống nhau, điều đó đảm bảo cho các thế hệ tiếp theo được sinh ra khỏe mạnh.
+​Ngoài ra, chúng ta có thể kể đến chế độ dinh dưỡng. Giả dụ, bữa ăn hàng ngày của những cặp đôi vợ chồng gồm món có nhiều chất béo, sau một thời gian dài, cả hai khuôn mặt sẽ trở nên mập mạp hơn.
+Một lý do khác được đề cập tới là môi trường. Các cặp đôi sống trong cùng một ngôi nhà, hưởng chung một điều kiện thời tiết, khí hậu, các tác động từ bên ngoài đến làn da như nắng, mưa, nhiệt độ, độ ẩm là như nhau. Do đó, họ cũng sẽ có những nét tương đồng.
+Tiếp theo, có thể là do khuynh hướng chọn những người bạn đời có đặc điểm tính cách giống với mình, vì vậy mà qua thời gian, họ trở nên giống nhau hơn. Bên cạnh đó, phải kể đến trường hợp khi hai người cùng có khuynh hướng trầm cảm thì cuối cùng gương mặt họ cũng sẽ cùng thể hiện điều đó.
+​Thử hóa trang một cặp đôi với cách ăn mặc tương tự nhau, bạn có thấy nét mặt họ cũng có chút gì đó "hao hao" không?​Chưa hết, các nhà khoa học còn đưa ra một giả thiết khác, đó là sự đồng cảm. Các cặp đôi sau nhiều năm hẹn hò rồi chung sống sẽ trở nên đồng cảm với nhau, vì thế họ có xu hướng sao chép lại các cử động trên khuôn mặt của người kia. Do vậy, qua một thời gian dài, khuôn mặt của họ trở nên giống nhau. Ví dụ, một người thường hay cười theo một cách nhất định, người kia cũng sẽ có xu hướng cười theo cách đó. Đến khi về già, các tác động tương đồng với nhau lên da mặt sẽ tạo ra các nếp nhăn giống nhau.
+Nói về các kết quả thu được qua nghiên cứu này, có nhiều ý kiến trái chiều được đưa ra. Có người cho rằng việc trở nên giống nhau như vậy sau một quãng thời gian dài hẹn hò và chung sống có vẻ như là một ý tưởng đáng sợ. Nhưng những người khác cho rằng đó là một điều vô cùng ngọt ngào và lãng mạn. ​Cá Thu - Theo PLXH​

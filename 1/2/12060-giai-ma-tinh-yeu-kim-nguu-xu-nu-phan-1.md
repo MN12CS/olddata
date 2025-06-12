@@ -1,0 +1,19 @@
+---
+title: "[Giải mã tình yêu] Kim Ngưu - Xử Nữ (phần 1)"
+date: 2025-06-12T12:12:33Z
+slug: giai-ma-tinh-yeu-kim-nguu-xu-nu-phan-1
+draft: false
+---
+
+## [Giải mã tình yêu] Kim Ngưu - Xử Nữ (phần 1)
+
+## tk_123
+
+KIM NGƯU – XỬ NỮ​…kiểu như một gia đình lý tưởng trên Neverlands, và nếu họ ở cùng nhau thì bạn có thể chắc chắn là người này sẽ chõ mũi vô chuyện của người kia.
+Xử Nữ rất khâm phục sự quyết đoán của Kim Ngưu, dù thỉnh thoảng có khó chịu ra mặt trước sự ngu lâu khó đào tạo của Kim Ngưu. Còn Kim Ngưu có thể nói là bị ấn tượng trước trí tuệ ưu việt của Xử Nữ, tuy rằng cũng khá là nản cái chứng nghiện hoàn hảo, bệnh ưa sạch thái quá và tật soi mói của Xử Nữ.
+Nhưng mà ba cái khác biệt lẻ tẻ đó nào có là chi? Họ vẫn có khối thứ để nói với nhau, mà Kim Ngưu thì toàn ưa những chuyện thuộc dạng kinh-nghiệm-cuộc-sống. Chuyện này thỉnh thoảng cũng làm một đứa ưa chỉ trích như Xử Nữ bực mình, vì nó có xu hướng thích chém gió chả kém ai. Rồi sẽ có ngày Xử Nữ sẽ chỉnh hết lại kiểu ăn nói xạo sự của Kim Ngưu.
+Kim Ngưu và Xử Nữ có cùng hệ thống quan điểm đạo đức nên sinh ra là dành cho nhau, trong khi ngoài tụi nó ra thì cả lũ còn lại đều rơi vào cái thảm cảnh của sự cặp kè phù phiếm điên loạn. Chả đứa nào trong cặp này rơi vào bi kịch đó. Họ là một cặp bài trùng, đứa này là chân lý của đứa kia. Xử Nữ có khả năng ghi nhớ tất tần tật những gì nó thấy từ vết rách trên tấm rèm cửa cho tới cái khuyết điểm bé như lỗ mũi của người khác, toàn chuyện bực mình khiến cho đầu óc nó trầm luân trong bể khổ, tuy vậy nó lại có cái kiểu tôi-đang-hưởng-thụ-đau-buồn, ít ra làm vậy thì cái đầu sáng láng-rách việc của nó mới có công ăn việc làm. Kim Ngưu cũng nhớ hết mọi thứ, ngay cả những chuyện mà nó chả muốn nhớ tới. Trong đầu Kim Ngưu luôn gào thét rằng bỏ phí thời giờ là tội lỗi, mà chuyện tiêu phí nó vào những chuyện quá khứ thì còn tệ hơn. Tuy vậy chúng nó cũng bị lệ thuộc một cách vô ý thức vào những ký ức cũ, những bài học kinh nghiệm đau thương như thể là đã được khắc hẳn lên trán. Tóm lại, Xử Nữ có nhiều nỗi bất an phức tạp hơn Kim Ngưu, về sức khỏe hay an toàn giao thông chẳng hạn. Kim Ngưu chả bao giờ lo gì về sức khỏe.
+Đây chả hề là kiểu cặp đôi sinh động hài hước hay đáng yêu dễ thương gì cho cam. Cả hai đều có bản chất tiêu cực, thụ động và đầy nghi ngờ cũng như xét đoán, mặc dù họ có những nét tính cách tốt và đáng tin cậy. Họ hiếm khi mà chủ động đi gặp nhau, nhưng một khi đã gom đủ nghị lực để làm quen và hẹn hò chơi bời cùng nhau (thường đã hẹn thì hẹn triền miên không dứt) thì tình bạn tình đồng chí hay cái tình gì đấy mà thường là tất cả các kiểu tình đều cứ từ từ mà tiến, chậm mà chắc và rồi sẽ là một mối quan hệ rất tốt đẹp. Nếu là trong gia đình, đó sẽ là hai đứa thân nhau nhất, và mỗi khi chúng nó ngồi với nhau thì y như rằng chúng sẽ chìm đắm trong thế giới riêng và cho mọi người xung quanh ra rìa hết.
+Trong hai đứa thì Kim Ngưu luôn là đứa hơn hẳn về mặt kiên nhẫn. Xử Nữ trông có vẻ bình lặng trầm ổn, nhưng trong đầu nó những ý nghĩ bất an luôn quay cuồng nhảy múa nhất là khi mọi việc không diễn ra đúng như cái logic nội tại của nó. Thân thể Xử Nữ thì vui vẻ sống trên mặt đất nhưng tâm trí thì hay thay đổi, luôn có những suy nghĩ hỗn loạn và bay đi tận đâu đâu. Thủy tinh là hiện thân chân chính của Song tử với thuộc tính không khí, nhưng nó không có mấy tác động được đến Xử Nữ với thuộc tính Đất. Tuy vậy sao Thủy ưa chơi xỏ cũng thỉnh thoảng xách động Xử Nữ làm những chuyện điên rồ trái với bản chất thật sự cũng như làm ngược lại những ước muốn của trái tim mình, nhất là khi Xử Nữ đang buồn chán. Đó là lúc Xử Nữ bị đời đập cho thê thảm và bị buộc phải trở nên mạnh mẽ hơn và cũng trái tính trái nết hơn như một con ngựa điên.
+(còn tiếp)
+*Bản quyền thuộc về  Bí Mật 12 Cung Hoàng Đạo

@@ -1,0 +1,25 @@
+---
+title: "[ Giới thiệu sách] Hãy Tìm Tôi Giữa Cánh Đồng-Đặng Nguyễn Đông Vy"
+date: 2025-06-12T13:59:25Z
+slug: gioi-thieu-sach-hay-tim-toi-giua-canh-dong-dang-nguyen-dong-vy
+draft: false
+---
+
+## [ Giới thiệu sách] Hãy Tìm Tôi Giữa Cánh Đồng-Đặng Nguyễn Đông Vy
+
+## Njnkjmdu
+
+Hãy Tìm Tôi Giữa Cánh Đồng
+“Hãy tìm tôi giữa cánh đồng” của tác giả Đặng Nguyễn Đông Vy được in lần đầu năm 2007 với số lượng ít, chủ yếu để tặng bạn bè và bán một ít trên mạng. Nhưng đã có nhiều bài viết giới thiệu cuốn sách rất hay, đến nỗi tác giả thú nhận rằng khi đọc lại đến giờ vẫn còn thấy xúc động. Viết được một bài viết nhỏ để nói lên cảm xúc của mình, và được người đọc cảm nhận, có lẽ cũng là một điều hạnh phúc.
+Và đây là một đoạn như vậy:
+“Tập sách làm tôi có cảm giác trong một chiều nắng quái, giở quyển từ điển dày cộp ra bất chợt bắt gặp một cành hoa ngày cũ, và mình chợt vui chợt buồn nhớ lại những lúc run rẩy, lúc nâng niu một khoảnh khắc, chợt ngửi thấy mùi cỏ khô trên đồng một đêm trăng lên trong tranh Levitan. Và cổ họng chợt nghẹn đắng trong một cảm giác dịu ngọt. Hãy tìm Đông Vy, giữa cánh đồng. (Lê Thúy Hà, Hà Nội)
+Các truyện ngắn “Tonic và chocolate nóng”, “Tạm biệt Rainy”, “ Thánh đường xưa”, những bài tản văn “Lá cuối năm”, “Ký ức đồng dao”, “Nhà có cửa hông”… được in trong sách vẫn được tiếp tục đưa và lưu giữ trên mạng. Chúng được biết nhiều hơn cả tên tác giả đã viết ra.
+Khoảng đời trong bài viết của tác giả cho dù rất riêng nhưng sao thật gần gũi với những ai từng có một quê nhà để mà nhớ. Ở đâu đó là khói đốt lá vào một buổi chiều cuối năm làm cay đôi mắt, một trận mưa dầm ngồi trước hiên nhà nhìn bong bóng nước, nhẩm trong miệng một bài ca dao. Những người ông, người bà già yếu thương yêu con cháu và tình thương càng đậm đà hơn ở tuổi gần phải chia xa… Cảnh nghèo nhưng thanh sạch, tình yêu thương với những người lỡ đường… Tất cả là ký ức nhưng nhìn qua đôi mắt đầy xao xuyến, trái tim đầy nhân hậu. Người ta có thể nhìn ra một góc tâm hồn tác giả, và có lẽ nhờ đã viết một cách chân thật với lòng mình, những câu chuyện gửi gắm có thể vượt qua cảm xúc riêng để biến thành cảm xúc của người đọc. Đó là sức mạnh của quyển sách.
+Đồng tác giả với hai cuốn sách best seller “Nếu biết trăm năm là hữu hạn” và “Những lối về ấu thơ”, Đặng Nguyễn Đông Vy chia sẻ với người đọc những điều mình cảm nhận một cách sâu sắc về cuộc đời, và Hãy tìm tôi giữa cánh đồng là thuở ban đầu trong trẻo nhất trước khi được tiếp nối với những tâm tình trong “Những lối về ấu thơ” và giọng văn gần gũi, thẳng thắn hơn trong “Nếu biết trăm năm là hữu hạn”. Bổ sung vào lần in này là một số bài viết trên blog của tác giả, một blog sau khi đóng cửa đã được lưu giữ lại bằng một người đồng cảm không hề biết mặt. Quả  là một bất ngờ thú vị của thế giới mạng.
+Hãy lắng nghe những tâm tình trong Hãy tìm tôi giữa cánh đồng:
+“Từ khi ông mất đi, những chiều cuối năm không còn ai ngồi quanh đống lửa, nhưng dù đi đâu, chúng tôi vẫn luôn quay về góc vườn cũ, thăm lại những hàng cây. Bao nhiêu lớp lá khô rơi đã tan thành tro bụi, vậy mà vòm lá vẫn xanh và rì rầm trong gió. Nhưng tôi biết rằng: trong vòm cây nguyên lành như chưa bao giờ biến đổi kia, có một chiếc lá đã rơi và để lại khoảng trống trong tôi không gì bù đắp nổi. Chiếc lá ấy vẫn trở về trong trái tim những chếic lá khác - vào mỗi buổi chiều cuối năm”. (Lá cuối năm)
+“Mối tình đầu cũng giống như tiếng chuông vậy. Nó đã qua rồi dẫu ta vẫn nghe như những âm vang của nó còn đọng mãi. Không ai có thể tìm lại một tiếng chuông, cũng không ai nên cố tìm cách giữ lại một tiếng chuông. Hãy để những cơn gió nguyên sơ mang thanh âm ấy đi . Nếu không thể tạo nên một điều gì tốt đẹp hơn hiện tại, thì cũng đừng nên phá vỡ hiện tại”. (Thánh đường xưa)
+“Giữa tia suy nghĩ nào đấy vừa thoáng qua về vị ngọt trong ly tonic, tôi chợt nhận ra tình yêu cũng giống như lời tỏ tình. Nó có thể bắt đầu và kết thúc bằng một thứ nước uống ở quán cà phê. Nó có thể bắt đầu bằng nỗi nhớ, không phải chính con người ấy, mà là khoảng không gian, những cảm xúc bao quanh mỗi khi ta ở bên người ấy. Sự bình yên.”(Tonic và chocolate nóng)
+“Nhưng năm sau, Tết chưa đến thì bà đã mất. Tôi vẫn chưa tự mình gói bánh được, cả đến bây giờ, khi đã tốt nghiệp đại học. Nhưng Tết nào về quê tôi cũng đi lại con đường từng đi với bà, trên tay là hai chiếc giỏ cũ, một đựng bánh mứt, một đựng đồ chơi và những cuốn truyện cổ tích. Một cho người lớn, một cho trẻ con. Một vì tấm lòng bà đã yên giấc cỏ, một cho tuổi thơ tôi đã xa tít tắp...” (Những chiếc bánh tét con)
+Công ty sách Phương Nam xin trân trọng giới thiệu với bạn đọc quyển Hãy tìm tôi giữa cánh đồng, và cho dù tác giả chỉ mong có thể “đem đến cho bạn một niềm vui nho nhỏ, tựa như khi bạn bất chợt bắt gặp trong đống đồng nát ven đường một món đồ chơi cũ kỹ, gợi lại bao kỷ niệm êm đềm của tuổi ấu thơ”, quyển sách có thể mang đến một điều lớn hơn, là niềm tin yêu vào cuộc sống này, bắt đầu có khi là một niềm luyến tiếc một tuổi thơ êm đềm, một nỗi nhớ quê nhà quay quắt hay một tình bạn tưởng chừng như là mối tình đầu.
+(Phạm Lữ Ân)​

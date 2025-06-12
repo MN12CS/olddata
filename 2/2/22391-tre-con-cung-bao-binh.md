@@ -1,0 +1,35 @@
+---
+title: "Trẻ con cung Bảo Bình"
+date: 2025-06-12T16:05:46Z
+slug: tre-con-cung-bao-binh
+draft: false
+---
+
+## Trẻ con cung Bảo Bình
+
+## T.Shynn
+
+Đứa trẻ mộng mơ đi quanh một vùng đấtcủa những điều kì diệu hoang dã và mới lạ, thân thiện trò chuyện của muông thú -và nửa tin rằng vùng đất đó có thật.
+ 
+Theo lời mẹ Ngỗng, thì nếu bé sơ sinh nhà bạn được mặc đồ màu xanh, thì đứa trẻ đó được làm từ ốc sên và đuôi chó con. Còn nếu em bé được diện đồ màu hồng, cô gái bé nhỏ đó được làm từ đường ngọt và gia vị, và tất cả những điều tốt đẹp. (Nguyệt: Nguyên đoạn trên là một bài đồng dao của Anh, nên dịch ra nó không có nghĩa gì cho lắm. Xem nguyên tác ở đây). Nhưng nếu bé trai hay bé gái nhà bạn được sinh ra vào tháng Hai, hãy diện cho bé một cái nón lưỡi trai màu xanh biển và một đôi bốt màu xanh thẫm và quên cái bài đồng dao cũ rích kia đi. Tiểu tí hon này được làm ra từ những vật liệu nguyên chất của Thiên Vương tinh, và bé sẽ khiến bạn phải đuổi bé chạy vào tương lai đấy.
+ 
+Tiểu Bảo là một tập hợp của những phát minh và nguồn điện nhạy cảm, cứng đầu và độc lập. Ngay cả khi bé có cung Mọc là Kim Ngưu chậm rãi và cẩn thận, trí não bé vẫn nhanh như tia chớp của Thiên Vương tinh. Suy nghĩ của bé dao động ở sóng tần số radio cao, và khi bé lớn lên, bạn có thể sẽ phải tự mình đi phát tín hiệu S.O.S đây.
+ 
+Bậc cha mẹ nào cũng nghĩ con mình là đặc biệt – là khác biệt và độc nhất vô nhị, khi so sánh với những đứa trẻ khác. Nhưng đứa nhỏ này lại đơn giản là khá kì quặc. Rất nhiều phụ huynh của các bé Bảo Bình tự thắc mắc không biết có nên đẩy bé ra đồng chơi, nơi bé không sợ những bác hàng xóm – hay để thế giới thuyết phục mình rằng bé có thể sẽ thắng giải báo chí Pulitzer một ngày nào đó. Bạn nên chọn con đường nào đây? Bạn gặp rắc rối rồi đấy. Vâng, đích thị là bạn gặp rắc rối rồi. Giải thưởng Pulitzer cũng rất có khả năng đạt được đấy, nhưng tôi khuyên là nên đẩy bé ra đồng chơi trong vài mùa hè và hãy thử quan sát. Và chờ đợi. Bé rất có khả năng sẽ sáng chế ra một máy cày mới cho các bác nông dân, hoặc chỉ đơn giản là ngồi ăn hết cơm hết gạo nhà các bác. 
+Tùy à. Chẳng bao giờ có một quy luật rạch ròi nào đối với một Bảo Bình.
+ 
+Tôi biết một bà mẹ New York vừa gọi đứa con trai Thiên Vương tinh của mình là “Kì quan của quận Bronx” và để nó thành biệt danh luôn. Ít nhất thì họ hàng và hàng xóm cũng cảm thấy hoang mang bối rối y như bà mẹ. Chẳng ai biết cái biệt danh đó có ý nghĩa là thằng bé có ba cái đầu hay là vì bé đang nhắm đến Thánh đường nghệ thuật nữa. Hóa ra, thằng nhỏ là một tay chơi bóng rổ rất cừ và đa phần mọi người đều nghĩ chính vì vậy mà bé có biệt danh đó. Nhưng lẽ ra họ không nên nhanh chóng kết luận như thế. Câu chuyện vẫn còn chưa kết thúc đâu. Hiện tại Tiểu Bảo ấy đang phân vân quay vòng vòng giữa việc viết một bản nhạc cho một vở nhạc kịch có thể sẽ được trình diễn ở Broadway… hoặc ném nó vào sọt rác, đóng một vài vai diễn nhỏ trong các phim trinh thám, và chứng minh mình có thể đóng quảng cáo truyền hình. (Cái thể loại quảng cáo cần những chàng giống-như-sao-Hỏa để lái mô tô bay cho các quảng cáo mô tô ấy). Bé cũng đang mày mò sáng chế trong phòng riêng (trong lúc đang xem đội Met thi đấu và ăn bánh mì kẹp dưa muối), nhưng vì bé không tiết lộ đó là gì nên tôi chẳng thể bật mí cho mấy bạn được. Bé có hứng thú với đồng hồ và đồng hồ đeo tay, nên rất có thể cái sáng chế đó là một thứ gì đó liên quan đến máy thời gian (một sự ám ảnh điển hình của Bảo Bình). À thì, từ từ rồi biết. Chẳng việc gì phải vội. Rất nhiều Bảo Bình không thấy thoải mái trưng ra những bụi sáng lấp lánh thiên tài của mình cho cái thế giới đang ngóng chờ cho đến khi chúng 15 tuổi. Có thể sẽ khá là bực bội khi phải chờ đợi như vậy nhỉ. Dĩ nhiên, vẫn có một số Tiểu Bảo Bình quả thiệt là một thiên tài, nhưng một bé Bảo Bảo bình thường cũng đủ khiến chúng ta quay cuồng rồi (hãy hiểu thoáng cái từ “bình thường” của tôi một chút nhé).
+Cuối cùng, bé có thể lại đi làm cho FBI hoặc thám tử tư (bé thích khám phá những bí ẩn), và trở thành một công dân bình thường, có lí trí và bảo thủ. (Đừng hết hồn nín thở như thế, nhưng quả thiệt chuyện này rất có khả năng đấy). Chúng ta tốt hơn nên tập trung vào những năm tháng nhạy cảm của bé. Bằng cách này, bạn sẽ có một cơ hội cực kì to lớn để hướng quả rocket Thiên Vương tinh của bé theo một hướng đi nhất định nào đó.
+ 
+Trước khi sự trưởng thành đã có những ảnh hưởng chín chắn lên bé, và xã hội đã đúc thành khuôn cho những thái độ thường thức, thì một đứa trẻ Bảo Bình có thể cực kì tiêu cực. Phản ứng tức thì trước một mệnh lệnh (hay thậm chí là một lời yêu cầu nhẹ nhàng) thường là một tiếng “Không” dứt khoát. Nhưng hãy để bé suy nghĩ về vấn đề đó, nghiền ngẫm kĩ càng và bạn sẽ bất ngờ khi trong vô số lần thì phản ứng cuối cùng của bé cũng khá là ok – câu trả lời mà bé đã tự mình nhận thấy là đúng đắn và chấp nhận được.
+ 
+Những đứa trẻ này có thể là những sinh vật bình tĩnh và ngọt ngào ở ngoài mặt, nhưng gió hướng Bắc có thể biến chúng bất ngờ quay ngoắt 180 độ. (Ngoại trừ chuyện đó, thì ở cùng với một Bảo Bình cũng rất là bối rối đấy. Bạn có thể mong chờ bất cứ điều gì từ họ). Những hành vi của chúng hoàn toàn không đoán trước được, nhưng những đứa trẻ tháng Hai lại rất dễ thương và hài hước, hoàn toàn có thể là một cái tua bin đang quay tít để cùng bạn tranh luận. Tôi sử dụng cách ví von đó bởi vì Bảo Bình và Thiên Vương tinh cai quản những chuyến bay trên không, các loại máy bay và Charles Lindbergh và những thứ tương tự như vậy (Nguyệt: Bác già Charles là phi công người Mỹ có biệt danh là “đại bàng đơn độc” nhóe). Ấy thế mà, đứa nhỏ này lại tràn ngập mâu thuẫn – thay vì quen với việc bay một cách tự nhiên, rất nhiều đứa có một nỗi sợ hãi kì lạ và không lí giải được với máy bay và thang máy – thậm chí là với cả điện (cũng được cai quản bởi Thiên Vương tinh). Thật không dễ gì để hướng bé theo một hướng đi hoặc bắt sóng bé. Đứa nhỏ hoàn toàn không có khái niệm rằng mình đang đi đến nơi nào, nhưng bé biết rất rõ làm thế nào để đi đến đó. (Nguyệt: Óa, chắc con người đơn giản thẳng đuột như tui sẽ không bao giờ dám dính đến mấy cậu Bảo Bảo nữa).
+ 
+ 
+Nuôi dạy những ‘kì quan’ này có thể sẽ là một thứ trách nhiệm cực kì bự. Trí não của bé kết hợp giữa tính thực tế rất kiên định với nhận thức kì lạ và logic sắc sảo và dò xét. Hãy thử trộn tất cả những yếu tố trên và kết quả sẽ phi thường xấu hổ – khi Tiểu Bảo Bảo hỏi cô bạn thân nhứt của bạn rằng tại sao cô ấy lại đi phẫu thuật thẩm mỹ (con nhỏ có đi phẫu thuật thiệt), hay hỏi chú Elmer của bạn tại sao ổng lại gian lận tiền thuế thu nhập ngay trước mặt nhân viên thu thế (ổng có gian lận thiệt).
+ 
+Bé rất thích giúp đỡ bạn bè. Hãy mua cho bé trai Bảo Bình của bạn một đôi ủng mới và bé sẽ rất thích đeo chúng vào chân ngay trong ngày đầu tiên và san phẳng đống tuyết để mấy đứa bạn hàng xóm có thể cưỡi xe trượt tuyết đi xung quanh.
+ 
+Còn tiếp… 
+ 
+Nguồn: Sưu tầm.

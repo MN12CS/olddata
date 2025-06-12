@@ -1,0 +1,44 @@
+---
+title: "[Bạch Dương] Adolf Hiter"
+date: 2025-06-12T14:50:23Z
+slug: bach-duong-adolf-hiter
+draft: false
+---
+
+## [Bạch Dương] Adolf Hiter
+
+## Heydte
+
+Adolf Hitler (20 tháng 4 năm 1889 – 30 tháng 4 năm 1945) là Chủ tịch Đảng Công nhân Đức Quốc gia Xã hội chủ nghĩa (Nationalsozialistische Deutsche Arbeiterpartei, viết tắt NSDAP) từ năm 1921, Thủ tướng Đức từ năm 1933, là "Lãnh tụ và Thủ tướng đế quốc" (Führer und Reichskanzler) kiêm nguyên thủ quốc gia nắm quyền Đế quốc Đức kể từ năm 1934.
+ 
+Ông thiết lập chế độ độc quyền quốc gia xã hội của Đệ tam Đế quốc, cấm chỉ tất cả các đảng đối lập và bức hại các đối thủ chính trị. Ông đã gây ra Đệ nhị thế chiến, thúc đẩy một cách có hệ thống quá trình tước đoạt quyền lợi và sát hại khoảng sáu triệu người Do Thái châu Âu cùng một số nhóm chủng tộc, tôn giáo, chính trị khác[1], được gọi là cuộc Đại đồ sát dân Do Thái (Holocaust).
+
+ 
+Thời trẻ, Hitler muốn trở thành một họa sĩ, nhưng chưa từng được thành công. Về sau, Hitler trở thành một người theo chủ nghĩa dân tộc Đức cấp tiến. Trong chiến tranh thế giới lần thứ nhất, Hitler phục vụ trong Quân đội Đế chế Đức, từng bị thương, từng nhận hai tấm huân chương do chiến đấu anh dũng.
+Thất bại của Đế chế Đức làm cho Hitler cảm thấy kinh ngạc và vô cùng phẫn nộ. Năm 1919, khi 30 tuổi, Hitler đã tham gia vào một nhóm cánh hữu nhỏ ở Munich. Không lâu sau, nhóm này đổi tên thành Đảng Công nhân Đức Quốc gia Xã hội chủ nghĩa, gọi tắt là Đảng Nazi. Hai năm sau, Hitler trở thành người lãnh đạo của Đảng này. Dưới sự lãnh đạo của Hitler, lực lượng Công nhân Đức Quốc gia Xã hội chủ nghĩa lớn mạnh rất nhanh. Vào năm 1923, Đảng Công nhân Đức Quốc gia Xã hội chủ nghĩa phát động một đợt chính biến được sử sách gọi là "Khởi nghĩa quán bia Munich". Sau khi thất bại Hitler bị bắt và bị xét xử, nhưng trên thực tế ngồi tù chưa được một tháng, thì Hitler được phóng thích.
+ 
+Năm 1928, Công nhân Đức Quốc gia Xã hội chủ nghĩa vẫn chưa đủ mạnh; nhưng do công chúng cực kỳ bất mãn đối với các chính đảng đang tồn tại, Công nhân Đức Quốc gia Xã hội chủ nghĩa thừa cơ phát triển lên. Năm 1933, Hitler làm Thủ tướng Đức ở tuổi 44, đạt được mục tiêu của ông ta[2]. Sau khi lên nắm quyền, Hitler đã đàn áp các phe phản đối và xây dựng một nền thống trị độc tài. Nhiều nhân vật của phe chống đối bị giết không cần xét xử. Trong vài năm trước cuộc Đại chiến thế giới lần thứ hai, sự thống trị của Hitler đã được đại đa số người Đức ủng hộ nhiệt tình, vì đã giảm bớt thất nghiệp, nền kinh tế được phục hồi.
+ 
+
+ 
+Sau đó, Hitler đã đẩy nước Đức vào con đường chinh phục bên ngoài, dẫn đến cuộc đại chiến thế giới lần thứ hai bùng nổ. Trên thực tế, Hitler không cần dùng vũ lực đã đạt được tham vọng lãnh thổ đầu tiên của mình. Khi đó, Anh và Pháp đang bị khốn đốn bởi các vấn đề kinh tế, một mực cầu hòa. Hitler hủy bỏ Hòa ước Versailles, tổ chức lại quân đội Đức. Năm 1936, quân Đức chiếm lĩnh khu vực Rheiland và thiết lập phòng thủ trong ba tháng; năm 1938, Hitler dùng vũ lực thôn tính nước Áo. Hai nước Anh và Pháp không có sự can thiệp nào đối với hành động đó của Hitler, thậm chí khi Hitler thôn tính khu vực phòng thủ trọng điểm của Tiệp Khắc tháng 9 năm 1938, Anh và Pháp cũng ngầm thừa nhận.
+ 
+Năm 1940 là thời kỷ đỉnh cao của Hitler; quân đội Đức đánh chiếm Đan Mạch và Na Uy vào tháng 4, tháng 5 đánh chiếm Hà Lan, Bỉ và Luýchxămbua. Tháng 6 Pháp đầu hàng. Tháng 6 năm 1941, Hitler xé bỏ điều ước không xâm phạm Liên Xô, bắt đầu tấn công Liên Xô và chiếm được một vùng rộng lớn của Liên Xô; nhưng không tiêu diệt được quân đội Liên Xô.
+
+ 
+Theo tác giả Panphilov (Giáo viên lịch sử Liên Xô của trường MGIMO Maxcva - Liên Xô) viết trong một cuốn sách của mình như là một sử gia đã từng tham gia cuộc Chiến tranh thế giới thứ hai thì trước khi quyết định xâm lược Liên Bang Xô Viết thì Hitler đã viết một bức thư cho trùm phát xít Ý là Benito Mussolini, qua đó ông cho rằng quyết định tấn công Liên Bang Xô Viết là quyết định khó khăn nhất trong cuộc đời của ông ta vì Liên Xô là một quốc gia khổng lồ. Vì lẽ đó nếu như năm 1941 khi tấn công Liên Xô theo kế hoạch của chiến dịch Barbarosa, kể cả khi Hitler đồng ý với ý kiến của các tướng lĩnh dưới quyền tấn công thẳng đến Moskva thì cũng không nhanh chóng đánh gục được Liên Xô bởi vì Ban Lãnh đạo Liên Xô lúc đó sẽ nhanh chóng sơ tán về miền Đông, dãy Uran để tiếp tục chỉ đạo cuộc kháng chiến. Sự sai lầm dẫn tới thất bại của Hitler khi tấn công Liên Xô là Hitler đã quá tự cao tự đại, coi thường người bạn đồng minh trong phe Trục của mình là Đế quốc Nhật Bản. Vì thế Nhật Bản đã không đưa quân lên phía Bắc, hiệp đồng với Quân đội Đức để tấn công Liên Xô ở mặt trận phía Đông mà dồn quân xuống phía Nam chiếm vùng Đông Á, để mặc một mình Hitler cố gắng xâm chiếm Liên Xô rộng lớn. Những nhà tình báo vĩ đại đã nắm được ý đồ đơn phương tiến hành chiến tranh của Hitler và giúp cho Ban Lãnh đạo Liên Xô có những phương án thích ứng để đối phó với Hitler.
+ 
+Cuối năm 1942, Hitler đã thất bại trong hai chiến dịch ở Ai Cập và Stalingrad, đây là bước ngoặt của đại chiến thế giới lần thứ hai. Lực lượng quân đội Đức bắt đầu suy yếu; mặc dù thất bại là không tránh khỏi, nhưng Hitler kiên quyết không đầu hàng. Sau trận đánh tại Stalingrad, Hitler hạ lệnh cho làm lễ quốc tang 4 ngày.[3] Nhưng ông ta còn chịu đựng được hơn hai năm nữa. Mùa xuân năm 1945, ngày tận thế của Hitler đã đến. Ngày 30 tháng 4 năm 1945, Adolf Hitler tự sát ở thủ đô Berlin; vài ngày sau, phát xít Đức tuyên bố đầu hàng.
+ 
+
+ 
+Hầu như tất cả các nhà viết tiểu sử Hitler đều nhấn mạnh sự khác nhau rất rõ giữa hai phần đời của ông ta. Đoạn đời trước tuổi ba mươi của ông, nếu so với mức bình dân thời đó chỉ được xem là khoảng đời không thành đạt, bởi Adolf Hitler không được đào tạo nghề nghiệp, không có mối quan hệ nào đáng kể, sau thất bại của nước Đức trong Chiến tranh thế giới lần thứ nhất ông là một người lính không có triển vọng và hơn hết là ông không có những cá tính đặc thù để có thể giải thích một cách thuyết phục được sự thăng tiến sau đó của mình. Mặc dù vậy, nhân vật này chỉ trong vòng vài năm đã bước lên ngôi Thủ tướng Đức và cuối cùng, đã trở thành người cầm quyền độc tài, cai trị phần lớn châu Âu. Adolf Hitler là một trong số ít các nhân vật trong lịch sử nhân loại đã phát huy một năng lực hủy hoại hiếm thấy.
+Một vài người tranh cãi Hitler là Kim Ngưu vì đó là ngày đầu tiên của Kim Ngưu tôi không hiễu nổi, tôi không biết điều đó chính xác không nhưng sau năm 30t, Hitler thể hiện rất rõ bản chất của Bạch Dương.
+ 
+Đây là quyển "Nửa Kia Của Hitler", bạn sẽ khó tìm thấy bất cứ kim ngưu nào trong phân tích cả hai cuộc đời.
+ 
+
+ 
+http://www.upfile.vn/2AP2
+ 
+"Ngay cả khi bị bệnh hoặc không còn nhà trọ để ở, Hitler vẫn nhịp trong đầu mình tiếng trống ra trận"

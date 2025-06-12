@@ -1,0 +1,38 @@
+---
+title: "Lời Nguyền <Kì 1>:Chiếc nhẫn bị nguyền rủa và những cái chết đầy bí ẩn"
+date: 2025-06-12T11:46:23Z
+slug: loi-nguyen-ki-1chiec-nhan-bi-nguyen-rua-va-nhung-cai-chet-day-bi-an
+draft: false
+---
+
+## Lời Nguyền <Kì 1>:Chiếc nhẫn bị nguyền rủa và những cái chết đầy bí ẩn
+
+## b3_boolil
+
+Trong căn hầm bí mật của một nhà băng ở Los Angeles có một chiếc nhẫn bạc gắn một viên đá quý nhưng người ta nói rằng, sẽ không ai dám đeo nó vì nó mang trong mình một lời nguyền khủng khiếp.
+Chiếc nhẫn này không chỉ là một chiếc nhẫn rất đẹp mà còn có giá trị đặc biệt. Người ta nói rằng sẽ chẳng bao giờ có ai dám đeo nó nữa. Chiếc nhẫn bị khóa chặt trong căn hầm kín, nó mang trong mình một trong những lời nguyền khủng khiếp nhất trong lịch sử trong thế giới thần bí.
+ 
+Những chủ nhân liên tiếp của nó từng bị thương, gặp vận rủi hay thậm chí là bị chết. Và nhiều người vẫn còn tin rằng chính chiếc nhẫn này đã đưa Rudolph Valentino, diễn viên huyền thoại của thế kỷ XX, xuống mồ khi còn tuổi trẻ. Mặc dù vậy, những câu chuyện mang tính chất huyền bí xung quanh chiếc nhẫn này đã bị coi chỉ là những sự trùng hợp ngẫu nhiên thuần túy.
+Rudolph Valentino (6/5/1895-23/8/1926) là một diễn viên người Italia, một biểu tượng tình dục, và là một ngôi sao nhạc pop. Nổi tiếng với biệt danh Người tình Latin, ông là một trong những ngôi sao được yêu thích nhất trong thập niên 20, và là một trong những ngôi sao được công nhận rộng rãi nhất trong kỷ nguyên thể loại phim câm. Tên tuổi của ông gắn liền với tác phẩm mang tên The Shreik and The Four Horsemen of the Apocalypse.
+Lúc chào đời Valentino được đặt tên là Rodolfo Alfonso Raffaello Piero Filiberto Guglielmi tại Castellaneta, Italia. Mẹ của ông là bà Marie Berthe Gabrielle Barbin, người Pháp (1856-1919) và cha ông là Giovanni Antonio Giuseppe Fidele Guglielmi, bác sĩ thú y. Ông đã bị chết bởi bệnh sốt rét, dịch bệnh sau đó đã tràn lan ra toàn miền nam Italia, khi Valentino mới 11 tuổi.
+ Ảnh minh họaÔng có một người anh trai là Alberto (1892-1981), một người em gái tên Maria và một người chị gái là Beatrice bị chết khi chào đời. Lúc còn nhỏ, Valentino rất nghịch và bướng bỉnh. Mẹ cậu thì hay chiều chuộng trong khi người cha lại không ưa tính nghịch ngợm của cậu lắm. Ở trường cậu học kém và cuối cùng thì đăng ký vào một trường nông nghiệp mà sau này ở đó người ta cấp cho cậu một tấm bằng. 
+
+Sau khi chuyển đến sống ở Paris năm 1912, cậu nhanh chóng trở lại Italia. Không có việc làm, cậu phải tìm đến nước Mỹ vào năm 1913. Địa điểm cậu chọn làm đất sống là Ellis Island. Đó là ngày 23/12/1913, khi Valentino 18 tuổi.
+Đến năm 1917, Valentino gia nhập một gánh hát mới đến bang Utah, nơi họ giải thể. Sau đó ông gia nhập đoàn làm phim Al Jolson đang làm bộ phim về Robinson Crusoe lưu diễn đến Los Angeles. Mùa thu năm đó, ông xuất hiện ở San Francisco với tư cách thành viên sản xuất vở kịch Nobody Home. Trong thời gian công tác tại đây ông đã gặp được diễn viên Norman Kerry, người sau đó đã thuyết phục ông gây dựng sự nghiệp trên màn ảnh, là thời kì hưng thịnh của thể loại phim câm.
+Đến năm 1919, khi ở đỉnh cao sự nghiệp, Valentino khi lang thang bất chợt thấy một chiếc nhẫn bạc rất đẹp trong một tiệm trang sức ở San Francisco. Người chủ tiệm đã cảnh báo cho ông biết chiếc nhẫn đó sẽ chỉ mang lại những bất trắc mà thôi nhưng ông vẫn mua nó. 
+
+Trong vở diễn The Young Rajah tiếp sau đó, ông mang chiếc nhẫn và kể từ đó cho đến hai năm sau, Valentino thất bại thê thảm trong sự nghiệp phim ảnh. Ông đã không đeo lại chiếc nhẫn đó cho đến khi ông phải dùng đến nó làm trang phục diễn xuất trong vở The Son of the Shreik. Ba tuần sau khi kết thúc bộ phim, ông đi nghỉ ở New York, khi đang đeo chiếc nhẫn, ông phải nhập viện vì viêm ruột thừa cấp. Hai tuần sau, Valentino vĩnh biệt cõi đời. Khi đó là tháng 8 -1926.
+Ngay sau cái chết yểu mệnh của Valentino xảy ra, đã xuất hiện những câu chuyện huyền bí nói rằng hồn ma của Người tình Latin vĩ đại thường ghé thăm những nơi ông thường lui tới. Falcon Lair, ngôi nhà trong mơ mà ông đã xây cất trên đường Bella Drive cho cô dâu Natacha Rambova, đã trở thành khu vực được nhiều người báo cáo nhất rằng họ đã gặp hồn ma của Valentino quá cố.
+Pola Negri, một nữ minh tinh nổi tiếng thời đó xin được giữ một kỷ vật trong số tài sản của Valentino. Bà đã chọn chiếc nhẫn bạc, và gần như ngay lập tức sức khỏe của bà bị suy giảm trong thời gian dài mà suýt nữa làm bà đánh mất sự nghiệp. Một năm sau, trong khi dưỡng bệnh, bà gặp một diễn viên trông gần như bản sao của Valentino, đó là Russ Colombo.
+Bà cảm thấy sững sờ trước sự giống nhau hoàn hảo này đến mức bà đã trả lại chiếc nhẫn của Rudolph cho Russ và nói “Đây, từ Valentino này đến Valentino khác”. Chỉ vài ngày sau khi nhận được món quà, Russ Colombo bị sát hại trọng một vụ bắn giết vô tình. Người cháu họ của ông đã trao chiếc nhẫn cho Joe Casino, người bạn thân nhất của Russ. 
+
+Nhưng may mắn hơn, ở đỉnh cao sự nghiệp diễn xuất, Casino chưa từng gặp vận đen với chiếc nhẫn. Thay vì đeo nó, ông cất nó trong một hộp thủy tinh để tưởng nhớ đến người bạn quá cố. Khi ông được đề nghị tặng chiếc nhẫn cho bảo tàng di sản Valentino, ông đã từ chối và nói rằng ông giữ nó như một báu vật vì những lý do về mặt tinh thần. Thời gian qua đi, Joe Casino đã không còn nhớ đến những câu chuyện ma quỷ của chiếc nhẫn và mang nó lại. Một tuần sau đó, một chiếc xe tải đã cướp đi mạng sống của Casino và vật được tìm thấy trên tay ông là chiếc nhẫn.
+ Valentino RudolphLắp ghép chuỗi những sự kiện đã xảy ra, nhiều câu chuyện được thêu dệt và những câu chuyện về chiếc nhẫn bị nguyền rủa đó vẫn là tin tức được nhiều người quan tâm. Khi được hỏi về ý định với chiếc nhẫn, người em của Joe, Del, giải thích rằng ông không cho phép mình lo sợ trước những rủi ro, những câu chuyện ma quỷ hay bất cứ cái gì đó mà người ta gọi là lời nguyền cả. 
+
+Ông không tin những thứ như vậy. Del Casino đã có lúc mang chiếc nhẫn và chẳng có gì bất thường xảy ra. Ông đưa nó cho một nhà sưu tầm các di sản của Valentino. Người này sau đó cũng không có biểu hiện gì là gặp rủi ro hay bệnh tật. Điều này làm cho một số tờ báo suy đoán cuối cùng thì năng lực ma quỷ của chiếc nhẫn cũng đã tiêu tan hết. Và suy đoán đó đã làm trỗi dậy một làn sóng phản đối mạnh mẽ mới.
+Một đêm sau đó, nhà của Del Casino bị đột nhập. Cảnh sát đã nhìn thấy tên trộm, một gã tên là James Willis chạy vọt ra ngoài. Một trong số cảnh sát đã bắn một viên đạn cảnh cáo nhưng viên đạn đi thấp và giết chết Willis. Trong số tang vật thu được có chiếc nhẫn của Valentino. Đó là lúc nhà làm phim của Hollywood Edward Small quyết định xây dựng một bộ phim dựa trên câu chuyện về sự nghiệp của Valentino.
+Jack Dunn, bạn diễn cũ của ngôi sao trượt băng nghệ thuật Sonja Henie, có vẻ ngoài rất giống Rudolph, được mời tham gia một phần phim thử nghiệm. Ông mang trang phục của Valentino trong phần diễn thử và cũng mang chiếc nhẫn bị nguyền rủa đó. Chỉ mười ngày sau, Dunn chết vì căn bệnh lạ về máu. Lúc chết Dunn chỉ mới 21 tuổi. Sau thảm kịch này, chiếc nhẫn được cất kỹ và không có ai được mang nó lại nữa nhưng không vì thế mà ảnh hưởng chết người của nó hết tác dụng.
+Một năm sau cái chết của Jack Dunn, một cuộc lùng sục táo bạo được tiến hành ngay tại một ngân hàng ở Los Angeles sau vụ việc những tên trộm đã cuỗm đi khoản tiền 200.000 USD. Tiến hành mai phục, hai tên trong băng trộm đã bị bắt và đồng thời cũng làm ba người qua đường bị thương nghiêm trọng.
+Tên cầm đầu băng cướp ngân hàng, Alfred Hahn, nhận án tù chung thân. Tại phiên xét xử, Hahn, phải thốt lên: “Giá mà tôi biết trong căn hầm đó ngoài tiền còn có gì khác nữa thì tôi đã chọn ngân hàng khác rồi”. Bởi trong két sắt bí mật đó là chiếc nhẫn của Valentino. Từ đó, chiếc nhẫn được giấu kỹ và không ai còn nghe về nó nữa. 
+Tân Vũ 
+The Unexplained Mysteries

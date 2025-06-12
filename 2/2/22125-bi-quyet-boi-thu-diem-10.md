@@ -1,0 +1,15 @@
+---
+title: "Bí quyết \"bội thu\" điểm 10"
+date: 2025-06-12T15:59:42Z
+slug: bi-quyet-boi-thu-diem-10
+draft: false
+---
+
+## Bí quyết "bội thu" điểm 10
+
+## bagiaxulanh
+
+Bí quyết "bội thu" điểm 10​ 
+Đừng thắc mắc tại sao bạn học nhiều mà vẫn không đạt đến cột mốc 10 điểm. Hãy tìm cách sao cho không cần học quá nhiều mà vẫn "bội thu" điểm 10. Bí quyết chính là...​ ​Hãy "sưu tập" điểm cộng​ ​ ​Có rất nhiều teen thường "tận dụng cơ hội" để được thầy cô cho điểm cộng. Đôi khi, điểm cộng rất có giá trị nếu bạn làm bài kiểm tra bị điểm thấp. Nhật Minh (lớp 12 trường N) kể: "Ở môn Địa, mình thường xuyên giơ tay phát biểu. Thầy luôn ghi điểm cộng vào sổ rất kĩ lưỡng. Cuối học kì, vì sơ suất và không học bài kĩ nên mình chỉ đạt điểm 7, thế mà trung bình môn vẫn "ngất ngưởng" 9.5, bởi được điểm cộng nhiều, nên các cột kiểm tra của mình toàn 10. Tích lũy điểm cộng thật có lợi."​ ​Rất nhiều thầy cô thường "khuyến mãi" cho teen những điểm cộng để khuyến khích phát biểu. Một số giáo viên thường "cộng cho có lệ", nhưng đa phần thầy cô đều dành cho học sinh nhiều quyền lợi, nhiều cơ hội "gỡ gạc". Tận dụng những điểm cộng hết mức có thể, teen nhé!​ ​ ​Không cần học bài quá nhiều vẫn có 10 điểm, nhờ...​ ​Sưu tập các tư liệu liên quan đến bài học, không có trong sách giáo khoa và đem nộp cho giáo viên: các bộ môn Sinh, Sử, Địa thường rất chú trọng điều này. Thầy cô cũng khuyến khích "học đi đôi với hành". Do vậy hãy mạnh dạn cung cấp tư liệu, điểm 10 sẽ dành cho sự nhiệt tình của bạn​ ​Làm giáo án điện tử: Trên mạng có cả "kho" giáo án ở mọi môn học để bạn tham khảo. Chỉ cần chỉnh sửa, sáng tạo một chút là bạn bè sẽ xuýt xoa và thầy cô sẽ rất hài lòng. Điểm 10 cho chất lượng!​ ​Thuyết trình: đề xuất với thầy cô rằng bạn muốn học theo phương pháp "thảo luận nhóm". Cả nhóm sẽ cùng bắt tay vào thực hiện đề tài. Thường thì thầy cô luôn rộng rãi trong vấn đề này. Nếu thuyết trình chi tiết, hay, rõ về bài học ấy, điểm 10 được "ẵm" như chơi. Tớ đã từng được 10 điểm Văn khi thuyết trình về một tác phẩm trong sách giáo khoa đấy (tư liệu do tớ tổng hợp từ mạng, sách tham khảo và cả...chất xám của mình, hì hì)​ ​Xung phong thường xuyên​ ​Thầy cô thường rất thích học trò xung phong trả bài. Tưởng tượng nhé, với 4 bài Sinh học với cấu trúc protein, cơ chế phiên mã, dịch mã, đột biến...cực kì khó, cả lớp học hoài không thuộc, mà cánh tay bạn lại mạnh dạn giơ cao xin phép được trả bài, thì dù lúc ấy bạn đọc vấp hoặc còn thiếu sót, điểm 10 cũng sẽ dành cho sự can đảm và lòng quyết tâm của bạn. Vì vậy, đừng nản khi phải "tụng" một mớ kiến thức khó nhớ. Nó có thể đem đến cho bạn điểm 10 tròn trĩnh nếu bạn nỗ lực.​ ​Ngoài ra, cần làm trước các bài tập khó ở nhà (nếu không làm được có thể tham khảo sách, hỏi bạn bè...). Nếu làm được, điểm tối đa sẽ "chễm chệ" trong sổ điểm, tha hồ mà vui nhé!​o0o​ ​L.K (lớp 12 trường M) cho rằng: "Để đạt điểm 10 không hề khó, chỉ cần bạn có trách nhiệm với tất cả các môn, từ Toán đến Công Nghệ, không xem nhẹ môn nào và luôn xem điểm 10 là một món quà dành cho sự phấn đấu, thì mỗi ngày đi học sẽ là niềm vui khi bạn cứ mãi được 10 điểm suốt thôi".​ 
+ 
+ sưu tầm

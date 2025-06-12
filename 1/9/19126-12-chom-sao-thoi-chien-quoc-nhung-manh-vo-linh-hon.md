@@ -1,0 +1,171 @@
+---
+title: "[12 chòm sao Thời chiến quốc] những mãnh vỡ linh hồn"
+date: 2025-06-12T14:54:34Z
+slug: 12-chom-sao-thoi-chien-quoc-nhung-manh-vo-linh-hon
+draft: false
+---
+
+## [12 chòm sao Thời chiến quốc] những mãnh vỡ linh hồn
+
+## pham truc
+
+PS: 12 chòm sao sẽ có tên khác, tên do mình đặt!!!!!!!!
+Còn nữa tên của 13 làng là số đếm. Làng Rei là làng lớn còn lại là làng nhỏ!!!
+GTNV:
+Mayaga (Bạch Dương): nữ
+Pháp sư làng Go
+Tóc: nâu
+Mắtanh dương
+Vũ khí: thanh kiếm Fire (kiếm lửa, mọi loại)
+Linh lực: cao
+Biểu tượng: Ngọn đuốc
+- Một cô bé xin xắn, rất nóng tính (dữ như cọp ấy), được 1 chàng trai trong làng để ý-Nagasha. Trong lúc đang chúc mừng cô, trưởng làng Rei - 1 người có danh tiếng mời đến khu vực riêng của ông: Hoa Viên Điện.
+ 
+Sagaku (Kim Ngưu): nam
+Pháp sư làng Ni
+Tóc: nâu
+Mắt: xanh dương
+Vũ khí: huyền trượng Soil (điều kiển đất và biết được địch bao xa)
+Linh lực: cao
+Biểu tượng: cây vàng
+- Cậu con trai của 1 gia đình giàu có, em gái họ là Yumi, rất thích cậu. Vừa được tuyên bố thì trưởng làng tới và gặp riêng cậu. Mời cậu đến thăm quan Hoa Viên Điện. (thật ra là có việc cần giúp đỡ)
+ 
+Miyama (Song Tử): nam
+Pháp sư làng Ichi
+Tóc: hạt dẻ
+Mắt: nâu
+Vũ khí: cây thương Facta (khiến mọi thứ lớn lên hoặc nhỏ lại)
+Linh lực: khá cao
+Biểu tượng: Hoa đào
+- 1 cậu được mọi người coi là đẹp nhất làng đã trở thành pháp sư,cậu là con trai của người giàu nhất làng, cậu rất bí hiểm ko ai phân biệt được cậu với ai (trừ pama cậu). Dân làng ủng hộ cậu và cũng như 2 người trước cậu được mời đến Hoa Viên Điện.
+ 
+Nadia (Cự Giải): nữ
+Pháp sư làng Kyu
+Tóc: hồng
+Mắt: xanh dương
+Vũ khí: cây ô tạo mưa (tạo mưa và chớp. Có thể làm ra bão nhưng phải tốn 1 lượng lớn linh lực)
+Linh lực: khá cao
+Biểu tượng: Ngọc lục bảo
+- 1 cô bé yếu đuối, thiên kim của làng (tất nhiên là có nhiều người thích. Đã nhiều công tử gõ lời nhưng cô ko ưu 1 ai). Thông minh, xinh đẹp, dễ mến được mọi người yêu mến, quan tâm giúp đỡ. Tuy nhiên vận may đã dến với cô được trở thành pháp sư trong sự hân hoan của dân làng. Cũng như những người khác cô được mời đến Hoa Viên Điện.
+ 
+Hakawa (Sư Tử): nam
+Pháp sư làng Roku
+Tóc: nâu
+Mắt: xanh lá cây
+Vũ khí: chiếc nhẫn sét (tạo ra sấm sét và điều khiển chúng)
+Linh lực: cao
+Biểu tượng: Hoa sét
+- 1 chàng trai nóng tính, anh sống cùng mẹ, cha của anh đã qua đời từ sớm. Vì vậy anh phải gánh vác trách nhiệm gia đình lên vai. Từ khi anh được làm pháp sư, mọi gánh nặng được gỡ xuống. Anh muốn sống 1 cuộc sống yên bình cùng mẹ (làng này rất ít bị yêu quái tấn công). Nhưng vì đề nghị của trưởng làng anh k còn cách nào khác phải ra đi.
+ 
+Agatha (Xữ Nữ): nữ
+Pháp sư làng Hachi
+Tóc: nâu
+Mắt: nâu
+Vũ khí: giọng nói, giọng hát (kêu gọi loài vật. Dùng giọng hát để chiến đấu)
+Linh lực: khá cao
+Biểu tượng: túi thơm
+- 1 cô bé đáng yêu, kĩ tính và rất đáng sợ, cô ghét những kẻ lười biếng, vô trách nhiệm, làm việc gì cũng từ từ. Cô được gọi là "Nữ hoàng kĩ tính". Nhờ tính vừa giỏi vừa siêng đã trở thành pháp sư, lại còn được mời đến Hoa Viên Điện, cô quả là 1 người may mắn.
+ 
+ 
+Ezra (Thiên Bình): nữ
+Pháp sư làng Ju
+Tóc: đen
+Mắt: đỏ
+Vũ khí: cung và tên (dùng để bắn. Có 1 linh lực đáng sợ?!)
+Linh lực: cao
+Biểu tượng: Viên ngọc Astraea (ngọc của sự cân bằng)
+- Lúc nhỏ cô là 1 cô bé hoà đồng và ham học. Ko ai quan tâm vì đôi mắt đỏ. Họ trở nên lạnh nhạt, hắt hủi cô. Từ đó cô trở nên lạnh lùng. Hôm nọ, một người đưa cho 1 viên ngọc, ngọc toả ra 1 linh lực khủng khiếp lấy đi linh hồn của cô. Vào đêm ko trăng cô thay đổi thành 1 người hoàn toàn khác (ngoại hình, sức mạnh. Mình sẽ kể chi tiết ở truyện) Ko lâu sau cô thành pháp sư và được mời dến Hoa Viên Điện.
+ 
+Yue (Thiên Yết): nam
+Pháp sư làng Yon
+Tóc: đen
+Mắt: diều hâu
+Vũ khí: kim cương (tạo ra kim cương và phóng chúng đi) & sợi dây chuyền hình đôi cánh bằng kim cương (tạo ra đôi cánh để bay lên)
+Linh lực: cao
+Biểu tượng: đôi cánh
+- Trở thành 1 chàng trai lạnh lùng khi nhìn thấy cảnh cha anh giết vợ mình (mẹ của anh), khi đó cha anh uống rượi say khi đó cha anh định đâm anh bằng con dao mẹ anh tặng nhưng mẹ anh đã chắn cho anh. Nhìn anh bằng đôi mắt diều hâu hiền từ... Sau khi anh trở thành pháp sư anh được mời đến Hoa Viên Điện.
+ 
+Nagama (Bảo Bình): nam
+Pháp sư làng Ju_ni
+Tóc: đen
+Mắt: đen
+Vũ khí: kiếm (ko bao giờ gãy) & thuật bắt bóng (bắt bóng và khiến kẻ thù làm theo động tác của mình)
+Linh lực: khá cao
+Biểu tượng: đom đóm
+- 1 chàng trai ham chơi ham chơi ham học, con của Trưởng Làng Ju_ni cậu thường bị mắng vì cái tính ham chơi ko bao giờ chịu ngủ đúng giờ chọc phá ko cho người khác ngủ. Hay rủ em trai của mình - Haku, trốn nhà đi chơi vào buổi tối. Được mời đến Hoa Viên Điện sau khi trở thành pháp sư.
+ 
+Kiyomoto (Ma Kết): nam
+Tóc: cam
+Mắt: cam
+Vũ khí: vòng tay gió (tạo kết giới gió và phản công) & cơ thể (dồn linh lực vào trong bộ phận nào của cơ thể khiến chúng mạnh thêm 1 cách kì lạ)
+Linh lực: cao
+Biểu tượng: lông vũ
+- 1 chàng trai điềm đạm, đẹp trai. Ko bao giờ hấp tấp khi làm việc gì, lúc nào cũng bình tĩnh. Con trai của pháp sư tiền nhiệm (đúng là cha truyền con nối), anh là pháp sư kế nhiệm. Rất nhiều tiểu thư thích anh nhưng anh ko quan tâm đến họ. Anh được trưởng làng Rei mời đến Hoa Viên Điện.
+ 
+Tomoyo (Nhân Mã): nữ
+Pháp sư làng San
+Tóc: tím
+Mắt: nâu
+Vũ khí: cây quạt (quạt 1 cái nhẹ: gió lớn nổi lên, quạt mạnh: bão tố kéo tới)
+Linh lực: cao
+Biểu tượng: Thanh kiếm Rose (sau lưng)
+- 1 cô bé dễ thương, nhanh nhẹn, ham học hỏi. Luôn luôn đi chơi rất ít khi ở nhà. Anh chàng hàng xóm đã để ý cô từ lâu - Hahaka. 1 hôm anh chàng đó nói ra cô đã đồng ý vì cô đang có chuyện vui (đồng ý đại khỏi phải vướng chân), chuyện vui là cô đã trở thành pháp sư. Và được mời đến Hoa Viên Điện nữa chứ.(hehe.)
+ 
+ 
+Wendy (Song Ngư): nữ
+Pháp sư làng Ju_ichi
+Tóc: xanh biển
+Mắt: đen
+Vũ khí: cây đinh ba Neptuyn (triệu hồi các con vật ở nước, điều khiển nước)
+Linh lực: cao
+Biểu tượng: Vỏ ốc Iupite (vỏ ốc của thần biển)
+- 1 cô nàng rất đáng yêu và còn rất "con nít" nữa, trở thành pháp sư của 1 ngôi làng nằm sát bên bờ biển - làng Ju_ichi. Cô được khá nhiều người để ý chỉ tiếc là cô quá hiếu thảo với cha mẹ mình nên ko quan tâm đến các chàng. Họ cho rằng cô lạnh lùng vì lí do đó, nhưng trong lòng cô rất nhiều cảm xúc khó diễn tả được...Rồi cô được mời đến Hoa Viên Điện lộng lẫy của làng Rei.
+ 
+Shakuke (Xà Phu): nam
+Là 1 bán yêu. Có ý đồ với Ezra và ngọc Astraea.
+Tóc: tím nhạt
+Mắt: đỏ cam
+Vũ khí: tay ko ( chiêu thức của địch, sau khi địch sử dụng sẽ sao chép và ghi nhớ. Đánh lại địch bằng chiêu thức của địch)
+Linh lực: cao
+Biểu tượng: Ngọc ác quỷ
+- Cha của anh là yêu quái, mẹ của anh là công chúa của vương quốc Zodiac. Đã phải lòng cha anh rồi cùng bỏ trốn. Nhưng sau khi sinh ra anh, mẹ của anh bị bọn yêu quái giết hại. Chúng thoả thuận với con người: giết gia đình của anh. Cha anh đã nuôi hận thù, cho đến khi anh lớn, ông nói với anh: con phải làm chủ yêu quái rồi giết con người. Vài hôm sau, ông bị 1 pháp sư giết. Từ đó anh hận cả tất cả nhưng ko biết rằng có 1 yêu quái rất yêu anh.
+ 
+ 
+ 
+ 
+GTNV Phụ:
+Trưởng làng Rei (nam)
+Tóc: nâu
+Mắt: tím
+Vũ khí: tay không (đọc được suy nghĩ, quá khứ của địch)
+Linh lực: cao
+Biểu tượng: Thạch anh tím
+- Là người đứng đầu làng Rei, người đã mời 12 pháp sư đến và nhờ giúp đỡ 1 chuyện quan trọng.
+ 
+ 
+ 
+Cucika (nam)
+Con trai của trưởng làng Rei
+Tóc: đen
+Mắt: đen
+Vũ khí: cây gậy gỗ dài ( dùng để tập luyện, và điều khiển gió)
+Linh lực: khá cao
+Biểu tượng: Thạch anh vàng
+- 1 cậu bé nhí nhỏm và đáng yêu, mẹ cậu qua đời sớm nên hễ có người nào trông giống bức chân dung của mẹ thì cậu gọi người đó là mẹ. Trong làng ko ai giống mẹ cậu chỉ có người đó... Cha cậu ko cho cậu đi đâu cả, vì cha rất thương cậu nhưng cậu đã nhiều lần trốn ra ngoài nên ngài phải mắng cậu làm cậu ngày càng ko còn thiện cảm với cha mình...
+ 
+Nana: nữ
+1 con hồ ly tu luyện ngàn năm. Làm việc cho Shakuke(XP)
+Lông: trắng
+Mắt: vàng nâu
+Khả năng: thuật biến hoá (có thể biến mọi thứ thành những gì thích. Kể cả chính bản thân nó)
+Linh lực: trung bình
+- 1 con hồ ly chín đuôi và hay phá hoại mùa màng của con người, khi có chuyện buồn bực thì ăn thịt người, người đời gọi nó là Cửu Vĩ Hồ Ly. Nó có cả 1 đàn em theo sau. Khi nó gặp Shakuke thì cứ đi theo, dường như biết được ý đồ của nó hắn cho phép nó làm việc cho mình. Cửu Vĩ Hồ Ly sinh tình cảm với hắn nên đã ở bên và bảo vệ hắn cùng đàn.
+ 
+Khi trở thành thiếu nữ:
+Tóc: nâu
+Mắt: vàng nâu
+Vũ khí: lợi dụng vẻ ngoài của mình, sau đó thôi miên địch (trừ những người ko quan tâm đến vẻ ngoài của mỹ nhân)
+Linh lực: khá cao
+Biểu tượng: ngọc anh tím (cài trên tóc)
+- Tuy nhiên khi biến thành dạng này thì phải biến lại thành hồ ly thì mới biến thành dạng khác được.
+Hình nv bên trang 2 và 3

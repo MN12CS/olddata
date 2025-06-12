@@ -1,0 +1,46 @@
+---
+title: "Nước mắt Cự Giải"
+date: 2025-06-12T15:43:17Z
+slug: nuoc-mat-cu-giai
+draft: false
+---
+
+## Nước mắt Cự Giải
+
+## Fiona Dao
+
+Nước mắt Cự Giải
+
+ "Đằng sau từng lời hờ hững
+Là tháng năm sắp qua rồi
+Đằng sau nụ cười hạnh phúc 
+Là tiếng khóc lúc không người..."
+
+***
+Đã lâu thật lâu... nó mới được khóc nhiều đến như thế...
+
+Một chiều mùa hè, cái nắng gay gắt của đất trời Sài Gòn luôn sẵn sàng làm bốc hơi bất kì giọt nước nào rời xuống nền đất bỏng rát. Cự Giải ngồi đó. Nó suy nghĩ về nó, về anh, về cuộc đời...bất chợt nó lại yếu đuối...
+
+Nó đã từng dặn nó phải mạnh mẽ lên. Nó không cho phép bản thân nó yếu đuối vì bất kì ai. Nó luôn tỏ ra bất cần và du đãng... Nhưng gần đây nó trở nên yếu đuối quá...hay suy nghĩ...hay tủi thân...hệt như nó hồi 3 năm về trước...
+
+Cự Giải 17 tuổi, nó vui vẻ đón nhận một ngã rẽ từ cuộc sống của nó... Nó luôn tin rằng nó sẽ hạnh phúc, nó luôn tin rằng sẽ có một tình yêu dành cho nó... Sẽ có một người yêu thương nó, lo lắng cho nó, dạy bảo nó cách sống với đời, chiều chuộng nó mỗi khi nó nũng nịu, ôm ấp nó mỗi khi nó yếu ớt...và rồi...3 năm trôi qua...nó vẫn sống rất tốt...nhưng niềm hi vọng kia đã lụi tàn rồi...
+
+Nó ép buộc nó sống khắc khổ với đời, nó bắt chính nó phải nghiêm khắc với bản thân nó, nó bắt nó phải làm được những thứ mà người khác làm được, nó bắt nó phải đứng thật vững vàng...và bước đi một mình...
+Để đêm đến nó lại một mình, một mình cùng với thứ gì đó nhỏ nhoi trong tâm hồn của nó...
+
+20 tuổi, Cự Giải đã không còn nhỏ bé... nó sẵn sàng xù lông vơií tất cả những ai mà nó cho là có ý định làm tổn thương nó. Đúng thôi, nó không muốn khóc vì bất cứ ai nữa...
+
+Và 20 tuổi, Cự Giải lại khóc...
+
+Chiều tà, nó lặng yên mà ngắm nhìn đường phố. Bất giác nó lại nhớ anh...không biết anh đang làm gì...nó đã xóa số anh rồi... nó phải cố gắng lắm mới có thể hoàn thành cái thao tác đó... 
+Rồi nó khóc... nước mắt cứ rơi thôi và nó chẳng biết gì nữa...
+Nó đã làm gì sai nhỉ? Hay nó không xứng đáng để sống , để được yêu? 
+Boo chỉ biết ngồi bên cạnh mà nghe nó khóc thôi... tội nghiệp ...
+
+Nó thật sự không hiểu tại sao nó lại bị đối xử như vậy... chẳng thành anh nói cho nó 1 cái lý do nào đó, để có thể làm nó gục ngã luôn đi, có thể là nó quên anh thật nhanh như hơi nước bốc lên đi...
+
+A thích làm nó đau khổ lắm à? Anh có biết từng lời anh nói với nó lúc trước bây giờ là những mũi dao cắm vào tim nó không???
+
+Hay đối với anh nó chỉ là một trò chơi, và anh là kẻ luôn luôn chiến thắng...
+"Người đi, ừ nhỉ, người đi thật"Nước mắt Cự Giải là một thứ hiếm hoi đối với người đời...bởi nước mắt nó không trong suốt...mà là máu... 
+ taoxanh.net

@@ -1,0 +1,13 @@
+---
+title: "Cây cung và Nhân Mã ♥"
+date: 2025-06-12T12:33:54Z
+slug: cay-cung-va-nhan-ma
+draft: false
+---
+
+## Cây cung và Nhân Mã ♥
+
+## teddyhangvu
+
+Sao gắn với Nhân Mã là chiếc cung?. Chiếc cung thường gắn liền với chiến tranh, với những cuộc đi săn bất tận và những chiếc cung đôi khi còn là hình ảnh của sự công bằng, của lẽ phải, của những vị anh hùng để bảo vệ người dân, bảo vệ lẽ phải. ​ 
+Cây cung và Nhân Mã là 2 hình ảnh luôn gắn chặt với Nhân Mã. Mã và cung – cung và Mã – cung thủ và người ngựa luôn gắn với nhau , như muốn nói đến bản sắc anh hùng trong Nhân Mã. Mã lại là cung mang mệnh Hỏa, là​ cung đầy dữ dội và máu lửa. Ở Nhân Mã, có điều gì rất bình thường nhưng cũng đầy chất hoang dã. ​ ​Nếu cho Mã 1 khoảng trời bất tận, và không gian là 1 bóng đêm..Mã sẵn sàng chạy đua trong bóng đêm và dùng chiếc cung của mình để đâm bầu trời, tìm về bầu trời. Sự hoang dại, ngạo nghễ, hung tàn và anh hùng, tất cả đều chảy trong Mã…bất tận và đầy thách thức. Có lẽ, cung không sợ chết nhất là Nhân Mã và kẻ ngang tàng đó cảm tưởng như muốn thách thức cả với Thần Chết.​ ​Cung khi đã giương, cũng là lúc 1 kẻ bạo tàn hoặc 1 anh hùng xuất hiện. Sự bạo tàn, sẵn sàng vì tất cả làm nổ tung tất cả những gì hắn qua, chỉ để hắn cảm thấy mình là số 1 nhưng cũng có thể là 1 người anh hùng đứng lên để lên tiếng cho sự công bằng. Sự phóng khoáng, tự do và đầy tham vọng luôn cuồn cuộn chảy trong Nhân Mã. ​ ​Như trong truyện “ Con Nhân Mã trong vườn” đã từng nhận xét như sau : "Như con ngựa có cánh sắp cất vó bay lên về phía những ngọn núi hoan lạc vĩnh hằng, về phía bộ ngực của Abraham. Như con ngựa với những bộ móng đang nhảy múa, sẵn sàng phi nước đại qua thảo nguyên. Như con nhân mã ở trong vườn, sẵn sàng nhảy qua tường rào để tìm kiếm tự do."..​ ​Ở con ngựa hoang đó, không có gì ngăn cả nó, ngay cả cái chết. Dữ dội và thăm thẳm,dù là ai thì mỗi cây cung bắn ra, thì cũng là mũi tên chứa đầy độc, tên đã bắn thì không dừng lại và tên đã đi là đâm thẳng chính diện và Mã ở đó, cao ngạo và đầy thách thức kẻ thù. Chiến đấu với Mã là những cuộc chiến không dừng, và ở đó, kẻ bạo tàn ngang ngược cùng người anh hùng cứ luôn bên nhau với những cây cung bắn ra khắp nơi, như để bảo vệ, để chiến thắng và thách đấu với tất cả những gì Mã đi qua, với số phận , thiên nhiên, con người và chính bản thân Mã …​ ​Và Mã sẽ tiếp tục giương cung để bắn màn đêm và chạy đua với mặt trời trên hành trình bất tận đó …Để rồi, Mã sẽ tìm được chân lý ẩn sau những cây cung bạc chứa đầy sự ngọt ngào …​ ​-Kusa- Khi share vui lòng share nguồn  ​ngoinhanhanma23112112​

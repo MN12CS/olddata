@@ -1,0 +1,19 @@
+---
+title: "Đôi Bàn Tay"
+date: 2025-06-12T16:01:44Z
+slug: doi-ban-tay
+draft: false
+---
+
+## Đôi Bàn Tay
+
+## S2gak0nS2
+
+hi nhìn vào đôi bàn tay, tôi chợt tự hỏi rằng trong cuộc đời mình có bao nhiêu bàn tay đã nắm lấy tay tôi, trong những lần bắt tay chào hỏi, trong những trò chơi sinh hoạt, hay những buổi đi công tác xã hội ở những trung tâm trẻ mồ côi? Nhiều, tôi không nhớ hết! Nhưng điều tôi nhớ rất rõ đó là những bàn tay vô hình, của cha, của mẹ tôi, của anh chị em tôi, và của cả người tôi yêu mến nhất. Để có những giây phút đứng vững và tự tin trong cuộc sống này, tôi đã nhờ đến những bàn tay vô hình mà gần gũi đó. Vô hình, bởi vì những người thân yêu trong cuộc đời tôi là những người dân quê mùa chất phác. Văn hóa làng quê khiến một cái nắm tay, một vòng tay ôm áp vỗ về của những người trong Gia Đình trở nên sự ngại ngùng. Gần gũi, không phải đến từ việc tay nằm trong tay, nhưng từ sự quan tâm chân thành mọi người dành cho nhau. 
+
+Tôi biết ơn cả những cái nắm tay hờ hững, vờ như xa lạ nhưng lại cần thiết để tôi đối diện với chính mình. Tôi không thể đòi hỏi nơi người khác điều mà chính họ nghĩ rằng không giúp ích cho tôi. Từ chối cũng là một cách yêu, có khi còn hơn là một lời chấp nhận miễn cưỡng.
+Nhìn vào bàn tay để thấy cõi lòng mình còn lạnh nhạt và ơ hờ với biết bao người gần gũi thân quen. Bàn tay đóng lại với cái ngửa tay của một người ăn xin khốn khổ. Bàn tay thu lại trước một người đang rất cô đơn và tuyệt vọng, khi mà chỉ còn một vòng tay ôm, một lời an ủi là cũng đủ cho họ thêm Niềm Tin vào cuộc sống, vào con người, vào chính bản thân mình. Và thậm chí tệ hơn, bàn tay đã “ném đá giấu tay”, cảm thấy mình thật hèn nhát, dám làm nhưng không dám gánh trách nhiệm. Quả thật, khi con tim đóng lại thì bàn tay khó có thể mở ra để cho đi hay nhận lấy.
+Người ta nói rằng một bàn tay chắp lại cầu nguyện thì tốt nhưng càng tốt hơn nếu mở ra để cho đi. Có khi tôi tự hỏi tại sao con người lại có hai bàn tay, mà không phải một, hoặc ba? Và tôi đi tìm lời lý giải cho riêng mình. Hai bàn tay, phải chăng một để cho đi và một để đón nhận? Đôi khi bàn tay cho cũng là bàn tay để nhận và tay nhận lại cũng là tay để cho đi. Trời sinh ra hai bàn tay vốn thế, nhưng điều quan trọng là tôi đã sử dụng đôi tay mình cho đúng với điều đáng ra nó phải thế hay không, là để cho và để nhận? Như vậy, phải chăng sự què quặt của đôi tay không phải là do một khuyết điểm thể chất nào đó cho bằng hoặc nó bị chai cứng do chỉ toàn nhận lấy, hoặc trở nên rã rời do mãi cho đi? Nhưng có thể nào ai đó chỉ biết cho đi những giá trị thực sự khi chẳng bao giờ đón nhận giá trị từ người khác? Tôi nghi ngờ điều đó, vì cuộc sống con người tất yếu phải là sự hỗ tương, là sống để cho và để nhận.
+Một bàn tay đẹp và hoàn hảo là một bàn tay biết mở ra và nắm giữ đúng lúc. Và nếu để ý quan sát hai người nắm tay nhau, đặc biệt hai người đang yêu nhau, bạn sẽ thấy mười ngón tay hòa vào nhau thật vừa khớp! Bạn sẽ không thể nào nắm lấy tay một người khác nếu trước đó bạn đã không mở bàn tay mình ra. Và bàn tay bạn sẽ chơ vơ nếu không cùng nắm lấy tay của một ai đó đang yêu thương bạn.
+Cuộc sống có những khoảnh khắc trầm lắng để suy ngẫm về bản thân là một cuộc sống đậm đặc sự hiện hữu, và do đó có đầy lý do để chọn sống. Điều làm cho một người cảm thấy đời sống mình vô giá trị có khi chỉ vì không nhìn thấy những giá trị lớn lao đang tiềm ẩn và thể hiện nơi những điều rất nhỏ bé, nơi chính mình và trong cuộc sống những người chung quanh.
+Giờ đây, khi đã trưởng thành và tung cánh giữa cuộc đời, đã gặp gỡ và quen biết bao nhiều người với những lần bắt tay chào hỏi xã giao, tôi vẫn không làm sao quên được những bàn tay vô hình mà gần gũi của cha mẹ và những người thân thiết. Xin cảm ơn những bàn tay đã mở ra để cho cho tôi bài học về lòng quảng đại, sự hy sinh quên mình và bàn tay đã sẵn sàng nắm lại để giữ tôi khỏi té ngã mỗi khi giông bão ùa về.

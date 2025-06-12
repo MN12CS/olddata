@@ -1,0 +1,19 @@
+---
+title: "Giúp với, Bảo Bảo kết Mã Mã"
+date: 2025-06-12T11:15:20Z
+slug: giup-voi-bao-bao-ket-ma-ma
+draft: false
+---
+
+## Giúp với, Bảo Bảo kết Mã Mã
+
+## KagamineTsuki
+
+Chả là......tớ thuộc tộc Bảo Bảo...... 
+Tính tình theo mọi người thì hơi kì quái xí...... 
+Nguy hiểm hơi hướng nhà Yết =.= (lãng xẹt) 
+............
+Chả là ..... tớ thích bạn Mã Mã kùg lớp..... 
+Mà bạn nam nì thì........theo đặc tính Mã Mã + nhà Cự Giải............... 
+Tớ muốn die quá......... 
+Cho tớ biết làm kách nào làm kái tên nhà mã đó gục đi.............T.T

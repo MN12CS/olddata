@@ -1,0 +1,24 @@
+---
+title: "[Giới thiệu sách] Yêu nhầm chị hai được nhầm em gái"
+date: 2025-06-12T12:32:53Z
+slug: gioi-thieu-sach-yeu-nham-chi-hai-duoc-nham-em-gai
+draft: false
+---
+
+## [Giới thiệu sách] Yêu nhầm chị hai được nhầm em gái
+
+## cutichoigame
+
+Yêu nhầm chị hai được nhầm em gái - Là Tác phẩm văn học mạng thu hút hơn 27,659 comments và 1,739,869 view sau hơn 1 tháng đăng tải trên diễn đàn VOZ và đến nay sau 20 ngày lập một thread thứ 2 con số độc giả quan tâm lên đến 837,676 người. Và bạn có phải là người tiếp theo?
+ 
+Có lẽ đối với mọi người, bóng đá là một môn thể thao để rèn luyện sức bền và thể lực, để vui chơi giải trí cho thư thái đầu óc. Nhưng đối với tôi, nói trắng ra thì bóng đá là dịp để tôi….thể hiện bản lĩnh, nói cách khác là để “ lấy le “.
+ Nhưng lấy le với ai ? Lúc nhỏ, tôi khoái dẫn bóng qua mặt mấy thằng bạn trong xóm rồi cười hề hề ra oai, lớn hơn chút nữa, tôi thích những pha “đảo người xỏ kim” ngọt xớt để làm đần mặt bọn đội bạn. Sang cấp 2, tôi đã bắt đầu thấy thinh thích mỗi khi nghe tụi con gái cùng lớp vỗ tay bình phẩm những câu đại loại như “ - Nam đá bóng hay ghê là ! “ , hay là “ Nhìn ông này y chang cầu thủ trên ti vi ! “ . Tôi khoái chí cười tít mắt, được nước càng lấn tới, cứ có bóng là rê chân đảo người liên tục để khoe kĩ thuật của những năm tháng tập bóng một mình ở nhà.. Tất cả chỉ vì đôi chân tôi nó lèo khèo gì đâu, dẫn bóng giỏi bao nhiêu thì sút bóng dứt điểm càng tệ bấy nhiêu, thế nên trong trận đấu, tôi chỉ lãnh trách nhiệm kiến tạo bóng hay đột phá gây….thót tim đối phương. Chứ cứ mỗi lần bặm môi dứt điểm là bóng không lao ra ngoài khung thành cả thước thì cũng văng cái tọt xuống ao hồ gần đó.
+ Nhưng, tất cả xảy ra vào một buổi chiều mùa hè năm lớp 9, khi tôi cùng đám bạn rủ nhau đá bóng ở một khoảng đất trống cạnh con đường biển Đồi Dương. Vẫn như mọi khi, tôi miệt mài dẫn bóng tạo cơ hội cho bạn bè tác nghiệp, nhưng sân thì rộng, gió thì mát, thế nên tâm hồn bay bổng, tinh thần phơi phới. Tôi chả buồn giữ vị trí nữa, có bóng là co chân sút luôn.
+ Thế là cú sút bóng mà tôi gọi là “ huyền thoại “ ấy bay thẳng vào căn nhà có cánh cổng sắt màu đen, phá tan tành cái bóng đèn tròn thuỷ tinh trên trụ cổng. Ít phút sau, tôi đần mặt ra không phải vì sợ chủ nhà xách chổi rượt chạy cả đám, mà vì trước mắt tôi là một cô bé đang giận dỗi vì bóng rơi xuống hồ làm nàng ướt sũng.
+ Và cô bé ấy, là mẫu người con gái trong mơ của tôi, không sai xích đi 1 ly nào so với những gì tôi hằng mong đợi cả, tóc đuôi gà búi cao, gương mặt thanh tú cùng đôi gò má kiêu kỳ, bờ môi đỏ hồng khi mỉm cười lạnh lùng. Thế rồi người con gái trong mơ ấy….ném thẳng quả bóng vào mặt làm tôi tỉnh mộng, rú lên khiếp đảm rồi ngã lăn ra đất vì bóng bay vô mặt đau thấy mấy ông trời. Tôi ấn tượng lắm, lập ngay kế hoạch….sút tiếp bóng vào nhà nàng để được làm quen, và sau khi ăn tiếp vào mặt một quả bóng nữa thì tôi mới ỉu xìu chuồn thẳng về nhà, thầm hãi hùng vì người đẹp mà hung !
+ Ngày nhập học lớp 10, không biết duyên số run rủi làm sao mà tôi lại gặp được cô bé ấy thêm một lần nữa, và hình như là gặp hoài chỉ vì kể từ hôm đó, hai đứa tôi học chung lớp. Tôi mừng hết lớn, định bụng sẽ sử ra tuyệt chiêu “ lửa gần rơm lâu ngày cũng bén“ của các bậc anh hùng đi trước để tán đổ Tiểu Mai, cô nàng đã ném bóng thẳng vô mặt tôi những 2 lần liên tiếp.
+ Nhưng đã gọi là duyên số thì chẳng thể nào lường trước được, khi mà ông trời lại sắp xếp thêm cho bí thư 10A1 nổi tiếng xinh xắn dễ thương trong trường, Khả Vy, tuy không ném bóng vào mặt tôi như Tiểu Mai, mà lại ném…những ánh nhìn hút hồn liên tục vào thằng con trai suốt ngày cứ đần mặt ra vì con gái là tôi này. Khiến cho tôi lúc nào cũng lâm vào thế bối thuỷ trước mặt là địch sau lưng là sông, tiến tới tiếp cận Tiểu Mai cũng không được mà lùi lại sóng bước với Khả Vy cũng không xong.
+ Vậy nên tôi chỉ biết thở dài não ruột trong….vui sướng, phân vân không biết nên chọn Tiểu Mai – mẫu người trong mộng hay là Khả Vy – cô nàng xinh xắn. Thôi thì đành để sự thể nó đến đâu thì tôi theo đến đấy, chốt lại một câu giống như vào cuối chương của Tam Quốc Chí nhé.
+ Hạ hồi phân giải ! ^^!
+ 
+Một số thông tin ngoài lề : Cho tới hiện nay tác phẩm Văn học mạng đang là nguồn sáng tác thơ cho rất nhiều cây thơ trẻ trong mọi miền tổ quốc, và theo đánh giá của các bạn trẻ thì "Yêu nhầm chị hai...được nhâm em gái" đang là cảm hứng sáng tạo cho rất nhiều bạn trẻ. Một tác phẩm Văn học mạng được chính các độc giả mạng đánh giá là trong sáng nhất hiện nay. Với sự góp mặt của các nhân vật có thật ở ngoài đời, hiện cuốn sách đang là tâm điểm chú ý và thu hút được hàng triệu lượt quan tâm của các bạn độc giả dành cho dòng Văn học mạng.

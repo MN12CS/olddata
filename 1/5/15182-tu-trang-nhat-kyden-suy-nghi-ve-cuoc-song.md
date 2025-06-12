@@ -1,0 +1,15 @@
+---
+title: "từ trang nhật ký...đến suy nghĩ về cuộc sống"
+date: 2025-06-12T13:20:07Z
+slug: tu-trang-nhat-kyden-suy-nghi-ve-cuoc-song
+draft: false
+---
+
+## từ trang nhật ký...đến suy nghĩ về cuộc sống
+
+## moonlight
+
+Cầm trên tay một quyển nhật ký mới được tặng. Thở dài. Đã lâu rồi từ ngày tôi lần đầu biết đến khái niệm 'nhật ký'. 
+Nói một cách đơn giản, thì nó là 1 quyển sổ ghi lại suy nghĩ hay hoạt động của bạn từng ngày, văn vẻ hơn thì nhật ký như một người bạn tâm tình chia sẻ, không phản bác, cằn nhằn, lải nhải giảng đạo mà chỉ im lặng cho bạn gửi nỗi lòng mình. Chính vì vậy mà rất nhiều người, nhật ký đã trở nên quen thuộc và thân thiết "như hình với bóng". Nói đâu xa, trong lớp tôi học có rất nhiều bạn có thói quen viết nhật ký. Cô giáo cũng tán thành: "các anh về nhà viết nhật ký đi, cách tốt nhất để rèn luyện văn học đó". "Ừ, rèn luyện văn học. Mang tiếng học văn tốt mà mình lại chưa viết nhật ký lần nào, buồn cười thật"- Tôi thầm nghĩ và ngay ngày hôm đó, tôi bắt đầu viết nhật ký.
+"Ngày buồn, tháng nhớ, năm thương, thế kỷ sầu..." Mới viết được bây nhiêu thì tôi ngồi cắn bút. Viết gì bây giờ. Hôm nay chẳng có gì đáng để viết cả. Vậy là tôi bắt đầu suy nghĩ xem nên viết cái gì. Mà cứ y như rằng khi suy nghĩ là tâm trí tôi lại lang thang miên man vô định. Tại sao lại nên viết nhật ký nhỉ, ghi lại những sự việc xảy ra hằng ngày thì có lợi gì nhỉ? Tôi bất chợt nhìn vào trang nhật ký. Đúng vậy, nó chỉ là một trang giấy rất đỗi bình thường thôi mà sao nhiều người gửi hết những tâm sự, những bí mật không thể nói cho bất cứ ai, tất cả đều lưu giữ trong trang nhật ký. Ừ thì, nhật ký như người bạn chỉ lắng nghe mà không nói năng chi, và nhiều người chỉ cần bấy nhiêu là đủ. Họ chỉ cần một người, một vật hay bất cứ cái gì biết lắng nghe họ, để họ sẻ chia những tâm tình, lo toan, suy nghĩ trong cuộc sống bận rộn. Nhưng quả thực, kể hết những gì mình biết, mình nghĩ, mình cảm nhận vào một trang giấy quá đỗi mỏng manh là điều đáng để cân nhắc. Nếu như ngày xưa, cuộc sống không toan tính mà chỉ có những yêu thương đùm bọc thân tình thì nhật ký chính là thứ để chia sẻ suy nghĩ của mình một cách chân thực nhất, giống như bác sĩ Đặng Thuỳ Trâm cùng quyển nhật ký bất hủ. Nhưng ngày nay, trong thời buổi hội nhập biến động, mấy ai chắc chắn, cuốn nhật ký còn đủ tính trang trọng để chỉ có mình ta được tâm tình? "Đời người mấy ai tìm được tri kỷ, chỉ có mình ta hiểu bản thân" -nếu đúng như vậy thì phải chăng, bộ não chính là cuốn nhật ký tốt nhất và bí mật nhất? Nhưng có thật giữ quá nhiều suy nghĩ phiền muội cho riêng mình là điều đáng nên làm? Có quá nhiều câu hỏi, và tốt nhất là đừng nên nghĩ về chúng mà cứ coi nhật ký mãi là người bạn tốt nhất, cho dù trong cuộc sống hiện nay, có lẽ nó đã mất đi một phần tính bí mật, riêng tư, tôn trọng suy nghĩ cá nhân của một quyển nhật ký  
+Đôi khi tự hỏi, liệu mình sinh ra tại một đô thị nhộn nhịp có thật là một điều may mắn?

@@ -1,0 +1,15 @@
+---
+title: "Sự khác biệt giữa Song Tử - Thiên Bình - Song Ngư (P1)"
+date: 2025-06-12T13:18:51Z
+slug: su-khac-biet-giua-song-tu-thien-binh-song-ngu-p1
+draft: false
+---
+
+## Sự khác biệt giữa Song Tử - Thiên Bình - Song Ngư (P1)
+
+## zizu2000
+
+Thấy bên FaceBook nên copy về để mọi người cùng xem ^^
+Nguồn : 
+face book Libra Spirit - Linh Hồn Thiên Xứng (23/09-23/10)​ 
+12 Cung Hoàng Đạo có thể chia ra 4 yếu tố - 3 đặc tính - 2 nguyên tắc:​ ​4 yếu tố : Lửa - nồng nhiệt (Bạch Dương , Sư Tử ,Nhân Mã)​ Đất - thực tế (Kim Ngưu,Xử Nữ, Ma Kết)​ Không khí - trí thức ( Song Tử , Thiên Bình , Bảo Bình)​ Nước - tình cảm (Cự Giải , Hổ Cáp ,Song Ngư)​3 đặc tính: ​Thống lĩnh (tham vọng , kiêu kỳ) - Bạch Dương ,Cự Giải ,Thiên Bình, Ma Kết​Ổn định (quả quyết , ương bướng) - Kim Ngưu , Sư Tử , Hổ Cáp ,Bảo Bình​Biến đổi (thích nghi, dễ thay đổi) - Song Tử , Xử Nữ ,Nhân Mã ,Song Ngư.​2 nguyên tắc:​Chủ Động : Bạch Dương , Song Tử , Sư Tử , Thiên Bình,Nhân Mã , Bảo Bình - Hòa đồng cởi mở​Bị Động : Kim Ngưu , Cự Giảii , Xử Nữ,Hổ Cáp , Ma Kết , Song Ngư - thu mình nhường nhịn.​ ​Trong đó có bộ 3 các sao có 2 loại tính cách : Song Tử , Thiên Bình , Song Ngư.​ ​Nếu sắp xếp theo thứ tự Vòng Xoay Cung Hoàng Đạo, ta sẽ có thứ tự của bộ 3 này như sau :​ Song Tử - Thiên Bình - Song Ngư.​ ​Ta có thể hiểu rằng Thiên Bình được lấy làm điểm mốc giữa của 3 cung ​Song Tử : tuy có sự giằn xé giữa 2 tính cách , nhưng là 2 tính cách cá thể có quyết định độc lập.Hoặc tính cách A nổi trội , hoặc tính cách B nổi trội.Do vậy , người ngoài nhìn vào Song Tử sẽ là người đa nhân cách.​ ​Khi có 1 vấn đề xảy ra , Song Tử sẽ giải quyết vấn đề tùy theo tình thế , để cho bản năng giải quyết, và không bận tâm đến nữa .​ ​Thiên Bình : Trong Thiên Bình mang cùng lúc 2 tính cách , trong cùng 1 cơ thể. Sự giằn xé xảy ra thường xuyên , và Thiên Bình luôn trong tình trạng nữa này nữa nọ.​ ​Khi có vấn đề xảy ra, Thiên Bình thường không thể giải quyết được vấn đề một cách nhanh chóng(vẫn có thể giải quyết được).Bên trong Thiên Bình sẽ có sự đấu tranh giửa tính cách A và tính cách B, giữa cái tốt và cái xấu.Dù cho khi đã đi đến kết luận cuối cùng của vấn đề , Thiên Bình vẫn còn suy nghĩ về nó. Điều đó cũng có thể hiểu vì sao Thiên Bình chỉ có thể bước một chân lên đến Thiên Đường,và chân còn lại thì cứ vấn vươn trần thế.​ ​Song Ngư : bản chất Song Ngư cũng là 2 cá thể độc lập, nhưng lại bị xích vào nhau.Mặc khác 2 tính cách cá thể của Song ngư đều yếu đuối (loài cá) không thể chống cự được sợi xích , và cuối cùng là phó mặc cho dòng chảy đưa đi. Do vậy , Song Ngư cũng có sự đấu tranh từ bên trong giữa 2 tính cách , nhưng rất yếu ớt, và cuối cùng chẳng thể giải quyết được vấn đề.​ ​Khi có vấn đề xảy ra , Song Ngư thường giải quyết theo số đông , theo dòng chảy cuộc sống,hoặc để người khác quyết định dùm mình, và Song Ngư không còn bận tâm thắc mắc xem quyết định đó là đúng hay sai, là khôn hay dại.​ ​

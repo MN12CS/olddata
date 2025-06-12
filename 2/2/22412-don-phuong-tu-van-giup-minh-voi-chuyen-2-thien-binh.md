@@ -1,0 +1,12 @@
+---
+title: "Đơn Phương Tư vấn giúp mình với, chuyện 2 Thiên Bình"
+date: 2025-06-12T16:06:11Z
+slug: don-phuong-tu-van-giup-minh-voi-chuyen-2-thien-binh
+draft: false
+---
+
+## Đơn Phương Tư vấn giúp mình với, chuyện 2 Thiên Bình
+
+## rogue shadyblood
+
+Mình và em ý cùng thuộc chòm sao Thiên Bình. Em ý kém mình 2 tuổi và đang học lớp 11, mình từng học cùng cấp 3 với em ý nhưng lúc đó chưa hề quen biết gì nhau mà sau này qua Facebook mình mới quen được. Không hiểu sao mình với em ý chưa gặp mặt chính thức 1 lần nào nhưng mình rất thích và quý em ý. Cả 2 chỉ thường nói chuyện với nhau qua Facebook và nhắn tin. Nhưng vấn đề bắt đầu ở chỗ mình bị ngộ nhận và nghĩ rằng em ý cũng thích mình, bởi vì em ý nói chuyện với mình khá thân mật và thỉnh thoảng hay quan tâm mình nữa nên mình tưởng vậy  Và khi ngộ nhận rồi mình bắt đầu bày tỏ tình cảm nhưng cuối cùng lại bị từ chối. Từ đó mình càng quan tâm thì em ý càng xa mình hơn. Chuyện gì phải đến cũng đến, mình đâm ra chán nản và bắt đầu chọc phá em ý qua Facebook và qua tin nhắn (lúc đó mình có cảm giác thất bại và điên điên lên rồi nên mình chẳng thèm quan tâm đến hậu quả nữa). Cuối cùng em ý block Face mình, block cả số điện thoại mình. Lúc đấy mình cũng chấp nhận và tự nhủ rằng sẽ quên em ấy mãi mãi. Nhưng được vài tuần thì mình bắt đầu ko chịu nổi, mình nhận ra mình đã yêu người đó và có lúc mình đã khóc vì nuối tiếc những thời gian tốt đẹp trước đây. Được khoảng hơn 1 tháng, mình thử gọi điện cho em ý thì tự nhiên thấy em ý không block sđt mình nữa (còn Face thì vẫn block). Mình quyết định nhắn tin và sau vài tin nhắn thì em ý cũng rep lại. Mình mừng lắm và làm lành với em ý thì cũng được em ý chấp nhận. Khi mình đề cập đến chuyện tình cảm 1 lần nữa, thì em ý nói bóng gió rằng mình hãy quên em ý đi. Nhưng mình vẫn cố thuyết phục rằng mình sẽ đợi em ý học xong sẽ tính đến chuyện này tiếp (lúc đấy mình chỉ cần em ý nói "đồng ý đợi" thì mình chấp nhận đợi mấy năm cũng được) nhưng em ý lại lưỡng lự, ko từ chối mà cũng ko bảo mình đợi. Mình cũng ko dám yêu cầu em ý trả lời thêm nữa vì mình biết tính Thiên Bình rất ngại quyết định việc gì đấy. Giờ mình và em ý ko còn được như trước nữa. Mình chỉ dám nhắn tin chúc thế này thế kia thôi, chứ ko dám bắt chuyện. Giờ mình phải làm thế nào? Mình yêu em ý mất rồi và sẵn sàng đợi nhưng liệu chờ đợi xong có được kết quả như mong muốn ko? Các bạn giúp mình với. Yêu Thiên Bình khổ quá

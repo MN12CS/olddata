@@ -1,0 +1,73 @@
+---
+title: "Những cặp Cung Hoàng Đạo đẹp đôi nhất (Thiên Yết - Song ngư)"
+date: 2025-06-12T15:54:26Z
+slug: nhung-cap-cung-hoang-dao-dep-doi-nhat-thien-yet-song-ngu
+draft: false
+---
+
+## Những cặp Cung Hoàng Đạo đẹp đôi nhất (Thiên Yết - Song ngư)
+
+## T.Shynn
+
+​ 
+Đây là một trong hai cặp đôi đặc biệt mô tả cho các cung hoàn hảo được kết hợp với chính nguyên tố của nó : 
+ Nước - Nước : Song Ngư -Bọ Cạp ; Đất- Đất : Ma Kết - Kim Ngưu.
+ 
+Bởi do tính thuần chất trong nguyên tố mà họ đạt được.Vì vậy để có sự kết hợp hoàn hảo thõa mãn yêu cầu của họ,tình thế dễ theo xu hướng cực đoan
+(từ "cực đoan" có nghĩa : Hoặc hoàn toàn như vậy, hoặc hoàn toàn không là thế, chứ không nữa nạc nữa mở,hoặc trắng hoặc đen, chứ không có màu xám) 
+ 
+Trong khi các cặp đôi khác phải cần đến sự kết hợp của các nguyên tố bổ sung nhau mới có thể trở nên hoàn hảo như:
+Khí và Lửa : Bạch Dương - Bảo Bình , Song Tử -Nhân Mã, Sư Tử - Thiên Xứng.
+ Và sự kết hợp của nhóm Nước và Đất :  Xử Nữ - Cự giải
+Thì họ vốn dĩ không cần được bổ sung, mà là cần được trung hòa, cần được đáp ứng mà thôi.
+         
+Nói như thế là bạn hiểu ngay : tính chất cực đoan của mối tình mà cặp đôi này có được : hoặc cực kỳ giả dối và hận thù, hoặc cực kỳ lãng mạn và thắm thiết.
+        
+Theo như nhận xét của cá nhân tôi, từ hoàn hảo cho cặp đôi này không có nghĩa là mọi người nhìn vào sẽ thấy hoàn hảo hay khi kết hợp với nhau họ sẽ là cặp đôi hoàn hảo, nhưng nó lại có nghĩa rằng họ hoàn hảo để xứng đôi cùng nhau.
+       
+ "Tình yêu là chuỗi cảm xúc dâng trào, là những sự cảm thông,những phút giây chia sẻ...là khi nhận ra sinh ra ta đã dành cho nhau.Đó thực sự là lời mô tả cho cặp đôi này."
+Thiên Yết là người đáng thương vì họ không biết yêu thương chính bản thân mình , nên bị mọi người ghét bỏ.Nhưng lại tỏ ra vẻ rất biết yêu thương bản thân mình
+ 
+          Trời sinh ra Thiên Yết bị cai quản bởi Thần địa ngục Hades .Bởi vì vậy tất cả cảm xúc của họ bị Hades cầm tù trong sự tiêu cực chết chóc.Thiên Yết có những xúc cảm mãnh liệt đến nỗi chính bản thân họ không tự mình điều khiến được mình.Một khi Thiên Yết đã đau khổ vì tình yêu, họ không chỉ đau khổ ở mức độ bình thường như khóc lóc kể lể, mà là họ đau khổ từ trong tâm hồn xâm chiếm cả thể xác. Đôi khi tự họ tổn thương bản thân mình một cách trầm trọng mà họ không cách nào điều khiển được, nếu như bạn nhìn thấy những người tự tử vì tình.....hãy tin rằng phần đông sẽ chính là Thiên Yết... còn không bạn hãy tin các Thiên Yết là những người rất dễ có bệnh nan y.
+            
+Không hiểu vì sao, trời sinh vốn dĩ ưu đãi các Thiên Yết từ thuở nhỏ.Phần đông các Thiên Yết được sống trong sự bảo bọc của gia đình, của những giá trị mơ mộng và những sự chiều chuộng nhỏ nhẹ từ khi còn bé.Bởi do họ đã quen với mức độ cưng chiều được xem là cao so với những người có tuổi thơ khá lận đận như Sư Tử hoặc Xử Nữ, hoặc Thiên Xứng, Nhân Mã ....Mà tự khi nào họ xem đó là cây thước đo tình cảm của mình và yêu cầu người yêu đáp ứng những đòi hỏi khá cao và vô cùng lãng mạng của mình.Tôi có thể ví dụ cho bạn dễ hiểu như : với người thường , tình yêu đôi khi chỉ cần là một lời hỏi thăm và sự quan tâm đến sức khỏe , nhưng với Thiên Yết họ đòi hỏi nó phải được thể hiện ra bằng hoa ,quà, tiền của,vật chất, tất cả và thậm chí cả sinh mạng người yêu .
+        
+  Gộp lại hai điều trên để lý giải vì sao các Thiên Yết thật sự rất khó tha thứ cho người khác, và vì điều này mà bị mọi người hiểu nhầm là thù dai hoặc là nguy hiểm.Bởi vì chỉ cần một hành động bạn cho là vô tình , thì lại tổn thương đến Thiên Yết một cách cực kỳ trầm trọng, có thể lúc đó họ đã phải quằn quại đau đớn vì sự vô tình của bạn mà bạn không hề hay biết. Cho nên, họ không thể tha thứ cho bạn, vì đối với cái nhìn của họ, sự tổn thương đó đã gây ra một vết thương rất lớn.Thế nhưng Thiên Yết sẽ không tâm sự với bạn điều đó, và kiên tâm giữ điều đó làm bí mật riêng của mình, có lẽ đối với họ nói lên điều đó sẽ phá đi vẻ ngoài cứng rắn và hình mẫu lạnh lùng của mình, hoặc họ cho rằng nói ra bạn cũng không tin rằng vì chuyện nhỏ như vậy họ lại phải đi tiêm nước biển hoặc phải nhập viện!!!.
+ 
+Tuy nhiên, nếu có một lời khuyên tôi muốn dành cho các Thiên Yết , đó là hãy học cách yêu thương chính bản thân mình,nghĩa là phải đối xử tốt với bản thân mình và đừng tự hành hạ mình như thế, chỉ có người biết yêu thương chính bản thân mình , thì mới được người khác yêu thương , hãy nhìn vào Xử Nữ và Song ngư để bạn hiểu rõ câu nói này, nhưng đừng lấy họ làm mục tiêu để học hỏi nhé,vì họ còn nhiều vấn đề để bàn đến lắm!.Đồng thời bạn phải hiểu rằng tha thứ là một liều thuốc tốt giúp bạn xoa dịu vết thương to lớn đó của bạn.Chỉ khi tha thứ người khác thì lúc đó bạn mới được tự do thoát khỏi quyền lực của Hades đang chế ngự bạn, để mà sống tốt hơn.
+ 
+Trong khi đó, ngược lại với Thiên Yết, Song ngư rất biết yêu thương mình nên được rất nhiều người yêu mến, và để muốn mọi người chiều theo ý mình họ sẽ biểu hiện ra bên ngoài như hoàn toàn không biết yêu thương chính mình, tự tổn thương mình để tổn thương người khác chính là cách họ làm.
+ 
+Song ngư- ngược lại hoàn toàn với Thiên Yết, là những người yêu thương bản thân mình hơn bất cứ ai, và vì yêu thương mình nên họ cũng biết cách yêu thương người khác như thế nào.Họ nắm vững những nhu cầu được yêu thương của người khác như nắm vững lấy nhu cầu của mình.
+ 
+Nhìn một cách tích cực mà nói , họ có khả năng xoa dịu vết thương của người khác dễ dàng vì họ sẵn sàng tặng hoa, quà, sẵn sàng nói những lời đường mật, sẵn sàng đáp ứng tất cả những yêu cầu chỉ có trong mơ của người khác,và sẵn sàng có mặt bất cứ khi nào bạn cần.
+ 
+Nhưng nhìn một cách tiêu cực ,khi các Song ngư là những con cá lớn chìm trong lòng đại dương với những mưu mô kinh nghiệm tình cảm và những bí mật huyền ảo , nó có thể trở thành một con Thủy quái với những nguy hiểm khó lường bât chấp hậu quả.Bởi do nó là Cung hoàng đạo cuối cùng của tất cả 12 Cung hoàng đạo, linh hồn đó đã trãi nghiệm qua tất cả tham, sân, si , hỷ , nộ, ái, ố của tất cả 12 Cung Hoàng Đạo, họ nắm vững tất cả cảm xúc đó trong lòng bàn tay.
+ 
+Họ sẽ là những nhà kịch gia chuyên nghiệp, sẵn lòng đóng vai một người bị ruồng bỏ trong mưa giá lạnh, nhập viện và tiêm nước biển.....tất cả mọi việc . Nhưng trên thực tế bạn có thể hình dung ra một hình ảnh như là : có thể họ sẽ mặc áo mưa chạy đến nhà bạn, rồi bỏ chiếc áo mưa đó ra, đứng trước cửa nhà bạn và tắm mưa cho bạn xem !Và tiếp theo là chuỗi những phản ứng cảm xúc rất thực mà bạn sẽ nhận được.
+ 
+Bởi do rất biết yêu thương chính mình mà Song ngư rất được nhiều người yêu mến và có cảm tình, cộng thêm tính tình mềm yếu, Song ngư rất dễ rơi vào những cạm bẫy tình yêu của người khác.Dù cho họ biết đó là cái bẫy tình , nhưng họ cũng sẽ tình nguyện đâm đầu vào bởi vì đằng sau quyết định đó là cả một câu chuyện mà Song ngư đã có chọn lọc.
+ 
+Song ngư có mặt rất giống với Thiên Yết đó là sự hận thù.Nhưng điểm khác ở chỗ, Song ngư hận thù vì sự việc không diễn biến theo như ý mình, còn Thiên Yết thì hận thù vì nó tác động quá lớn đến bản thân mình.
+Thế nhưng , khi hận thù phản ứng của họ lại khá giống nhau : tự tổn thương bản thân mình để tổn thương người khác.
+Cặp đôi này, có thể nói là kiềm chế lẫn nhau, cũng như thỏa mãn lẫn nhau.
+Song ngư có thói quen che giấu những dự tính trong đầu với những lời nói dối.Trong khi đó , Thiên Yết lại là người nắm giữ tất cả các bí mật.Thiên Yết rất dễ dàng nhận ra những bí ẩn đó.Cầu mong sao , những bí ẩn đó trong đầu Song ngư không phải là những cây dao tổn thương Thiên Yết, còn bằng không sẽ là những chuỗi ngày dài của sự trả thù lẫn nhau mà không phân thắng bại.....Chỉ có cuộc tình là thất bại mà thôi.Bạn có biết những cặp đôi vợ chồng mà được thế gian gọi tên như: "Ông ăn chả, bà ăn nem" chưa??? 
+ 
+Tuy nhiên đừng vội nản chí và kết luận sớm. Họ vẫn là một cặp đôi hoàn hảo với nhau đó chứ, bởi vì khi cảm xúc của Thiên Yết dâng trào , Song ngư sẽ là người duy nhất đến để xoa dịu nó.
+ 
+Cũng chẳng lạ vì sao ông Trời lại cho cả Thiên Yết lẫn Song Ngư có linh cảm , giác quan thứ 6 nhạy bén! Bởi vì ông Trời muốn họ sử dụng điều đó để kết nối lẫn nhau, lắng nghe tiếng lòng của nhau và đến kịp thời giúp đỡ nhau.Chứ không phải ban tặng cho họ dùng để điều khiển hay khống chế người khác.Hơn ai hết, cả Song ngư lẫn Thiên Yết là những người cảm nhận được quyền năng của sự sắp xếp có ý của ông Trời, bởi vì họ đã trãi nghiệm qua điều đó rất gần. Nếu bạn hỏi họ có tin thần thánh hay không, họ sẽ có cả một câu chuyện dài để kể cho bạn nghe những trãi nghiệm mà họ từng có.
+ 
+Chỉ có Thiên Yết mới kiềm giữ được Song ngư, cũng như chỉ có Song ngư mới điều khiển được Thiên Yết.Không cung hoàng đạo nào đủ khả năng níu giữ được Song ngư , cũng như không một ai có đủ khả năng thuần phục được Thiên Yết .Vì bản chất họ sinh ra là hoàn hảo để dành cho nhau, để khống chế nhau.
+Bạn có thể tìm thấy hình ảnh cặp đôi này ở bất cứ trạng thái nào :một cặp vô cùng ngây thơ, một cặp vô cùng tinh ranh, một cặp già cỗi khắc khổ, một cặp tình già nồng thắm.......Họ có thể là bất cứ gì, vì họ là một cặp đôi yếu tố nước....bất định hình.Tuy nhiên họ khá bị động, vì thế họ sẽ sống trong sự âm thầm , không khoa trương, rút vào trong bí mật,với đại dương sâu thẳm( dòng chảy mắc-ma của trung tâm trái đất có thể sống chung với đại dương sâu thẳm từ rất lâu của sự hình thành trái đất rồi bạn nhỉ, nhưng chúng ta chỉ vừa tìm ra chúng gần đây mà thôi! ~~!
+ 
+Nếu tìm thấy được nhau rồi , thì hãy cố gắng trân trọng lấy nhau và vun đắp. Vì trên đời này không ai sinh ra mà không có một nữa của mình tồn tại.Chỉ là vì bạn quá cố chấp không chấp nhận điều đó mà thôi.Vì vậy, khi yêu thì trân trọng tình yêu, và nuôi dưỡng nó thêm lâu dài.Trân trọng lấy nhau vì tình yêu chỉ có một, và tôi chắc chắn rằng không ai yêu hai lần, mà chỉ là ngộ nhận tình yêu mà thôi.Vì vậy đừng làm gì khiến cho mình phải ân hận hối tiếc.
+ 
+Song ngư bên ngoài thì yếu đuối, nhưng nội tâm thì mạnh mẽ, vì đó là Poseidon , thần của biển cả. Trong khi đó Thiên Yết bên ngoài mạnh mẽ , bên trong lại yếu đuối và bị cầm tù.Khi kết hợp với nhau, Song ngư nữ sẽ vâng phục Thiên yết nam vì vẻ ngoài mạnh mẽ của chàng, và giúp sức chàng vượt qua nội tâm yếu đuối. Còn Thiên Yết nữ sẽ vâng phục Song ngư nam vì nội tâm mạnh mẽ của chàng và sẵn sàng giúp sức chàng vượt qua nhiều sóng gió cuộc đời.Bạn có thấy rằng họ rất trùng khớp với nhau hay không???Vì dù là nam hay nữ , cặp đôi này cũng đều ở đúng vị trí của mình : người nữ vâng phục người nam, và người nam sẽ bảo vệ che chở cho người nữ.
+ 
+Tôi chỉ có một lời khuyên duy nhất cho cặp đôi này: đó là sự chung thủy.Nếu hai bạn giữ được lòng chung thủy với nhau , thì hai bạn sẽ sống như trong truyện cổ tích thần tiên, có hoàng tử và công chúa, đầy những sắc màu lãng mạng mà trên thực tế không có cặp đôi nào sánh bằng.
+Còn hai bạn không giữ được lời thề chung thủy cùng nhau, thì tốt nhất hãy rời xa nhau càng sớm càng tốt, tránh những cảnh địa ngục tại trần thế này mà ảnh hưởng đến mọi người trên cuộc sống!Vì cả hai cũng là những con người rất có sức ảnh hưởng đến người khác.Đừng lấy người khác ra để làm công cụ trả thù của mình, rồi thì tất cả nhận lại chỉ là nỗi đau hệ lụy từ nhiều người.
+ 
+Với những cặp vượt qua được tất cả đến với nhau, tôi xin chúc mừng bạn, vì không ai hiểu nhau bằng hai bạn.Chỉ có một lời cầu chúc :Chúc rằng cả hai sẽ mãi mãi yêu thương nhau như khi còn son sắc.
+ 
+ 
+Nguồn :face book Libra Spirit - Linh Hồn Thiên Xứng (23/09-23/10)

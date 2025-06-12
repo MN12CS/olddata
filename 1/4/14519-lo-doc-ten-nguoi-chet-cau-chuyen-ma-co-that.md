@@ -1,0 +1,58 @@
+---
+title: "Lỡ đọc tên người chết – “Câu chuyện ma có thật”"
+date: 2025-06-12T13:06:36Z
+slug: lo-doc-ten-nguoi-chet-cau-chuyen-ma-co-that
+draft: false
+---
+
+## Lỡ đọc tên người chết – “Câu chuyện ma có thật”
+
+## nhanmadangiu
+
+Cứ nghĩ rằng chết là cái điều đáng sợ nhất trên đời này, nhưng có lẽ, còn có những thứ đáng sợ hơn là chết, ví dụ như sự lãng quên.
+Con người ta dù có thế nào đi chăng nữa, cũng không thể nào mà sống trong sự lãng quên, huống chi là chết mà không ai thờ cúng. Câu chuyện dưới đây chị Trâm kể cho tôi nghe mà khiến cho tôi nổi da gà, và thề sẽ không bao giờ mắc sai lầm như cô em gái kết nghĩa của chị Trâm, Linh. Tưởng rằng chỉ có khóa chị Trâm đi tập quân sự mới bị ma trêu, quỷ ghẹo.
+
+Nhưng câu chuyện không chỉ dừng ở đó, mà hai năm sau, khi mà cô em gái kết nghĩa cùng trường đến lượt đi quân sự cũng đã gặp phải cái mà người đời gọi là oan hồn. Nhỏ em kết nghĩa của chị Trâm khá xinh xắn và đáng yêu, tên là Linh. Nhỏ này thì ngoan ngoãn và hiền lành lắm, chưa làm gì sai trái bao giờ, nên có lẽ cái vụ việc này cũng là cái duyên số, hay cũng có thể là một sự trùng hợp.
+Cũng như những lần hay đợt tập quân sự khác, học sinh lại được bố trí cho vào những khu nhà nghỉ tập thể để cho việc tập luyện, ăn uống, đi lại được thuận tiện hơn. Khóa của Linh được đưa xuống cùng địa điểm với đợt của chị Trâm chỉ có điều là xuống phía khác của khu đó chứ không cùng phía. Sau khi đã thu dọn đồ đạc cho vào trong phòng, tất cả học sinh phải tập trung dưới sân để nghe nội quy trong khoảng thời gian tập quân sự.
+Ngay sau khi được giải tán, Linh có rủ mấy đứa bạn mình đi dạo loanh quanh, một phần là để thăm quan, dò la địa hình, một phần là để tìm đến cái khu nhà vệ sinh mà chị Trâm đã kể. Linh cùng một vài người bạn tìm mãi nhưng cũng chả tìm được cái khu nhà vệ sinh như lời chị Trâm đã kể. Tức chí, Linh liền nhắn tin cho chị Trâm và bảo là không thấy. Đi được một lúc, bạn Linh chợt quay ra bám chặt lấy Linh, giọng run run nói:
+- Oái mày ơi, đằng… đằng trước có một ngôi mộ kìa…
+Linh nheo mắt hỏi:
+- Đâu… đâu?
+Bạn Linh chỉ tay về phía trước, Linh lôi bạn mình ra chỗ đó, thì ra là một ngôi mộ của liệt sỹ. Nhưng lạ một chỗ là trên ngôi mộ không có ảnh, không có đề quê quán, ngày sinh hay ngày mất mà chỉ có tên. Không biết vì lý do gì mà bất chợt Linh đọc tên người đó nên lời:
+- Liệt sỹ… Nam. (Xin được phép giấu tên tuổi đầy đủ ở đây với lý do kiêng kị)
+Vừa đọc dứt lời thì chợt một cơn gió lạnh thoảng qua khiến cho Linh cảm thấy nổi da gà. Linh quay qua cô bạn mình và nói:
+- Lạ quá mày nhỉ, khi không giữa vùng này lại có một ngôi mộ, mà nhìn như có vẻ không ai chăm nom.
+Bạn Linh lúc này vẫn níu lấy Linh, run cầm cập và nói:
+- Chắc có lẽ đây là mộ của liệt sĩ mà người nhà chưa biết để đến mà nhận xác về. Mà thôi mày ơi, về lại khu nhà nghỉ tập thể đi, tao cứ có cái cảm giác rờn rợn sao ý sợ quá!
+Nói rồi cô bạn của Linh kéo Linh chạy khỏi cái ngôi mộ đó. Được một lát, Linh cứ quay ra, nhìn ngang nhìn dọc, nhìn trước nhìn sau mãi. Thấy cử chỉ Linh kì quái như vậy, bạn Linh hỏi:
+- Con điên này, mày nhìn cái gì thế?
+Linh nói với bạn:
+- Tao thấy lạ lắm mày ạ, như kiểu có ai đang nhìn mình ý, nhưng mà quanh đây ngoài tao với mày ra làm gì còn ai.
+Lúc này con Bạn của Linh mới dựng hết cả tóc gáy lên., hai người càng bước nhanh quay về khu nhà nghỉ nơi có đông người cho đỡ sợ. Lúc vừa bước đến đằng trước khu nhà, Linh nhìn lên hành lang thì thấy có đứa bạn mình đang đứng há mồm nhìn về phía mình. Linh hỏi với lên coi coi con nhỏ bạn nó bị làm sao thì nhỏ kia không đáp lại, chỉ quay đầu đi về buồng. Lúc lên đến buồng Linh hỏi lại nó lần nữa, nhưng nhỏ này vẫn không nói gì. Tưởng rằng mọi chuyện diễn ra êm đẹp, nhưng mà Linh không thể nào vứt bỏ được cái cảm giác như có một ai đó luôn ở bên cạnh mình và nhìn mình chằm chằm. Một tối nọ, khi mà tất cả tập trung dưới sân thì chỉ có mình Linh trốn lại trên buồng để ngủ. Đang nằm, chợt có tiếng gõ cửa cồng cộc, Linh bực mình mở mắt ra nhìn thì không thấy ai, và cửa không hề khóa. Nghĩ là mình nghe nhầm, Linh lại nhắm mắt ngủ tiếp thì lại có tiếng gõ cửa. Linh bực mình khi nghĩ có đứa nào trêu, liền rình ngay lúc tiếng gõ cửa đang vang lên liền mở choàng cửa, những chả có ai. Vô cùng bực bội, Linh đứng dậy ngó đầu ra ngoài hành lang thì vẫn không thấy một bóng người, Linh băn khoăn nghĩ không lẽ là mình bị hoang tưởng. Một lúc sau, khi nhóm bạn lên lại buồng, Linh hỏi dò coi có đứa nào ở lại trêu mình không thì tụi bạn chỉ bảo là không, tất cả đều xuống dưới hết.
+Thế rồi đến một hôm, buổi đêm, lúc cả lũ đang ngủ mơ màng. Linh chợt giật mình tỉnh giấc như kiểu có một ai đó đánh thức vậy. Linh thấy thật là quái lạ, đang ngủ ngon lành mà chợt nhiên bừng tỉnh giấc. Linh liền xuống khỏi giường và đi tìm nước uống, chợt có cái cảm giác thôi thúc, Linh cầm ly nước ra ngoài hành lang đứng. Bốn bề buổi đêm chìm trong một mầu đen dày đặc, lại cộng thêm cái nơi rừng núi này nữa thì lại náo động bới tiếng côn trùng kêu rả rích. Đang đứng hóng gió, chợt Linh nhìn xa xa thấy có hình bóng một người mặc quần áo xanh, đội mũ xanh đang đứng nhìn về phía này. Linh chợt nhận ra đó là quần áo bộ đội, nhưng đang đêm sao lại có người mặc quần áo bộ đội mà đứng đó được. Chăm chú nhìn cho thật kĩ hơn, thì Linh giật nảy mình vì có cảm giác như một bàn tay ai đó đặt lên vai. Linh quay lại thì hóa ra là con bạn mình, Linh quát nó nho nhỏ:
+- Quỷ sứ, mày làm tao hết hồn!
+Nhỏ bản chỉ cười, rồi dụi mắt hỏi:
+- Mày không ngủ đi còn đứng đây làm gì vậy?
+Linh kêu là không ngủ được nên ra đây hóng gió một chút, chợt Linh quay ra tìm cái bóng lính mặc áo xanh kia thì nó đã biến mất. Nhìn quanh cũng không thấy đâu, rồi chợt như nhớ ra cái gì đó, Linh quay sang bên cạnh hỏi con bạn:
+- Này, tao hỏi thật, mấy hôm trước mày nhìn thấy cái gì mà sợ sệt thế?
+Mặt con bạn bỗng thất sắc, im lặng được một lúc rồi quay ra nói với Linh:
+- Tao nói cái này, không có ý dọa nạt mày đâu nhé… Nhưng tao nghĩ là oan hồn nó đnag theo mày đấy…
+Lần này đến lượt Linh há hốc mồm ra ngơ ngác, nhỏ bạn nói thêm:
+- Tôi hôm đó, lúc mày về đến đây. Tao đứng trên này, nhìn xuống thì thấy sau lưng mày và nhỏ kia có một bóng người bộ đội… tao nói là bóng vì nó mở mờ… mà lại chỉ có mình tao thấy, những người đứng dưới sân dường như không nhìn thấy. Tao nghĩ có lẽ đó là vong hồn của một người lính đang đi theo mày đó.
+Linh lúc này mới hơi rờn rợn, nhỏ nghĩ chả lẽ lại là anh bộ đội tên Nam đó đã theo mình về đến tận đây sao, nhưng mình có làm gì đắc tội với người ta đâu. Đang suy nghĩ vẩn vơ, thì nhỏ bạn quay qua bảo Linh:
+- Thôi ngủ đi bà, mai còn dậy tập sớm. Về chuyện kia, nếu bà không làm gì tội lỗi, thì chắc là không sao đâu.
+Nói rồi nhỏ đó đi vào buồng ngủ ngủ tiếp, còn về phần Linh tuy là đã lên giường nhưng không tài nào chợp mắt được vì cái hình ảnh anh bộ đội dưới sân lúc nãy, câu chuyện nhỏ bạn kể cứ hiện lên trong đầu Linh. Cuối cùng, Linh quyết định giấu chuyện đã gặp ngôi mộ và đọc tên người đó cho nhỏ kia biết.
+Những ngày tập quân sự trôi qua từ từ, Linh thì vẫn mất ngủ liên tục. Tuy nhiên vào cái đêm trước ngày về, thì mọi chuyện lại diễn ra không em đẹp đối với Linh chút nào. Sau cái buổi liên hoạn muộn đó, mọi người về buồng cũng phải tầm 11 giờ hơn. Linh chui lên giường và hi vọng rằng sau một bữa đập phá mệt nghỉ này, mình sẽ có một giấc ngủ trọn vẹn. Đúng 12 giờ 45. Linh lại bất chợt mở mắt, xoay người khi nghĩ rằng lại một đêm nữa mất ngủ. Cứ nằm như vậy xoay qua xoay lại, mãi chưa chìm vào giấc ngủ được. Chợt có tiếng bước chân từ đâu đó vọng lại xa xăm, bịch, bịch. Linh liền nảy ra ý định nằm đếm tiếng bước chân với hy vọng là sẽ ngủ được. Vừa đếm Linh vừa nghĩ, sao giờ này mà còn có người đi đi lại lại nhỉ? Đáng lý thì phải mệt mỏi lắm sau cái buổi liên hoan chứ, chả nhẽ lại là ăn trộm? mà trộm ở đây thì có cái khỉ gì đâu mà lấy. Đếm đã được hơn một trăm bước, chợt Linh rùng mình, mãi đến giờ Linh mới nhận ra cái tiếng bước chân này hình như càng ngày càng rõ hơn, có vẻ như nó đang tiến dần tới cái buồng này. Linh nằm run lẩy bẩy khi cái tiếng đó cứ cộp, cộp, cộp, đã càng ngày càng ngày càng gần, như đã bước tới cái cửa buồng. Linh sợ hãi nhắm tịt mắt lại, không còn dám nhìn. Rồi chợt cái cửa gỗ kêu lên két một tiếng dài như có ai đó chạm vào, Cả người Linh lúc này thì nổi hết da gà, đã đứng ngay ở cửa rồi. Linh không còn ngạc nhiên nữa, mọi thứ đều trùng khớp, vong hồn người bộ đội tên Nam đã đứng ở cửa rồi. Điều là Linh tự hỏi là tại sao cái lũ bạn mình, chúng nó vẫn còn ngủ được, chẳng lẽ chúng nó không nghe thấy cái gì sao? Chợt cái tiếng bước chân bắt đầu tiến vào buồng, Linh càng lúc càng kinh sợ, nằm co ro run rẩy. Rồi khi mà cái tiếng bước chân dừng lại ngay đầu giường, Linh lại càng hãi và không hiểu rồi chuyện gì sẽ sảy ra với mình. Chợt Linh cảm nhận như có một bàn tay lạnh buốt sờ vào chân mình qua tấm chăn mỏng. Quá sợ hãi, lúc này Linh mới hét lên thất thanh. Mấy đứa cùng buồng lúc này mới choàng tỉnh giấc hết. Chúng nó chạy lại lay Linh, Linh lúc này mới bật dậy, mồ hôi mồ kê nhễ nhại, tim đập thình thịch. Tụi bạn xúm lại hỏi xem mơ cái gì mà la hét như vậy. Linh mới kể lại, rồi nhỏ nói thêm:
+- Tao không nghĩ là tao nằm mơ đâu, mọi việc đều rất thật …
+Rồi chợt Linh nhìn xuống chỗ cuối chân giường, nhỏ lấy tay bịt miệng kinh hãi, khi chỗ đó, còn nguyên dấu cát vàng in hình đôi giầy như có ai đã đứng từ đó. Linh chỉ cho tụi bạn coi, chúng nó cũng hết hồn vì không có đứa nào đi giầy có đế hình như cái vết cát vàng này. Rồi tất cả cùng lần ra ngoài hành lang, quả nhiên có vết cát đó từng bước từ dưới sân lên tới tận buồng. Lúc này cả hội mới thực sự sợ hãi vì không một ai hay biết gì ngoại trừ cái Linh. Cuối cùng, cái Linh cùng đành ngồi xuống mà kể cho mấy đứa bạn nghe hết toàn bộ sự việc, kể từ lúc mà nhìn thấy ngôi mộ hoang, rồi đọc tên lên, và những đêm mất ngủ như thế nào. Nhỏ bạn hôm nào nhìn thấy bóng bộ đội theo Linh lúc này mới nói:
+- Thôi chết bà rồi, có lẽ vì bà đọc tên người chết lên, mà lại đúng người không có họ hàng thân thích, nên cái vong hồn của người chết đó mới đi theo bà đấy. Còn cái việc mà đang ngủ say chợt choàng tỉnh giấc có thể hiểu là cái vong hồn đó muốn câu hồn bà qua thế giới bên kia nhưng có lẽ số bà còn quá lớn, nên nó mới thật bại và kết quả là bà choàng tỉnh giấc.
+Một nhỏ khác lên tiếng:
+- Tôi tưởng đang ngủ mà bị tỉnh giấc là do trong mơ mình bị vấp hay ngã, còn không thì tại mình ngủ không sâu giấc nên mới tỉnh đấy chứ?
+Nhỏ kia lúc này quay ra hỏi Linh:
+- Thế trong mơ bà có vấp ngã hay làm sao không?
+Linh chỉ lặng lẽ lắc đầu, nhỏ này nói tiếp:
+- Vậy thì đúng rồi, nếu đang ngủ mà bất chợt mở mắt tỉnh dậy, không rùng mình, thì chỉ có thể kết luận là bị câu hồn nhưng may mắn thất bại mà thôi. Tôi nghĩ việc bà nên làm bây giờ là mua vàng mã và hoa quả ra cái nắm mộ hôm nào mà cúng bái và xin được tha thứ vì đã gọi tên người đó. Chỉ có làm vậy thì may ra bà mới không bị vong hồn theo đuổi nữa mà thôi.
+Ngay lúc đó, Linh và hai nhỏ nữa chạy ù ra chợ cách chỗ đó 15, 20 phút để mua bằng được đồ về và mang ra chỗ ngôi mộ hôm nào. Đến nơi, Linh sởn gai ốc khi mà trên tấm bia mộ kia không còn một chữ nào, kể cả tên người chết, hay như dòng chữ ghi là thương binh liệt sĩ. Linh vội cùng mấy nhỏ bạn thắp hương và bày hoa quả ra. Linh chắp tay vào vái:
+- Con cầu mong cho linh hồn của chiến sĩ… an nghỉ, xin linh hồn tha tội cho con và nhận chút lễ mọn.
+Sau đó, Linh bắt đầu hóa vàng, nhớ cái lúc hóa vàng thì gió nổi lên khiến cho việc hóa vàng rất khó, nhưng rồi cũng xong. Quả nhiên, sau cái lần đó, Linh về nhà thì đêm nào cũng ngủ ngon không còn bị tỉnh giấc lúc nửa đêm nữa.
+Theo bocau​ ​cái này là để đền bù những ngày mình không up được, có hơi sợ, mong mọi người đừng ném đá​

@@ -1,0 +1,14 @@
+---
+title: "Bạch Bạch nữ"
+date: 2025-06-12T16:06:26Z
+slug: bach-bach-nu
+draft: false
+---
+
+## Bạch Bạch nữ
+
+## RuaNgo
+
+Đầu tiên, Bạch bạch đc 1 Cự cự  để ý. Lúc ý cũng chỉ đơn thuần thấy Cự cự đáng yêu, ăn nói nhỏ nhẹ dễ thương nên đồng ý yêu nhau vậy thôi, chứ thực ra cx ko hẳn là yêu *hình như Bạch bạch nóng tính luôn thích những ng dịu dàng thì phải* Rồi Bạch bạch cả Cự cự yêu nhau đc 6 tháng, trong 6 tháng đó ko đếm hết nổi bao nhiêu mâu thuẫn đã xảy ra, cãi nhau liên miên, chia tay rồi lại hàn gắn lại, ... Bạch Bạch ngang bướng luôn cậy mình trẻ con *Cự cự hơn Bạch bạch 5t* và biết đc vz ng đó, mình rất quan trọng nên ỷ lại, ko bao h quan tâm đến cảm xúc của Cự cự mà chỉ biết chăm chăm cho những xúc cảm trẻ con của mình. Vì Cự cự rất rất hiền lành nên lúc nào cx chiều chuộng và yêu thương Bạch bạch hết mực, chỉ duy nhất Cự cự rất hay ghen, do đó cố gắng giữ Bạch bạch càng chặt càng tốt. Mà Bạch bạch thì lại ưa tự do nên bị trói chặt như vậy, ko còn cách nào khác, Bạch bạch phải thoát ra. Và lần này là "thoát" thật, Bạch bạch đề nghị chia tay. Cự cự rất đau lòng, cố gắng níu giữ Bạch bạch ở lại nhg ko đc. Tưởng rằng thoát khỏi sự kìm hãm của Cự cự, Bạch bạch sẽ vui vẻ biết bao. Nhưng ko, do đã đc nuông chiều và quan tâm quá nhiều, h thiếu vắng đi sự chăm sóc của Cự cự, Bạch bạch thấy trống trải và càng ngày càng thương nhớ Cự cự. Nhưng vì bản tính kiêu ngạo, nên Bạch bạch ko hạ lòng mà đi cầu xin sự tha thứ của Cự cự nữa, mà cố ôm nỗi đau vào sâu trong tim, ko để ai biết, cố để thời gian xoá nhoà nỗi đau đó.
+Rồi sau đó, Bạch bạch đã gặp và cảm nắng dữ dội 1 Bình bình. Ng ấy có nét gì đó rất giống vz Cự cự, cx dịu dàng và tinh tế. Đương nhiên vz sự theo đuổi dữ dội của Bạch bạch, Bình bình không thể khống chế. Tình yêu của Bạch bạch và Bình bình y như trong truyện cổ tích vậy, Bạch bạch ko thể tin trên đời có thể có ng phù hợp vz mình như vậy, cứ ngỡ rằng Bạch bạch và Bình bình sẽ mãi mãi như thế. Nhưng Bạch bạch luôn thích những thứ mới lạ, nên lúc yêu Bình bình ko hề có cãi vã, ko hề có sóng gió cần trải qua, ngày này qua ngày khác chỉ là những ngày tháng bình yên đến nhàm chán. Bạch bạch lúc đó lại nhớ đến những tháng ngày trước đây vz Cự cự, tuy bị quản lí chặt chẽ, lúc nào cx sinh chuyện nhưng quả thật quãng thời gian đó thực sự hạnh phúc. 
+Rồi 1 ngày Bạch bạch gặp lại Cự cự và phát hiện ra, Cự cự vẫn còn tình cảm vz Bạch bạch như trước đây. Vì vậy Bạch bạch rất phân vân và khó xử, ko biết nên quay lại vz Cự cự và để Bình bình đau khổ hay tiếp tục những tháng ngày yên bình vz Bình bình và chôn sâu tình cảm còn sót lại vz Cự cự vào sâu trong lòng, Bạch bạch phải làm sao đây ...

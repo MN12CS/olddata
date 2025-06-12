@@ -1,0 +1,45 @@
+---
+title: "PHÂN TÍCH ĐIỂM MẠNH VÀ YẾU TRONG TÍNH CÁCH CỦA O VÀ GỢI Ý KHẮC PHỤC ♥"
+date: 2025-06-12T11:55:45Z
+slug: phan-tich-diem-manh-va-yeu-trong-tinh-cach-cua-o-va-goi-y-khac-phuc
+draft: false
+---
+
+## PHÂN TÍCH ĐIỂM MẠNH VÀ YẾU TRONG TÍNH CÁCH CỦA O VÀ GỢI Ý KHẮC PHỤC ♥
+
+## teddyhangvu
+
+1. TÍNH SỞ HỮU CAO
++Ưu điểm: khiến cho đối phương cảm giác được quan tâm, và biết được sự quan trọng của mình.
++Nhược điểm: khiến cho đối phương cảm giác ngột ngạt, đôi lúc khó chịu, không thoải mái vì cảm thấy mất sự tự do.
+=> Quan tâm, sở hữu có mức độ thôi nhé, đừng thờ ơ, nhưng cũng đừng quá ráo riết, sẽ khiến ngườ...i ấy cảm thấy bí bách và có thể, vì điều đó sẽ rời xa bạn đấy 
+ 
+2. THẲNG TÍNH
++Ưu điểm: khiến cho người khác có thể hiểu rõ con người thật của mình, tin tưởng và quý trọng mình vì sự chân thành. Bên cạnh đó, sự thẳng tính giúp nắm bắt vấn đề nhanh hơn, không lòng vòng, mọi người dễ dàng hiểu và rút kinh nghiệm lẫn nhau, và quan trọng nhất, nó giúp ta tìm được những người bạn thật sự - dám chấp nhận con người thật của ta.
++Nhược điểm: Thẳng tính quá có thể là vô duyên, trở thành sự lỗ mãng không khéo léo. Đôi khi, sự thẳng tính quá có thể khiến bạn tuột mất cơ hội, làm mất lòng người khác và vô tình làm tổn thương người khác.
+=> Ứng xử hợp lý, biết tùy tình huống mà có những cách cư xử nha bạn. Biết nhu, cương đúng lúc. Sống thật với mình là tốt, nhưng cũng hãy để ý đến thái độ của người đối diện mình để tránh tổn thương và hiểu lầm nhé 
+ 
+3. SỐNG THIÊN VỀ TÌNH CẢM.
++Ưu điểm: Bạn khiến người khác cảm thấy họ được yêu thương nhiều, được quan tâm, được chăm sóc. Sự tình cảm của bạn khiến những người xung quanh bạn luôn cảm thấy ấm áp và được yêu thương.
++Nhược điểm: Sống quá tình cảm nên đôi khi không lý trí, có những hành động thiên về tình cảm quá, thi...ếu sự chính xác. Sự tình cảm quá mức của bạn đôi khi khiến đối phương cảm thấy đau đầu và phiền phức. Sống tình cảm quá đôi khi hành động trở nên mù quáng, thiếu lý trí, không rõ trắng đen, đôi lúc thiếu đi sự công bằng và hành động theo cảm tính là vô cùng nguy hiểm. Sống tình cảm quá cũng khiến cho bản thân suy nghĩ nhiều, bị ảnh hưởng mạnh bởi cảm xúc của người khác, và tự làm rối mình trong những tình cảm, suy nghĩ của người khác.
+=> Hãy là một con người có cái đầu lạnh và trái tim nóng nhé. Phân biệt rõ ràng giữa tình cảm và công việc và biết điều chỉnh sự cân bằng giữa lý trí và cảm tính nhé.
+ 
+4. CẢ NỂ, ÍT TỪ CHỐI BẠN BÈ
++Ưu điểm: Tất nhiên bạn bè sẽ rất vui khi bạn không từ chối họ, và bạn sẽ được bạn bè yêu quý nhiều hơn, và được coi là “thảo tính”. Và bạn cũng cảm thấy thoải mái hơn khi không từ chối bạn bè, cảm giác sau này thân thiện hơn.
++Nhược điểm: Sự không từ chối được sẽ khiến bạn ôm quá nhiều việc vào mình. Và từ đó trở nên bội thực với hàng loạt công việc chất đống, trở nên mệt mỏi và quá sức khi việc đè lên việc. Hơn nữa, bạn biết mà, làm quá nhiều, quá sức một lúc thì sẽ không có kết quả tốt nhất, phải không?  Hơn nữa, việc bạn hay cả nể sẽ khiến bạn bè phụ thuộc vào bạn, từ đó rất hay nhờ vả :”<
+=> Tùy trường hợp mà nhận lời nhờ vả nhé. Đừng vì cả nể mà ôm đồm quá nhiều. Hãy suy nghĩ đến tình trạng của mình trước, xem xét mình có thể làm được hay không, xem xét thời gian của mình có đủ không. Và quan trọng nhất là, hãy biết lo cho bản thân cho tốt đã rồi hãy ôm đến việc người khác nhé 
+ 
+5. CỨNG ĐẦU, BẢO THỦ, NGANG BƯỚNG​+Ưu điểm: Sự cứng đầu của bạn đôi khi sẽ khiến người khác cảm thấy thích thú vì sự kiên định của bạn. Và sự cứng đầu của bạn cũng khiến bạn không bị lung lay, có thể vững vàng bảo vệ chính kiến của mình đến cùng.​+Nhược điểm: Cứng đầu quá đôi khi sẽ khiến bạn bỏ qua một số ý kiến hay​. Đôi khi sự cứng đầu bảo thủ của bạn khiến người khác khó chịu, cảm thấy bạn không có thiện chí, nên họ sẽ bỏ qua và không muốn nói chuyện với bạn nữa. Hoặc thậm chí, sự cứng đầu ngang bướng của bạn sẽ khiến một số người nói rằng bạn là người không có khả năng tiếp thu, lắng nghe và họ sẽ loại bạn ra khỏi vòng quan tâm đấy, và từ lần sau khi nói chuyện với bạn, họ sẽ không nói cho bạn biết sự thật đâu.​=> Hãy biết lắng nghe người khác, điều chỉnh sự cứng đầu và cái tôi mạnh mẽ của mình nhé. Hãy đặt mình vào vị trí của người khác. Ai cũng có chính kiến và mong muốn được lắng nghe, được hiểu mà phải không? Vì vậy, đừng áp đặt lên người khác, cũng đừng quá ngang ngược, hãy từ từ giải thích cho họ hiểu, và nếu nhận ra họ đúng, hãy tiếp thu bạn nhé ​ ​6. CẦU TOÀN​+Ưu điểm: Tính cách này sẽ khiến mọi việc bạn làm trở nên chỉn chu, trau chuốt, và sẽ dễ gây thiện cảm của người khác. Họ cũng thấy được sự nghiêm túc của bạn, từ đó sẽ tin tưởng giao cho bạn những công việc quan trọng. Và, sự cầu toàn cũng khiến bạn trong mắt người khác trở nên đẹp đẽ và hoàn hảo.​+Nhược điểm: Sự cầu toàn khiến bạn suy nghĩ quá nhiều, hao tâm tổn sức quá nhiều, lúc nào cũng trong trạng thái lo lắng không biết có tốt không, không biết đã hoàn hảo chưa, rất mệt mỏi. Sự cầu toàn thái quá của bạn sẽ gây sự khó chịu cho người khác, họ cảm giác ngột ngạt, bức bối, cảm giác bạn quá kĩ tính và yêu cầu quá cao. Sự cầu toàn khiến bạn đôi khi mất đi sự hào hứng, sự thích thú, sự sáng tạo trong công việc, mà chỉ thấy áp lực và áp lực.​=> Cái gì cũng có giới hạn và mức độ của nó thôi. Hơn nữa, bạn phải hiểu, trên đời, vốn dĩ chẳng có gì hoàn hảo cả. Đôi khi phải có khiếm khuyết, đôi khi phải không đẹp mới nhận ra được giá trị của những khiếm khuyết đó và tìm được bài học cho mình chứ. Đừng quá đặt áp lực cho mình, cẩn thận, chỉn chu là tốt, nhưng cũng đừng quá kĩ tính mà yêu cầu quá cao.​ ​ 
+7. SUY NGHĨ QUÁ NHIỀU:​+Ưu điểm: Bạn suy nghĩ đa chiều, tổng quát được vấn đề và có thể sẽ phân tích được nhiều chiều mà người khác không nghĩ đến, từ đó có sự chuẩn bị, dự phòng kĩ càng hơn để đối phó với các tình huống, không bị bất ngờ.​+Nhược điểm: Quá sa đà vào vấn đề đó, bạn sẽ bị mệt mỏi. Suy nghĩ quá nhiều khi​ến bạn bị chìm trong nó, và đôi khi bị ám ảnh bởi nó. Và việc suy nghĩ quá nhiều đôi khi biến những sự việc đơn giản thành phức tạp, nhỏ thành to, khiến cho mọi chuyện trở nên rối tung, hành xử mang tính nghiêm trọng, dẫn đến những sai lầm nghiêm trọng. ​=> Đối diện thẳng thắn với vấn đề, phân tích kĩ càng nó, tùy theo đó mà có các phương án. Đừng quan trọng hóa sự việc lên, hãy nghĩ nó đơn giản thôi, đôi lúc, hãy đơn giản hóa cuộc sống của mình nhé. ​ ​8. TÒ MÒ​+Ưu điểm: Sự tò mò giúp sự phán đoán của bạn trở nên nhanh nhạy hơn. Tò mò khiến bạn trở nên ham tìm hiểu, từ đó kiến thức thu được cũng nhiều, đa dạng và phong phú. Tò mò kích thích bạn trở nên năng động, rèn luyện sự can đảm, liều lĩnh và phân tích, phản ứng nhanh nhạy hơn.​+Nhược điểm: Tò mò quá khiến người khác khó chịu. Họ cảm giác lúc nào bạn cũng muốn biết hết mọi thứ. Tò mò khiến bạn trở nên nhiễu loạn với quá nhiều suy nghĩ, quá nhiều sự phán đoán. Tò mò đôi khi khiến người khác cảm giác bạn không an toàn đó, và bạn càng tò mò, họ lại càng giấu kĩ. Và đôi khi, tò mò khiến bạn trở thành kẻ nhiều chuyện, thích soi mói đấy.​=> Tò mò từng trường hợp nhé. Có những trường hợp nhạy cảm, đối phương không muốn cho bạn biết, đừng cố đào sâu, cố gắng tìm hiểu, họ sẽ cho bạn là kẻ tọc mạnh, thích xen vào chuyện người khác. ​ 
+9. TRỌNG SỰ AN TOÀN, SỐNG ĐỀ PHÒNG​
++Ưu điểm: Giúp bạn tránh được sự tổn thương. Sự đề phòng cũng khiến bạn tránh được những tình huống nguy hiểm và có đường lùi cho mình. Sự đề phòng sẽ khiến người khác cảm thấy bạn có sức hút, cảm giác muốn được chinh phục, tìm hiểu, tạo sự quyến rũ nhất định. Sống an toàn sẽ kh​iến cuộc sống bạn bình lặng, và ít có những xung đột
++Nhược điểm: Sự đề phòng, trọng sự an toàn của bạn lại khiến đối phương cảm thấy thiếu an toàn. Họ luôn cảm thấy một màn che xung quanh bạn, đôi khi họ thấy bực mình vì sự đề phòng quá mức của bạn. Sự trọng an toàn khiến nhiều người cảm giác bạn quá nhàm chán, không có sự liều lĩnh dám thử thách, nên đôi lúc, họ không muốn hợp tác với bạn trong những công việc đòi hỏi sự liều lĩnh cao.
+=> Sống phải biết đề phòng. Nhưng đôi khi hãy dẹp sự đề phòng, mạnh mẽ và can đảm để tin tưởng, yêu thương nhé. Vì khi bạn dẹp bỏ lớp vỏ của mình, đối phương cũng mới can đảm để lột vỏ lớp vỏ của họ chứ. 
+
+10. NHẠY CẢM
++Ưu điểm: Có khả năng nhận ra sự bất thường của đối phương, có khả năng nhìn thấu những tâm sự của bạn bè, từ đó có sự an ủi và sự cư xử tốt hơn. Nhìn nhận được sự thay đổi trong mối quan hệ của mình với mọi người.
++Nhược điểm: Đôi khi quá sa đà vào tình cảm của ai đó, đôi khi khiến bạn bè khó chịu vì cảm giác bị nhìn thấu. Đôi lúc sự nhạy cảm thái quá của bạn cũng khiến bạn dễ bị tổn thương hơn, dễ bị tác động hơn.
+=> Nhìn nhận ra được vấn đề là tốt, biết nhận ra sự khác thường của bạn bè là tốt. Nhưng đôi khi, nên lờ nó đi. Và cũng đôi lúc, đừng để cảm xúc chi phối mình quá mạnh mẽ, hãy tập cho lý trí trở nên mạnh mẽ, đừng lúc nào cũng nghĩ quan trọng hóa lên, mọi chuyện sẽ nhẹ nhàng hơn nhiều.​ 
+-Fly-
+ 
+Hội Những Người Nhóm Máu O

@@ -1,0 +1,15 @@
+---
+title: "[ Một câu chuyện ngắn] Cô bé Bạch Dương"
+date: 2025-06-12T15:29:44Z
+slug: mot-cau-chuyen-ngan-co-be-bach-duong
+draft: false
+---
+
+## [ Một câu chuyện ngắn] Cô bé Bạch Dương
+
+## Kurosaki
+
+Cô nhox kế nhà tôi có tên là Linh , một cô bé hoạt bát , vui tính . Hằng ngày cô bé ấy qua nhà tôi chơi dù tôi có đuổi cách mấy cô bé ấy vẫn ngoan cố phụng mặt lên nhìn tôi . Nhà cô nhox ấy có bố mẹ làm tại 1 công ty lớn nên ít khi về nhà nên cô bé ấy hay qua nhà tôi ăn cơm và chơi . Dáng người cô bé nho nhắn hoạt bát , đôi mắt đen óng ánh hay dỗi . Tuy cô bé như thế  thoáng nghe qua gia đình bạn cứ nghĩ cô nhox ấy hạnh phúc khi có ba mẹ như zậy nhưng không . Cô bé ko cần nói với tôi nhưng tôi vẫn biết rằng trái tim của cô nhox ấy đag dần dần chết mòn theo thời gian vì mỗi lần cô nhox ấy ở nhà ăn cơm và ngủ 1 mình tôi biết cô nhox ấy đã bật khóc cho nỗi cô đơn của mình . Nhỏ rất ngoan cố dù tôi tra hỏi bao nhiêu nhỏ vẫn ko chịu nói . Cha nhỏ nhìu lần đi làm về trong cơn say xỉn đã dùng dây nịt đánh nhỏ mặt nhỏ nhăn nhưng ko hề khóc , nhỏ chỉ đùng đùng nỗi giận chịu đánh và chạy qua nhà tôi giá lâm thui . Mẹ nhỏ thì cũng vì công việc mà ko hề quan tâm tới nhỏ . Zậy mà 1 lần nhỏ chạy về nhà tôi nhìn sơ qua thì thấy 2 hàng nước mắt của nhỏ chảy trên khuôn mặt ngây thơ đó , trên tay nhỏ thì cầm 1 tờ giấy . Khi tôi vừa tới nhà thì thấy cha nhỏ đag tát mặt nhỏ và đuổi nhỏ ra khỏi nhà với 1 câu nói tôi làm tôi cực kỳ shock : Mày cút đi cút khỏi nhà tao đi , tao ko bao h có đứa con mất dạy vô lễ như mày cả . Ông ta đóng cửa 1 cách thô bạo hên là nhỏ rút tay kịp ko thì gãy tay rồi . Sau khi nhỏ nhìn ổng chửi xog , nhỏ ko làm gì cả mà chỉ lầm lầm lì lì ngồi trc cửa nhà tôi thui . Tôi bước gần lại nhỏ hỏi rõ tại sao nhỏ ko nói năng gì mà chỉ đưa cho tôi 1 tờ giấy bản kiểm điểm vô lễ với thầy cô , mới nhìn sơ sơ thì tôi ko nghĩ là nhỏ dám làm . Đọc kỹ thì tôi mới bít rằng nhỏ đó đã viết sổ báo bài cẩu thả , sau khi bị bà cô la và tát  xog nhỏ đã vò sổ đi về vô tình đụng trúng cửa nhưng nhỏ ko để ý rồi ngồi xuống quăng sổ lên bàn.  Tôi ko tin liền hỏi nhỏ , hai hàng nước mắt của nhỏ chảy xuống kể trong tiếng khóc thút tha thút thít với tôi , sau khi nhỏ kể tôi mới biết rằng sự việc ko phải lỗi của nhỏ . Tôi liền móc trong túi ra 1 chiếc khăn lau từng hàng nước mắt cho nhỏ rùi dắt nhỏ vô nhà tôi . Tôi cho nhỏ ngủ phòng tôi còn tôi ngủ phòng khách , cứ tưởng rằng sau mấy ngày cha nhỏ sẽ đi kiếm nhỏ nhưng ko cha nhỏ ko hề bận tâm tới nhỏ . Khi tôi qua nhà nhỏ cố tình hỏi cha nhỏ là : Con bác đâu ?? Thì mặt cha nhỏ tỏ ra giận dữ rồi đuổi tôi ra khỏi nhà rùi nói cho tôi 1 câu : Nhà tôi ko chứa chấp con nhỏ mất dạy đó . Tôi bước về nhà nói với nhỏ , nhỏ ko rằng gì nhưng 2 hàng nc mắt cứ chảy ra .
+ 
+ 
+các bạn xin đừng ném mình vì mình dở văn , mình post bài này chủ yếu là để mọi người đọc và cho mình cảm nhận về gia đình này . Vì câu chuyện này có thật nên mình xin mọi người góp ý thật lòng và xin đừng ném mình

@@ -1,0 +1,49 @@
+---
+title: "[Khi 12 chòm sao đối mặt với chuyện chia tay]"
+date: 2025-06-12T14:29:04Z
+slug: khi-12-chom-sao-doi-mat-voi-chuyen-chia-tay
+draft: false
+---
+
+## [Khi 12 chòm sao đối mặt với chuyện chia tay]
+
+## yue.yul
+
+*Nếu bài này có người post rồi thì ad xóa dùm em*
+ 
+Bạch Dương: Nổi điên lên, hành xử như thể não không có tí nếp nhăn nào, lao vào bạn và tìm mọi cách tìm hiểu nguyên nhân, níu kéo. Hoặc là, lờ bạn đi. Và quên béng bạn. Như thể bạn chưa từng tồn tại trong đời họ [thường là họ sẽ níu kéo trước, níu kéo mà không ăn thua thì họ giận, không thèm quan tâm nữa luôn].
+ 
+Kim Ngưu: Dĩ nhiên, những người cứng đầu và nặng tình như Kim Ngưu sẽ không dễ dàng gì mà lãng quên quá khứ nhanh chóng đượ
+c. Họ sẽ ôm ấp mãi trong lòng, tổn thương mãi. Thậm chí dù họ biết đấy là một mối tình đầy giông bão thì vẫn nỗ lực hết sức để giữ gìn. Kim Ngưu vốn là những người giàu kiên nhẫn. Tuy vậy, một khi họ đã quyết sẽ quên bạn, thì nghĩa là họ sẽ chấm hết. Với Kim Ngưu, chấm hết là chấm hết.
+ 
+Song Tử: Các bạn Song Tử nổi tiếng là những người xoay như chong chóng, có thể làm vài ba việc cùng lúc [vừa nhai bắp rang, vừa xem phim, vừa ôm dt nhắn tin mà vẫn nghe ngóng được xung quanh]. Nên khi cảm xúc trôi qua, họ sẽ quên bạn ngay trong chớp mắt. Dầu vậy, mặt trái của Song Tử lại là những kẻ nặng tình, nếu thật sự họ đã dành rất nhiều tình cảm cho bạn, nếu bạn đích thực là một nửa của Song Tử, e rằng, vị trí của bạn trong lòng họ sẽ không bao giờ phai nhòa. Họ có thể cười phớ lớ, có thể tiếp tục vui chơi. Nhưng khi dừng lại, vào những khoảnh khắc lặng của họ, bạn sẽ thấy họ nhìn xa xăm, và nghĩ về bạn… Và nhớ bạn…
+ 
+Cự Giải: Đúng là những con người của gia đình. Với Cự Giải, chia tay là chuyện họ không thể tưởng tượng đến, nhất là khi họ đã lên kế hoạch cho cuộc đời với bạn. Do đó, họ đón nhận tin chia tay bằng tất cả cung bậc cảm xúc của mình, đặc biệt là họ cực kỳ suy sụp. Những chàng trai lao mình vào các cuộc vui thâu đêm, hoặc ôm gối nằm khóc thầm trong phòng khi bị “đá” thường là những anh chàng Cự Giải đa cảm.
+Họ sẽ mất thời gian rất rất lâu để lấy lại cân bằng, và lâu nữa để sẵn sàng bước tiếp. Và nếu có đi tiếp, thỉnh thoảng, họ sẽ ngồi ngẫm về chuyện xưa, và lẩm nhẩm đếm số người đã đi qua đời mình, để lại vết sẹo trong lòng mình. Chuyện này có vẻ hại não với các bạn đến sau lắm nha [haha]
+ 
+Sư Tử: Trong lòng Sư Tử, cái Tôi sẽ bị tổn thương. Vết thương sẽ khoét sâu và ăn mòn vào cả trái tim vốn ấm áp và nhạy cảm của họ nữa. Bị chia tay – nhất là với những người mà họ đã giới thiệu với họ hàng, bạn bè, anh chị em, … - là một cú shock đánh vào thể diện của họ. Họ sẽ sững sờ, hỏi tại sao và cần thời gian để chấp nhận được sự thật. Họ sẽ đau rất lâu, kể cả thậm chí khi bạn thấy họ đã vui bên người mới.
+Dầu vậy, bề ngoài họ sẽ thể hiện thản nhiên như không. Thậm chí Sư Tử sẽ làm mọi cách để thể hiện cho mọi người thấy, đối với họ, chia tay là chuyện nhỏ như con thỏ, không có người này thì ta yêu người khác. Thực ra, đó cũng là một cách họ tự kỷ ám thị mình, rằng họ vẫn ổn. Nhưng khi thực sự quên được tình yêu ngây thơ ngày trước, và khi vết thương lòng đã hoàn toàn lành lặn, họ sẽ yêu người đến sau bằng tất cả sự trưởng thành.
+ 
+Xử Nữ: Bản tính ưa phân tích của Xử Nữ cũng xuất hiện khi họ chia tay. Đảm bảo họ sẽ phân tích kỹ lưỡng, tìm mọi lời giải thích khả dĩ cho việc chia tay đó. Một số Xử Nữ đồng ý chia tay nhanh chóng khi bạn thể hiện được rằng, đấy là một mối quan hệ không có tương lai [như kiểu, anh nghèo và anh thất nghiệp, không bằng cấp, em mà cưới anh, em sẽ chết đói]. Xử Nữ đòi hỏi khá cao trong tình yêu, nhất là khi họ cho rằng đối tượng không phù hợp thì họ sẵn sàng “next”. Nhưng thường họ chọn người yêu rất cẩn thận, và cưa đổ người kia trong tỉnh táo, nên nếu phải chia tay vì “không đạt chuẩn” thì họ sẽ ấm ức lắm.
+Họ sẽ chẳng bao giờ cho bạn thấy họ tổn thương và đau đớn thế nào, trong khi nội tâm vẫn không ngừng than khóc. Họ có xu hướng lằng nhằng dai dẳng với tình cũ [khi chưa kết hôn]. Những lúc thế này, máu văn vẻ trong Xử Nữ tuôn tràn dữ lắm. Đây thường là những người viết thư tình đẫm lệ và khi đã tìm được người “ngon lành” hơn, họ phản ứng thản nhiên như thể mình chưa từng phun châu nhả ngọc ra mấy cái từ sến ngắt đó.
+ 
+Thiên Bình: Bạn sẽ thấy Thiên Bình đi chơi nhiều hơn, bạn bè bù khú hơn [mặc dù thường ngày cũng thấy họ đi chơi dữ lắm rồi], thoải mái xả láng hơn và yêu chiều bản thân hơn. Câu châm ngôn trong họ sẽ là “Người ta không yêu tôi thì tôi sẽ yêu chính tôi”. Họ sẽ gói hết đau thương vào một góc, ra ngoài và tận hưởng cuộc sống để cố chỉnh mình về trạng thái cân bằng. Rất nhanh sau đó, với vẻ ngoài đáng yêu và mềm mỏng của mình, họ sẽ tìm thấy một tình yêu mới.
+Thiên Bình là chòm sao của các mối quan hệ yêu đương, giao kết nên bạn sẽ hiếm khi thấy họ đơn độc quá lâu. Thiên Bình có xu hướng lượn lờ xung quanh người cũ một thời gian sau khi chia tay[để làm gì thì chỉ có họ mới hiểu] cho đến khi tìm được người mới. Đặc biệt là những tình yêu để đời của mình, Thiên Bình sẽ mất kha khá thời gian để cân bằng [và để lượn lờ quanh người đó].
+ 
+Thần Nông: Là những kẻ nổi tiếng trong lĩnh vực “All or Nothing” nên các bạn này cũng ứng xử tương tự khi chia tay. Thần Nông có xu hướng “Ừ” khi bạn nói “Chúng ta chia tay đi” mặc dù trong lòng cuộn sóng, bão tố và thậm chí là gió giật trên cấp 13, trong cơn giông có cả lốc xoáy. Người ta thường bảo, Thần Nông quá tự tin và cho rằng “Cô ta/anh ta sẽ phải hối hận vì đã để mất tôi” nên sẽ điều khiển cảm xúc cực tốt, khó lòng nhìn thấy họ chao đảo. Sau khi chia tay, họ sẽ tìm cho mình một cuộc sống tốt hơn ngày xưa rất rất nhiều, không thèm để tâm tới kẻ đã làm mình tổn thương. Một số khác lại cho rằng, họ sẽ chích rất đau và khiến cho bạn tan nát cõi lòng mới thôi. Kỳ thực, trong đời Thần Nông chỉ có vài lần yêu thật sự.
+Khi yêu thật sự, khi đã lên kế hoạch gắn kết cả đời với bạn, họ sẽ có xu hướng không dễ dàng gì để bạn cuốn gói ra khỏi đời họ nếu không biết được lý do [99% trường hợp họ không hỏi lý do tức là họ cho rằng “Em/anh bỏ tôi vì có người khác”.] và sẽ đau cực kỳ, thậm chí còn có suy nghĩ trả thù bột phát. Họ sẽ không cam kết với người mới, cho đến khi họ biết bạn đã có được cuộc sống yên ấm. Trong khi đối với người họ có cảm xúc [chứ không hẳn là yêu] thì họ sẽ bỏ qua rất nhanh, và đứng dậy cũng nhanh. Họ có xu hướng tổn thương dai dẳng vì chuyện tình đã qua.
+Dù thế nào đi nữa, sau khi nói chia tay mà có thể quay lại với Thần Nông được, thì bạn đúng là siêu nhân [hoặc là Thần Nông cảm thấy mắc nợ bạn rất lớn]. Đây là những người không dễ gì chấp nhận cho kẻ đã làm tổn thương mình quay lại đe dọa trái tim mình tiếp.
+ 
+Nhân Mã: Đây hẳn là những người phát ngôn ra câu “Khi một cánh cửa đóng lại, tức là một cánh cửa khác sẽ mở ra”. Nhân Mã sẽ đón nhận tin chia tay với vẻ rất “cool”. Vốn là những người yêu tự do, nên nếu giữa hai bạn chưa có cam kết lâu dài, họ sẽ có xu hướng “ừ hử” khi bạn nói chia tay. Chỉ là, đây vốn là những người thích lao vào những thứ mình không có được, nên e rằng sau khi bị nói lời chia tay, họ vẫn sẽ loanh quanh xung quanh bạn.
+Những người khôn ngoan muốn chia tay Nhân Mã thì nên đeo bám họ thật dai, và bắt họ hứa đủ đường, than khóc khi không thể sống thiếu họ, lúc đó Nhân Mã sẽ tự động “lặn không sủi tăm” mà thôi. Một số người cho rằng, Nhân Mã hời hợt trong tình yêu, nhưng nếu bạn là một người yêu tự do và “ưa xê dịch”, bạn sẽ hiểu, Nhân Mã đang thổi nỗi đau vào trong gió, và chưa bao giờ quên bạn.
+ 
+Ma Kết: Nếu Ma Kết không khóc lóc trước mặt bạn, không than thở với bạn, hẳn là họ đã làm một tập thơ thất tình dày vài trăm trang, trong đó viết rõ nỗi đau của mình. Ma Kết là những người khô khan bề ngoài, cuồng nhiệt bên trong, nên họ sẽ đón nhận tin chia tay với vẻ lãnh đạm. Rồi lao vào công việc để xua đi nỗi buồn. Sau khi chia tay, Ma Kết thường đạt được rất nhiều chiến tích trong sự nghiệp. Đối với họ, yêu là để kết hôn, nên nếu bị chia tay, Ma Kết có xu hướng níu kéo trong lòng [dù bề ngoài lạnh tanh] và mong chờ ngày bạn quay về. Họ sẽ mất một khoảng để cân bằng, lắng dịu nỗi đau và quay về cuộc sống cũ.
+Nếu bạn nhìn thấy một Ma Kết bỗng nhiên trầm lặng, chúi đầu vào việc, thế nghĩa là họ vừa gặp một cú shock thất tình đấy [nói chung, họ có thất tình cũng khó biết lắm]
+ 
+Bảo Bình: Nếu bạn thấy Bảo Bình lơ mình, có vẻ không nhận ra bạn, và thờ ơ khi nghe tin về bạn, thế nghĩa là cậu ấy đã chia tay bạn. Bảo Bình đón nhận tin chia tay theo cách không giống ai, thậm chí còn sẵn sàng làm bạn với người cũ. Kỳ thực, họ thấu hiểu hơn ai hết, chuyện gì cũng có thể xảy ra, nên không nặng nhẹ chuyện chia tay.
+Họ tôn trọng đối phương, và tôn trọng cách bạn lựa chọn, nên chắc là sẽ không có những giọt nước mắt lu loa đâu. Bù lại, khi gặp nhau mà bạn có cảm giác Bảo Bình lơ đễnh, thỉnh thoảng còn có vài phát ngôn khó hiểu, xem bạn như người sao Hỏa, thế nghĩa là tâm trạng họ đang không tốt. Có vẻ, đây là những người đón nhận tin chia tay dễ dàng nhất trong số 12 chòm sao.
+ 
+Song Ngư: Đeo bám đến cùng nên bạn muốn ra đi trong yên ấm thì cũng đau đầu dữ lắm. Đây là những người nhạy cảm nên chỉ cần biết bạn có ý định chia tay, họ sẽ nước mắt ngắn dài, tổn thương và ôm gối khóc. Bạn bè sẽ lao vào an ủi họ, còn bạn thì giống như kẻ khốn nạn nhất trên đời. Họ luôn ra vẻ yếu đuối và cần ai đó để nương tựa, nên bạn sẽ cảm thấy rất ray rứt và có lỗi khi rời khỏi họ.
+Nhưng bạn cứ yên tâm, kiểu nào cũng sẽ có vài người thay thế bạn xuất hiện bên họ ngay. Và họ sẽ lại ngã vào vòng tay người khác, bảo bọc họ, yêu thương họ. Song Ngư sẽ cảm thấy được xoa dịu khi mọi chuyện trôi qua, bằng cách này hay cách khác, họ cũng tìm được người thay bạn chăm sóc cho họ. Song Ngư vốn là những người hay giữ trong lòng kỷ niệm đẹp của ngày xưa, nên thể nào cũng sẽ có vài lúc họ nhớ đến kỷ niệm tình yêu, bâng quơ nhớ những ngày ta đã yêu…
+ 
+Sưu Tầm

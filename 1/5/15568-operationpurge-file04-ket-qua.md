@@ -1,0 +1,70 @@
+---
+title: "Operation:P.U.R.G.E File04: \"Kết quả\""
+date: 2025-06-12T13:28:34Z
+slug: operationpurge-file04-ket-qua
+draft: false
+---
+
+## Operation:P.U.R.G.E File04: "Kết quả"
+
+## Hayate1609
+
+Link các File trước:
+Cốt truyện: http://forum.matngu12chomsao.com/threads/operation-p-u-r-g-e-cot-truyen-truoc-nhe.14845/
+File00: http://forum.matngu12chomsao.com/threads/operation-p-u-r-g-e-file00-khoi-nguon.14891/
+File01:http://forum.matngu12chomsao.com/threads/operation-p-u-r-g-e-file01-chan-dung.14961/
+File02 http://forum.matngu12chomsao.com/threads/operation-p-u-r-g-e-file02-nhiem-vu.15059/
+(File03 hôm trước mình nhấn nhầm nút nên up thiếu khúc cuối, các bạn chịu khó xem lại nha  )
+File03  http://forum.matngu12chomsao.com/threads/operation-p-u-r-g-e-file03-phuc-thu.15271/ 
+.
+.
+Trở lại với khu ổ chuột......
+Bây giờ đây nhóm 2 người Sư Tử và Thiên Bình của chúng ta đang trong 1 tình thế ngặt nghèo: Thiên Bình thì bị treo ngược lên, bất lực nhìn Sư Tử bị kề dao vào người mà không nói cử động được tí nào.....
+Cái giọng nữ lạnh lẽo ấy lại tiếp tục lặp lại câu hỏi đó:   "Ta hỏi lại, ngươi là   "Inferno" hay  "Akuma"  ???"
+Sư Tử vẫn để tay trong túi áo, mò mò gì đó  , rồi anh đáp lại, giọng tỉnh bơ:  "Sai rồi, là  "Bleacher" , cô Bò Cạp à  !!!!"  ( "Bleacher" - Tẩy Giả, tên gọi chung của các sát thủ Team Bleach) rồi anh giựt chốt của quả Flash Bang
+
+ 
+đang cầm trong tay, nhắm mắt lại rồi đột ngột giơ lên cao. Tên sát thủ, à không, Bò Cạp (cho phép tui gọi như zậy nhe  ) chưa kịp phản ứng gì thì, 1 ánh đèn Flash chói chang như 1 ánh chớp loé lên đã chiếu thẳng vào mắt của  2 người còn lại, cùng 1 lúc 1 âm thanh chói tai với âm độ lớn vang lên. *Eeeeeeeeee*, tai của ba người, kể cả Sư Tử, đều bị ảnh hưởng, khiến cho tất cả đều đứng loạng choạng. Tuy nhiên, Sư Tử vẫn có lợi thế hơn Bọ Cạp, đó là mắt cậu không hề bị ảnh hưởng (nhắm mắt lại nhanh lắm), ngay lập tức, cậu đánh văng 2 cây dao của Bọ Cạp vẫn đang uy hiếp cậu nãy giờ. Bị choáng đột ngột, ả sát thủ Bọ Cạp nhanh chóng nhảy về sau, cố giữ đầu óc cho cân bằng. Tất cả chỉ diễn ra trong 5 giây, nhưng quá đủ để cho Sư Tử thiết lập lại tình thế cân bằng của trận đấu: trên tay cậu bây giờ là 2 thanh Tiểu Thái Đao (Kodachi)  bằng vàng đang nằm gọn trong tay cậu, trận đấu bây giờ mới thực sự bắt đầu...
+"Hờ" , Bọ Cạp thở nhẹ "Làm sát thủ mà ngươi cũng ăn diện quá há, cái tên ĐẦU CAM kia" .*Rage* Máu nóng của  Sư Tử bắt đầu tăng lên, (gã này tuy tự hào về cái mái tóc cam sành điệu của mình nhưng rất ghét bị gọi là Đầu cam =.=)  "Ng..ngươi vừa nói gì hả con nhỏ BỌ CẠP kia !!!! " Sử Tử lớn giọng, *Rage* *Rage*, bây giờ đến phiên nhỏ sát thủ kia "hừng hực" (sắp phang nhau ròi ==') "Ta có tên đàng hoàng nghe chưa" ả vừa nói vừa đan 2 tay vào nhau rồi rút tay ra, tức khắc 6 cái Shuriken xuất hiện trên 2 tay, ả nhanh chóng lao vào Sư Tử......."Tên ta là Thiên Yết !!!!!!!" (các bạn Ty vui chưa   ?? )Ả hét lên, rồi........
+ 
+
+*Vút*, 3 cái Shuriken sắc lẻm được phóng đi, nhắm thẳng vào ngực của Sư, nhanh như cắt cậu đưa kiếm lên đánh bật hết mấy cái phi tiêu ấy, "Hết đỡ !!! " Thiên Yết , với 3 cái Shuriken còn lại trên tay kia, vung lên nhằm thẳng vào mắt của Sư Tử đâm tới.  "Hấp", Sư Tử ngả mình xuống (vẫn đứng vững trên 2 chân nha bà con), Thiên Yết mấy đà đâm hụt, nhưng vẫn lao tới, vì ả đã tìm được 1 mục tiêu mới......  "Chết rồi,Thiên Bình !!" Thiên Bình vẫn còn bị treo thẳng trên hướng trên hướng đâm của Yết..... "NGÔ CÂU THẬP TỰ !!!!!", Sư Tử hô to, dồn toàn lực vào 2 thanh Kodachi trên tay, nhắm thẳng  vào bàn tay của Thiên Yết mà chém vào  "Keng", nhanh hơn điện, Yết Yết đã nhanh chóng lùi tay về, đưa mớ Shuriken ra chặn đường kiếm của  Sư (tên kia, Xà Phu nói là "nguyên vẹn"  ,  "nguyên vẹn"  nhớ chưa >.<). Được đà, Sư tung hẳn 1 đạp vào bụng T.Yết nhưng ả đã lộn người né được (ghê thế). Nhận ra mình đang ở thế bị động, Thiên Yết nhảy ngược ra phía sau, thủ thế. Sư Tử bật người dậy, sẵn máu hiếu thắng nổi lên, cậu không nghĩ ngợi gì cả mà lao ngay vào Thiên Yết.... "Đừng Sư Tử, đối với kẻ dùng ám khí không được tuỳ tiện lao vào đâuuuuuuu" Thiên Bình hét lên cảnh tỉnh cho Sư Tử nhưng vô ích. "Không được lao vào kẻ xài ám khí...., cái này nghe quen quen " (Xử Nữ nhắc ngươi trước chứ ai >.<) "Nhưng mà thôi, đâu phải lúc nào cũng có cơ hội khiến hắn đứng im lìm như thế này đâu haha, xem đây....YAH " Sư Tử vừa lầm bầm vừa lao tới Thiên Yết, 2 tay đổi chiều cầm 2 thanh Kodachi (là cầm ngược á) vung lên, cậu la: "HỒI THIÊN KIẾM VŨ-LỤC....". Bất giác, Sư Tử chợt nhận ra rằng, trên khuôn mặt Thiên Yết  đang bất động nãy giờ, bỗng xuất hiện 1 nụ cười vô cùng đáng sợ.  "Thôi chết...." Sư hoảng hốt, nhưng đã muộn rồi...... "VÔ NGỘ MA PHẾ" Thiên Yết vừa la to, tay cầm 1 lọ nhỏ bóp vụn ra trước mặt Sư Tử, một làn khói màu đen từ cái lọ đó bay ra, bám chặt vào mặt Sư Tử, số khác thì bị cậu hít vào.  "Khụ khụ, ngươi....ngươi cho ta hít cái quái gì thế >.<"  Sư Tử giật mình nhảy lùi về, bỗng cậu nhận thấy rằng..... "Cái gì thế này, ngươi, ngươi đã làm gì ta ?????????" Sư Tử gào ầm lên. Một cách đắc ý, Thiên Yết lên tiếng giải thích:  "Cái ta vừa cho ngươi thưởng thức là 1 loại độc dược trích từ nọc bọ cạp, loại này không thèm lấy mạng ngươi đâu, mà chỉ "mượn" tạm thị giác của ngươi 1 tí thôi kakaka ".  Nói rồi, TY rút 2 cái phi tiêu qua, phóng vút 1 cái, *Xoẹt*, chúng bay sượt qua mặt Sư Tử, làm rách mặt cậu. Đắc thắng, Thiên Yết nói tiếp:  "Nào nào, bây giờ hãy giựa vào âm thanh của ta, hướng ném phi tiêu của ta mà tìm cách diệt ta đi nào, kaka". Nói rồi, Thiên Yết tiếp tục ném nhẹ 2 cái phi tiêu khác, sượt nhẹ qua tai Sư Tử (đang chơi mèo vờn chuột  >.<). Sư Tử vung kiếm chém loạn xạ vào không khí nhưng vô hiệu..... Cười đùa chán chê, Thiên Yết bỗng nhảy phốc qua đầu Sư Tử, đứng chắn trước mặt Thiên Bình.  "Hahahaha nhìn ngươi múa may quay cuồng nãy giờ thật thú vị quá , đây này, ngươi có nghe thấy ta không, ta ở sau lưng ngươi này ",  nói rồi, ả lại tiếp tục ném phi tiêu  "chỉ đường"  cho Sư Tử.  "Tập trung nào Sư Tử, ả đang ở ngay sau người mày, chỉ cần quay lại rồi bất ngờ tấn công là dc...."  Sư Tử tự nhủ. Nghĩ là làm, bỗng chốc cậu quay lưng, lao thật nhanh về phía Thiên Yết rồi vung kiếm lên "yahhhhhhhhhhhhh"  Mỉm cười ma mãnh, Thiên Yết bỗng nhảy phốc lên 1 lần nữa, vòng ra sau lưng cậu, tức là lúc này, Sư Tử đang điên cuồng lao vào tấn công.....Thiên Bình !!!!  "Đừng Sư Tử, cậu nhầm hướng rồi, là tớ đây, Sư Tử !!!!!!!"  Thiên Bình gào lên cảnh tỉnh Sư, nhưng đã muộn, Sư Tử 2 tay vung 2 thanh Kodachi lên, chém xuống....... *Cheng*  *Phịch* ........
+(mình xin nói rõ thêm, vị trí của Sư Tử lúc nãy là như sau
++Thiên Bình      Thiên Yết <-------- Sử Tử (lao đến)
+sau khi Thiên Yết nhảy ra sau Sư:
++Thiên Bình  <------ Sư Tử (xông đến chém)    Thiên Yết     )
+.
+.
+.
+Cùng lúc đó...
+Đại bản doanh  "Team Bleach"
+"Support" - Nhà nghỉ
+Xử Nữ bước vào, anh rẽ ngay vào nhà vệ sinh để rửa cho sạch vết máu của Jackal văng lên người anh khi dứt điểm hắn, trông anh vẫn bình thản mặc dù trước đó chừng 20 phút, anh vừa trải qua 1 trận chiến đẫm máu.....
+"Ô Bạch Dương, đã về rồi à, nhanh thế ??", Xử Nữ hỏi khi anh vừa bước ra và gặp mặt Bạch Dương....
+_Anh cũng có về trễ đâu, nhiệm vụ lần này dễ thế cơ à ???? 
+Bạch Dương ngồi xuống ghế, trong cô thật "tả tơi" với khuôn mặt hơi trầy xước, bộ quần áo lấm lem đất cát...
+_Chỉ là 1 tên sát nhân khát máu thôi mà, tôi chỉ đọ kiếm với hắn tí thôi.
+Xử Nữ bình thản trả lời, bất chợt, anh nhìn Bạch Dương rồi ngạc nhiên hỏi :
+_Thế cô đụng phải ai mà "te tua" thế kia ??
+_Một tên bắn tỉa chuyên nghiệp, "ui da" -  Bạch Dương khẽ rên khi cô sát trùng vết thương trên má của mình.
+_Lạ nhỉ, bao nhiêu tên sát thủ gục ngã dưới tay cô trước đây, có tên nào gây nổi cho cô 1 vết trầy đâu, thế hắn là người của băng  nào thế ??? Xử Nữ ngạc nhiên hỏi
+_Hắn được trang bị cả súng bắn tỉa lẫn lựu đạn  nữa, khúc cuối - Bạch Dương vừa nói vừa băng bó mấy vết xước cho mình - hắn nói hắn là   "Maraugier"  gì gì  đó của   "Reversed".....
+_Là  "Marauder" - "Kẻ cướp" - Xử Nữ chỉnh lại, anh trầm ngâm - _Kì lạ, theo tôi được biết thì  "Reversed"  mới chỉ thành lập được khoảng 1 năm gần đây, trùng thời điểm khi Song Ngư gia nhập chúng ta, ai mà ngờ bọn chúng lại  "nguy hiểm"  đến thế ???
+_Có lẽ trong tương lai không xa, bọn chúng sẽ là khúc xương khó gặm của chúng ta đây....
+Bạch Dương ngước nhìn Xử Nữ, bấy giờ anh cũng đang đăm chiêu, nhìn xa xăm, anh đáp lại:
+_Uh
+Không ai biết được,  "tương lai không xa"   như lời Bạch Dương nói lại gần đến thế................
+.
+.
+.
+Sư Tử đứng đó, thở hồng hộc, anh nhìn chằm chằm vào Thiên Bình đang nằm dưới đất, cậu nói nhỏ điều gì đó không nghe thấy rõ.... *Clap clap clap* Thiên Yết vỗ tay,  "khen ngợi"  Sư Tử:  "Hoan hô, cú ra đòn tuyệt vời hahaha"  Sư Tử không chần chừ thêm gì, cậu lao thẳng vào Thiên Yết miệng hét lên:  "Yahhhhhhhhhhhhhhh"  Thiên Yết vẫ đứng đó, nhìn cậu  "Đối đầu với 1 kẻ đang mất hết tự chủ như thế này thật là chán hết sức" ả nghĩ thầm, rồi đột ngột "Hạ màn ở đây đi, ĐẦU CAM !!!!" rồi Thiên Yết vung mạnh  bàn tay kẹp chặt phi tiêu của mình vào bụng Sư Tử.  *Keng*, Thiên Yết giật mình nhìn xuống, thì ra Sư Tử đã dùng 2 thanh Kodachi đỡ thành hình chữ thập trước bụng, đỡ bàn tay đầy phi tiêu kia hòng chạm vào mình, hoá ra cậu không mất tự chủ tí nào ( Sư Tử: "Ta mà  "  Tg: ==') "Nhắc lại xem, ai là ĐẦU CAM hả ????" Sư Tử mỉm cười, rồi cậu la lên:  "Lên đi, THIÊN BÌNH !!!!!".  Thiên Yết hết sức ngạc nhiên, mở to mắt ngước  lên nhìn, là Thiên Bình, Thiên Bình đang nhảy qua đầu Sư Tử, vung kiếm lên, nhắm thẳng vào người Thiên Yết....  "Trapped <3" Thiên Bình cười nhẹ, rồi cô vung kiếm chém........
+*Phụt*, đường chém của Thiên Bình chỉ trúng vào phần mềm của Thiên Yết (không trúng chỗ hiểm), nhưng thế cũng đủ khiến cho Thiên Yết phải nhảy lùi về sau, khuôn mặt hết sức hoảng hốt, tay ôm lấy vết thương ngay bắp tay...... "Sao ngươi, sao ngươi...." Thiên Yết chỉ Sư Tử,  "Làm sao ngươi có thể không chém trúng con nhỏ kia 1 khi đã trúng ma phế của ta ???"  "À cái đó hả,.." Sư Tử cười,  "cái thứ ma phế của ngươi làm sao bằng huyết thanh giải độc mà thằng bạn thân của ta đưa cho chớ hehe ".  Thiên Yết bỗng chuyển hướng, lao thẳng tới tấn công Thiên Bình:  "Còn ngươi, sao lúc đó không dứt điểm ta luôn đi mà còn cố tình đánh trượt hả ???" Một cách bình tĩnh, Thiên Bình nhẹ nhàng đỡ đòn tấn công ấy, đoạn cô nói với TY bằng 1 giọng hết sức "ngọt ngào"  :  "Chúng tôi tới đây không phải để trừ khử cô, mà là muốn mời cô gia nhập với chúng tôi.."  "Gia nhập á, gia nhập cái tổ chức ngầm khốn kiếp cảu các người á, thôi đi, đừng làm ta nực cười nữa" Nói rồi, Thiên Yết bất chợt ném 1 loạt phi tiêu về phía Sư Tử, Sư Tử cũng hết sức nhẹ nhàng mà né chúng, rồi anh đổi tông giọng nghiêm túc hơn:  "Thiên Yết, quả thật chúng tôi không có ý xấu, đó là do cô động thủ trước...."  "Ha, cứ cho là các ngươi không có ý xấu đi, nhưng mà các ngươi có biết  Underwolrd  đã làm gì nhà chúng ta, đã làm gì ta không mà còn trơ tráo mời ta gia nhập nó ??? " Vừa nói, TY như bị kích động thêm, điên cuồng tấn công Sư Tử và Thiên Bình.  "Chúng tôi rất lấy làm tiếc, nhưng xin hiểu cho, tổ chức của chúng tôi,  "Team Bleach"  là ...." Vừa chống đỡ  các đòn tấn công của TY, cả Thiên Bình và Sư Tử thay nhau giải thích cho TY hiểu tiêu chí của   "Team Bleach",  kể cả lý do Sư Tử ra làm sát thủ..... "Các ngươi, các ngươi chẳng biết gì cả, chẳng có gì, chẳng có gì...." Thiên Yết chợt ngừng tấn công, nhắm mắt lại, người TY run run như thể TY đang nhớ lại 1 thứ gì đó....  "Chẳng có gì khiến ta tin các ngươi có lòng thành cả !!!!!!!" TY bỗng thét lên, nước mắt tuôn rơi..... "Xem đây !!!" Thiên Yết hét lên: " SENBON ZAKURA"  (Thiên Bản Đào) rồi TY vung mạnh 2 tay ra, lập tức, hàng trăm cái phi tiêu bay ra từ người cô, tứ phương tám hướng,  chúng không nhắm vào đâu cả, mà dường như nhắm vào mọi thứ nằm trên đường bay của chúng, không gian bây giờ tràn ngập phi tiêu bay vun vút trong không khí, giống như 1 cơn mưa chết chóc vậy....
+Về phần Sư Tử và Thiên Bình, cả hai không hề lùi về, mà chỉ đứng yên tại chỗ, dùng vũ khí che chắn cho mặt và các chỗ hiểm yếu, mặc kệ nhìn các mũi tiêu cứa rách tay, chân mình, cả hai vẫn đứng yên nhìn cô gái đang tấn công mình, Thiên Yết......
+Sau khi cái phi tiêu cuối cùng được phóng  ra, Thiên Yết bây giờ cũng phần nào lấy lại bình tĩnh, cô ngạc nhiên nhìn Sư Tử và Thiên Bình vẫn đang vững vàng  "bình chân như vại"  (mặc dù máu me đầy người, mà yên tâm, không bị gì đâu  *siêu nhân* ).  "Tại sao, tại sao..." Thiên Yết đi ùừ ngạc nhiên này qua ngạc nhiên khác "Sao các người không tránh, các ngươi không sợ ta giết các ngươi sao ????". Nở 1 nụ cười nhẹ trên môi, Thiên Bình đáp lại:  "Thiên Yết, đấy là cách chúng tôi chứng tỏ lòng thành của mình  "  Sư Tử cũng chen vào:  "Mà cũng may là cô không cố tình nhắm vào chỗ hiểm của chúng tui , nào, chúng tôi chờ câu trả lời của cô" Mệt mỏi, bị thương và bị kích động, Thiên Yết khuỵu xuống, cô cười:  "Phải, các người cũng may mắn lắm, hà hà,  "Team Bleach"  à, cũng không tồi lắm nhỉ....." , cô cười, rồi mãn nguyện ngất đi trong vòng tay của Thiên Bình (thực ra Sư Tử tính dành đỡ TY trước, nhưng mà bị Bình Bình đẩy ra  )....
+.
+.
+.
+"Ngài Xà Phu, Thiên Bình và Sư Tử cuối cũng đã báo cáo hoàn thành công việc" Nhâm Mã la lên, các  "Code Breaker"  khác dù người bắn súng người vung đao cũng đều đồng loạt quay lại, họ đang đánh trả, đúng hơn là "chơi đùa" với lũ thuộc hạ của  "White Shinigami"  . Chợt Kim Ngưu hỏi:  "Nhắc mới nhớ, gã Song Ngư sao vẫn chưa thấy báo cáo thế hử ??? "  Bảo Bình lên tiếng trả lời:  "Chắc anh ý đang chơi 1 khúc cầu hồn cho kẻ thù rồi", Song Tử, vừa chém bay đầu 1 tên cận vệ, tếu táo "Để ý người ta kĩ thế hả Bảo Bảo  "  "Cậu.... >.<" 
+Xà Phu lên tiếng: "Tập trung nào, chúng ta gần tới rồi, hắn..." Xà Phu chỉ vào toà nhà trước mặt:  "Bạn ta ở ngay trong toà nhà kia kìa  ". Đồng loạt, cả 6  "Code Breaker"  trả lời  "RÕ!!!!!!!!!"
+Hết File04, File này xin chân thành cảm ơn sự giúp đỡ của bạn AriesPlayGirl nhe 
+Mời các bạn đón đọc File05; "Kẻ thù" nhé

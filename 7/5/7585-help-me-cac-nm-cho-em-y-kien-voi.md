@@ -1,0 +1,12 @@
+---
+title: "Help me! Các NM cho em ý kiến với"
+date: 2025-06-12T11:10:57Z
+slug: help-me-cac-nm-cho-em-y-kien-voi
+draft: false
+---
+
+## Help me! Các NM cho em ý kiến với
+
+## anger07
+
+Em là nhân mã chính hiệu,và là cư dân của 1 lớp kế toán với 8 nam và 53 nữ( năm thứ 2 roài).Khi mới vào học,em chơi thân với 1 nhóm bạn(1 nam bạch dương,1 xử nữ lai sư tử,1 cự giải lai sư tử,1 KN...),vui vẻ thoải mái biết bao.Ai em cũng đối xử như nhau( quan tâm chăm sóc).Nhưng đến 1 ngày xử nữ quan tâm em.Lúc đó mọi người cứ gán ghép em với cô ấy,em cũng có cảm giác thik người đó.nhưng em nói với cô ấy rằng yêu em cô ấy sẽ rất đau khổ đấy và bảo chúng ta là bạn.nhưng cô ấy vẫn cố gắng.thế là em giữ khoảng cách và ít tiếp xúc( tránh mặt) nhưng vẫn săm soi.trong 1 tháng em vẫn âm thâm đọc những dòng status mà cô ấy viết( đau khổ lắm).lúc đó em nc và tiếp xúc nhiều hơn Cự giải( cảm mến).sau 1 tháng cảm giác day dứt,có lỗi em liền nhắn tin xin lỗi Xử nữ và cố gắng nc khác tránh chuyện tình cảm.Nhưng hum 14/2 vừa rùi em chạy đến lớp và viết lên bảng vài lời tỏ tình với cự giải( chết cha không quen nói đối ).cô ấy ngại và tránh xa em.tối về em nhắn tin thì cô ấy bảo chúng ta là bạn thân nhé.em đau khổ trầm trọng,mấy hum buồn thối ruột,thay cảm giác vui vẻ cười đùa với mọi người trước kia là cảm giác không còn gì có thể mình vui dk(.thấy cự giải khó xử và xa lánh ,em liền âm thầm nhờ BẠch dương và KN chăm sóc và giúp cô ấy cười.hum nào em cũng nhắn tin( em sợ cái cảm giác xa lánh,cô đơn đó) tránh nõi chuyện tc.trong suốt 1 tháng cảm giác lẫn lộn.cô ấy kêu làm bạn và em chấp nhận làm bạn(không dk thì chấp nhận làm bạn thoai.nhắn tin là 1 chuyện,nhưng ở lớp là 1 chuyện khác,cô ấy tránh mặt em và không nc với em nữa(mặc dù em cố tiếp cạn nc để trở lại như thường).Đã thế Xử nữ cũng vậy không nc( đã thế còn xoáy em nữa).Cảm giác bị bỏ rơi,cô dơn vô cùng.Em cố gắng cười thật nhiều khi ở lớp( để không ai thấy dk em đang buồn và cũng như không mún người khác buồn phiền vì minh) ,cố gắng tập trung chép bài nhưng không hiều sao không thể tiếp thu dk.h đây 1 tình bạn rạn nứt 1 tình bạn tan vỡ đều do em.ở lớp thì cười nói vui ve thế thôi( cố gắng gượng cười) nhưng ở nhà đau khổ lắm( nhìn trời hiu quanh).mất 2 người bạn cùng 1 lúc em gần như sống không bằng chết(.trông Bạch dương nc với họ vui vẻ biết bao.h đây em chỉ mún nc bình thường và vui vẻ với họ thôi.Ai giúp em với ,Em chả biết ăn nói đâu nên không thể biểu đạt hết dk.có gì nói thẳng thôi không quanh co đâu

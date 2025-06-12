@@ -1,0 +1,33 @@
+---
+title: "12 chòm sao và truyền thuyết loài rồng(chap 2): Bạch Dương và Sư Tử"
+date: 2025-06-12T12:32:17Z
+slug: 12-chom-sao-va-truyen-thuyet-loai-rongchap-2-bach-duong-va-su-tu
+draft: false
+---
+
+## 12 chòm sao và truyền thuyết loài rồng(chap 2): Bạch Dương và Sư Tử
+
+## repotoni
+
+Chap 2 :  Bạch Dương và Sư Tử
+“Tránh ra, tránh ra” Tiếng hô hoán la vang trời cùng với nhịp đập dồn dã của trống. Đoàn binh sĩ giáp bạc sáng ngời bước thành hai hàng, dạc dòng người đang từ từ ùa đến con đường chính của vương quốc. Dẫn đầu đoàn là con ngựa chiến đen lừ, một bộ giáp đen đồng điệu vừa khít với từng chuyển động lên xuống của cơ thể, cùng người chiến sĩ với lớp giáp chiến binh vẫn còn lấm tấm những hạt máu màu đỏ thẳm bước đi hiên ngang giữa dòng người. Tướng “thần” Bạch Dương đã trở về, đó là cách mà trẻ con trong vương quốc gọi chàng. Đúng, vị tướng trẻ tuổi đó chính Bạch Dương, chiếc giáp vàng lấm lem máu, chiếc khiên tròn trĩnh ngày nào giờ méo mó không ra hình thù chứng tỏ chàng đã trải qua một trận chiến cam go, nhưng bây giờ chàng vẫn ở đây, nghĩa là chàng lại chiến thắng thêm một lần nữa.
+Vị tướng gỡ bỏ chiếc mũ lưỡi liềm của mình, để lộ ra một khuôn mặt tuấn tú với vẻ điển trai nhưng phảng phất nét phi phàm, bất khuất của người con trai tuổi 20. Chàng quay nhẹ người sang một bên nhìn dòng người đang đứng, thích thú ngắm nhìn lũ trẻ con háo hức chạy vội theo đoàn người của chàng. Mái tóc đỏ sậm nhờ làn gió nhẹ mà tung bay, che chắn cho lớp da đã sẫm màu do phải đi nhiều ngày liền nhưng vẫn đẹp đến nỗi nhiều người như đắm say với cái hình ảnh tuyệt mĩ ấy. Đôi mắt đen kiên nghị cùng đôi môi luôn mỉm cười của chàng như được lưu lại một cách hoàn hảo trong đáy mắt của nhiều thiếu nữ.
+Rồi chàng ngẩng đầu lại đằng sau, nhìn vào chiếc kiệu giờ đang được phủ kín bằng một tấm khăn lớn. Đó là chiến lợi phẩm lần này của chàng, một chiếc đầu rồng khá lớn đang há mõm như trực chờ phun ngọn lửa đỏ của mình vào bất cứ ai. Tiếc rằng nó không còn có thể được như vậy nữa.
+Đoàn người dân của vương quốc nối đuôi, theo chân đoàn quân của chàng đến lâu đài. Đó là một tòa lâu đài nguy nga tráng lệ, tuy không phải được đúc bằng vàng hay khảm nạm kim cương nhưng cái sắc trắng của nó dường như toát lên được một vẻ đẹp uy nghiêm, hùng vĩ. Chiếc cầu gỗ cao được hạ xuống, cánh cửa sắt cao hơn 5 mét mở ra, đón cả đoàn người đi vào lâu đài. Bạch Dương truyền lệnh cho các binh sĩ nghỉ ngơi, dưỡng sức trong khi bản thân tiếp tục đi theo vị cận thần của nhà vua tiến lên đại điện.
+Bước cùng vị cận thần xuyên qua những dãy hành lang rộng lớn, lớp sàn đá dưới chân được phủ thêm một tấm thảm nhung đỏ dài cả nghìn thước, vừa đi chàng vừa chiêm ngưỡng cái vẻ đẹp lộng lẫy nơi đây. Đối với Bạch Dương thì cung điện không phải là nơi lạ lẫm gì, nó gần như gắn liền với các tuổi thơ khờ dại của chàng, tuy vậy, đối với chàng, nó vẫn có một sự hấp dẫn, cuốn hút riêng. Quả thật đức vua Lenasty và hoàng tử Sư Tử cũng rất có tài trong khoản trang trí. Một cách cửa lớn khác nữa mở ra, tên cận thần ho khẽ, cung tay cuối người, mời chàng bước vào còn bản thân chỉ đứng ở ngoài. Căn phòng lớn đến không tưởng, những thân cột cao đồ sộ như chống cho luôn cả cái bầu trời bên trên, bốn bề cửa kính mở toanh đón ánh nắng, trần nhà được thiết kế với những họa tiết hoa văn cầu kì, cái đèn trần to chiếm dụng cả một góc trần, tất cả đều làm cho nguy nga thêm dáng vẻ độc lập của chiếc ngai giữa căn phòng. Nhà vua Lenasty đang ngồi trên chiếc ngai, dáng người thong thả nhưng vẫn toát lên sự oai nghiêm hiếm có. Khuôn mặt phúc hậu của nhà vua mỉm cười:
+-     Bạch Dương, khanh lần này lại lập công lớn rồi đấy. Thật không hổ danh cho dòng họ Troster. Lần này khanh muốn được ban thưởng gì nào ?
+-     Bẩm, không gì cả,  thưa bệ hạ. Bảo vệ bệ hạ, bảo vệ Zodiland là trách nhiệm của chúng thần.
+-     Cậu nói thế là quá khiêm tốn rồi đó Bạch Dương.
+Giọng nói cất lên và ngay lập tức hướng mọi ánh nhìn về nơi phát ra âm thanh. Cánh cửa mới hồi nào còn chưa được yên vị lại được mở ra. Một chàng trai với bộ xiêm y vàng bước vào, chiếc áo choàng đỏ tung bay phấp phới theo những nếp tóc xòe rộng màu cam sẫm của chàng, ai không quen nếu chỉ thoáng nhìn có thể làm tưởng chàng là một con sư tử (!!).
+-     Là ngài sao, Sư Tử ?
+-     Giờ phút nào mà còn ngài với chả tớ, đã bảo cậu một gọi “cậu”, hai gọi “Sư Tử” dùm mình rồi mà!
+Sư Tử nhăn mày, làm đôi mắt ánh nâu của chàng nheo lại, lộ ra vẻ tức giận. Sư Tử không thích Bạch Dương sử dụng cách gọi này, đối với người khác thì không sao, nhưng đây là Bạch Dương, là bạn thân chí cốt, là huynh đệ cắt máu ăn thề của Sư Tử, vậy nên sao Sư Tử có thể để bạn mình gọi bằng “ngài” xa vời như vậy.
+Bạch Dương phì cười, tính nói lại nhưng nhanh chóng bị Sư Tử chặn:
+-     Tối nay mình mở tiệc chúc mừng chiến công của cậu đó Bạch Dương, nhớ tới sớm, cậu mà tới trễ như hôm bữa thì…
+Cánh tay phải rắn chắc của Sư Tử nắm chặt chuôi kiếm, rút nó ra khỏi vỏ, lia từ từ trong không khí, nếu xét theo hướng nhìn của Sư Tử là đi ngang qua cổ Bạch Dương. Cùng với oán khí, nộ khí và sát khí như tích tụ lâu năm tỏa ra không ngừng. Tuy là chỉ nhắm vào một mình Bạch Dương nhưng đám lính lác xung quanh mới đúng là những người chịu ảnh hưởng nhiều nhất. Nhớ không nhầm lần trước cũng vì Bạch Dương đến trễ có 2 tiếng (!!) mà Sư Tử đã san bằng cả phòng yến tiệc thành bình địa, nghĩ đến vẫn còn thấy kinh hoàng.
+-     Ôi lạy trời… 
+Một tiếng lòng thống thiết âm ỉ vang lên, kéo theo sau đó là hàng chục tiếng nấc khan của binh lính và quan cận thần xung quanh.
+Bất ngờ, một tên lính giáp xám bước vào, là của đội trinh sát, đây là một đội gồm những người có nhiệm vụ giám sát các con rồng để lần tìm ra hang ổ của chúng. Sau màn “diện kiến” và “bình thân” tên lính bắt đầu hồi báo. Một số người của đội đã lần tìm ra được một hang rồng, nó nằm gần ngôi làng Firecave, xét theo tình hình có lẽ con rồng đó đã bị thương khá nặng do tại hiện trường có nhiều vết máu lớn và khá mới. Đức vua khua tay bảo tên lính lui ra phía sau đợi hiệu lệnh khi vừa nghe hết báo cáo. Ngài chưa kịp nói thêm lời nào thì cánh cửa “không được yên vị” lại được mở ra, và lần này là…
+…to be continue… ^^post truyện vào h này có quá tội lỗi không ta ^^.các phần đã upreview : http://forum.matngu12chomsao.com/threads/12-chom-sao-va-truyen-thuyet-loai-rong-su-khoi-dau.12829/
+giới thiệu nhân vật : http://forum.matngu12chomsao.com/th...n-thuyet-loai-rong-gioi-thieu-nhan-vat.12855/
+( chap 1 ) : http://forum.matngu12chomsao.com/th...t-loai-rong-chap-1-giac-mo-cua-cu-giai.12906/

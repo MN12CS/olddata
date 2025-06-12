@@ -1,0 +1,12 @@
+---
+title: "Thiên Yết - mỗi tuần 10 điều thú vị"
+date: 2025-06-12T10:50:49Z
+slug: thien-yet-moi-tuan-10-dieu-thu-vi
+draft: false
+---
+
+## Thiên Yết - mỗi tuần 10 điều thú vị
+
+## bagiaxulanh
+
+​ ​ ​1. Thần Nông không phải lúc nào cũng tự kỉ trong nhà ^^ có chút ham chơi và trẻ con nữa​ ​2. Bạn tốt với bọ cạp, bọ cạp sẽ nhớ mãi không quên. Gây chuyện xấu với bọ cạp, cơ hội xóa vết nhơ gần như bằng 0​ ​3. Có lúc tiếp cận một Thần Nông bạn cảm thấy thật khó, như càng tới gần họ càng đẩy bạn ra… có thể họ… sợ làm bạn tổn thương​ ​4. Bản thân như bọ cạp nằm trong tổ, tôi sẽ không làm gì bạn nếu bạn không gây sự với tôi. Nước sông không phạm nước giếng :”>​ ​5. Đôi mắt của Thần Nông có sức quyến rũ rất lớn :”> (một người bạn của tôi đã tháo kính trên mắt của 1 bọ cạp và bây giờ vẫn chưa thoát khỏi đôi mắt ấy)​ ​6. Trái với những lí thuyết lạnh lùng… nếu bạn kiên nhẫn và đến với họ bằng sự chân thành, Thần Nông rất dễ gần đấy ​ ​7. Không có khái niệm “nhường”, cơ hội tôi với bạn ngang nhau tại sao bạn lại cần tôi nhường ​ ​8. Sự quan tâm của Thần Nông có thể hơi âm thầm làm bạn không nhận ra ​ ​9. Bạn có thể thấy rõ nụ cười của Thần Nông NHƯNG bạn sẽ không xác định được họ đang vui hay đang buồn​ ​10. Bọ cạp rất biết nắm bắt cơ hội ^^​ ​ ​ ​ ​ ​ ​1. Nhóm máu A: Người hướng nội, ít nói và không giỏi giao tiếp lắm. Nhưng khả năng xử lí sự việc rất tốt. Lãng mạn trong tình cảm nhưng làm việc nghiêm túc, không ẩu​ ​2. Nhóm máu B: Có sức chịu đựng cao và kiên nhẫn, có thể nhanh đứng lên sau thất bại. Càng khó lại càng thích làm.​ ​3. Nhóm máu AB: Có thể tự tin giao tiếp trước đám đông nhưng thích sự yên lặng hơn. Không thích dựa dẫm người khác. Không làm thì thôi, đã làm là phải làm cái gì kinh ngạc tột đỉnh.​ ​4. Nhóm máu O: khá bướng bỉnh, trí tưởng tượng tốt, khá lạnh lùng với người họ không thích. Tính chiếm hữu cao.​ ​5. Sống khá thật chỉ trừ trường hợp gặp lại người yêu cũ (đôi khi cố gắng che đậy)​ ​6. Có truyền thuyết rằng sự ra đời của Thần Nông luôn đi kèm với 1 người trong dòng họ qua đời một năm trước ngày sinh. Sinh lực của Scorpio to lớn đến nỗi cần có những năng lượng hỗ trợ mới đủ điều kiện cho nó xuất hiện trên đời.​ ​7. Có phần hơi ích kỉ​ ​8. Sự cố gắng của Thần nông người khác nhìn vô có thể thấy, có kiệt sức cũng cố chấp mà làm bằng được​ ​9. Tôi nghĩ gì làm gì là chuyện của tôi, bạn có quyền bàn tán và đứng nhìn, còn tôi có quyền tiếp thu hoặc không (không bị người xung quanh tác động nhiều)​ ​10. Không cho phép bản thân mình thất bại​ ​ ​    ​ ​ ​​ ​ ​ ​ sưu tầm ​

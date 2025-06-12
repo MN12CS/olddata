@@ -1,0 +1,12 @@
+---
+title: "Thần Nông và những giây phút chỉ lặng im ..."
+date: 2025-06-12T12:43:42Z
+slug: than-nong-va-nhung-giay-phut-chi-lang-im
+draft: false
+---
+
+## Thần Nông và những giây phút chỉ lặng im ...
+
+## BlAcKsNoW1997
+
+​ ​Con người sống giữa cuộc đời bon chen này, họ thèm thương thèm yêu, thèm hiểu thèm thông cảm... ​ ​Ai cũng vậy, thế nhưng so về tính cách Hoàng Đạo, Thần Nông lại đứng riêng lẽ như một kẻ cô đơn nhìn trần thế... Họ cùng có cái thèm khát nhân tình đó, ấy lại đã quá quen với việc sống một mình. ​ ​Có những nỗi buồn mơ hồ đến mơ hồ đi trong con người cung hoàng đạo này. Vừa mang dáng dấp phong trần đào​ hoa, bằng hữu có thể đi tới đâu gặp tới đó, nhưng tri kỷ đối với họ mà nói... chỉ có bóng đêm u tịch tăm tối, là bản ngã của chính bản thân họ.​ ​Thường tự tạo cho mình một vẻ hòa đồng gượng gạo, nhưng trong tâm hồn thì như đường hầm tăm tối. ​ ​Họ đứng riêng một góc, tĩnh lặng nhìn mọi thứ trôi qua như dòng nước cuộn, họ làm gì cũng tùy tâm mà xuất phát... khi lòng đã quyết thì dù có biết sai vẫn làm, có biết đau vẫn chịu. ​ ​Có thể gọi cung hoàng đạo này là kẻ điên nhất trên đời, nhưng ranh giới giữa thằng điên và thiên tài cũng chỉ cách nhau 1 sợi chỉ mong manh...​ ​Giỏi lắng nghe, giỏi thấu hiểu... nhưng hành động thì hoàn toàn không kìm chế được, nóng tính bóc đồng. Tuy lòng không muốn làm mất lòng ai, nhưng một khi tính nóng đã lên thì khó kìm chế. ​Nhưng là dạng động khẩu không động thủ, gặp chuyện động đến vũ lực luôn dùng cái đầu để giải quyết. Khí chất hơn nhiều người, nhưng cũng tự cao tự đại, luôn cho mình đúng.​ ​ ​ ​Là những người sống có quy tắc riêng của mình, tưởng chừng như đối với họ "quy tắc ở đây là không có quy tắc gì"... thế nhưng người cung này dùng cả cái đầu và trái tim để nhìn, cảm nhận về vấn đề. Gây ra những sự mâu thuẫn sâu sắc trong nội tâm.​ ​Từ nhỏ tâm hồn họ tựa như tờ giấy trắng, nhưng càng lớn tờ giấy trắng này càng được tô vẽ những màu sắc u buồn mà số phận định sẳn cho đại đa số người cung này.​ ​Chiêm tinh học từng nói rõ, cung thần nông gặp trắc trở lớn nhất trong cuộc đời họ là tình yêu. Dường như bởi vì tính cách ảnh hưởng đến điều này nên người cung này đa sầu đa cảm, dễ bị kiệt quệ. ​ ​Động lực sống của người cung này là tình cảm, biểu tượng của cung này là bộ phận sinh dục... Như vậy cũng đủ thấy rõ rằng, họ có một sức mạnh ý chí hơn người, nhưng không bền vài dai theo thời gian dài. Người cung Thần Nông cực kỳ cần những lúc yên tĩnh, vui chơi bên bạn bè để có thể nghĩ ngơi để hồi phục tâm hồn.​ ​Hội những người thuộc cung Thần Nông -Ad BCS​

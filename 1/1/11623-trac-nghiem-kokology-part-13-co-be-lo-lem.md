@@ -1,0 +1,16 @@
+---
+title: "Trắc nghiệm Kokology (part 13) - Cô bé Lọ Lem"
+date: 2025-06-12T12:02:10Z
+slug: trac-nghiem-kokology-part-13-co-be-lo-lem
+draft: false
+---
+
+## Trắc nghiệm Kokology (part 13) - Cô bé Lọ Lem
+
+## CziosCerny
+
+CÔ BÉ LỌ LEM​Trong số tất cả những tình tiết đáng nhớ của câu chuyện “Cô bé ​Lọ Lem” thì tình tiết nào khắc sâu trong tâm trí bạn : ​ 
+1. Cô bé Lọ Lem khổ sở chịu đựng dưới sự hành hạ của bà dì ghẻ độc ác. ​ 
+2. Cô bé Lọ Lem được bà tiên hiền hậu biến thành cô công chúa xinh đẹp tuyệt trần ​ 
+3. Cô bé Lọ Lem đánh rơi một chiếc hài trên bậc cầu thang dẫn tới Cung điện khi đồng hồ điểm 12 giờ đêm ​ 
+4. Cảnh hoàng tử tìm ra Cô Bé Lọ Lem và đút vừa vặn chiếc giày vào chân cô. ​ ​LỜI DIỄN GIẢI​Tại sao bạn lại nhớ mồn một tình tiết bạn chọn ấy ? Nhìn cận cảnh, kỹ lưỡng hơn vào những chi tiết của từng cảnh kể trên, chúng tôi biết sự lựa chọn của bạn liên quan đến nhược điểm lớn nhất trong tính cách của bạn : ​ ​1. Cô bé Lọ Lem khổ sở chịu đựng dưới sự hành hạ của bà dì ghẻ độc ác. Ý nghĩ về Cô Bé Lọ Lem tội nghiệp phải còng lưng lau sàn nhà trong khi bà dì ghẻ và hai cô em xối xả mắng nhiếc thường gợi lên những cảm xúc sâu sắc về lòng thương hại. Nhưng ẩn bên dưới lòng thương hại là cảm xúc tự hào, nghĩ rằng ta đây nổi trội, trên cơ hơn. Bạn nhớ cảnh này vì nó khiến bạn cảm thấy mình hay hơn ai đó. Cũng tốt khi bạn có thể nhìn xuống người khác với con mắt dịu dàng, nhưng thật khủng khiếp nếu như bạn cứ luôn nhìn người ta một cách coi thường như thế. ​ ​2. Cô bé Lọ Lem được bà tiên hiền hậu biến thành cô công chúa xinh đẹp tuyệt trần Bằng phép màu nhiệm, bà tiên biến Cô Bé Lọ Lem thành một công chúa xinh đẹp tuyệt trần và làm thay đổi thế giới của cô bé mãi mãi. Nhưng thế giới của chúng ta là thế giới thật cơ mà, mọi thứ không dễ dàng thực hiện như vậy. Những điểm yếu lớn nhất của bạn là sự mù quáng đối với những vấn đề gai góc trong thực tế cuộc sống; và bạn thiếu chú ý đến việc ​lên kế hoạch và lường trước những hệ lụy. Dường như bạn quên mất rằng không hề có bà tiên đứng sẵn đó để cứu bạn thoát ra khỏi những rắc rối bạn tự chuốc lấy cho mình. ​ ​3. Cô bé Lọ Lem đánh rơi một chiếc hài trên bậc cầu thang dẫn tới Cung điện khi đồng hồ điểm 12 giờ đêm Cảnh này tạo ấn tượng mạnh cho bạn, vì nó tác động lên cảm giác phụ thuộc vào nguời ​khác của bạn. Thật dễ hình dung ra chính bạn chạy hối hả khi đồng hồ báo nửa đêm, không bỏ lại gì đằng sau ngoài những vấn đề chưa được giải quyết và những câu hỏi chưa có lời đáp. Trước mắt, dựa dẫm vào người khác để dọn dẹp và tháo gỡ những khúc mắc của bạn có vẻ là cách dễ nhất trong đời, nhưng một ngày nào đó bạn sẽ phải gánh chịu hậu quả. ​ ​4. Cảnh hoàng tử tìm ra Cô Bé Lọ Lem và đút vừa vặn chiếc giày vào chân cô. Hầu hết mọi người đều yêu cái kết thúc có hậu và bạn đặt mình vào trong số họ. Và chính cái đó mới gây nên vấn đề cho bạn. Bạn quá dễ dàng thỏa mãn với những thứ bình thường, bình quân và đơn giản. Tất cả những gì bạn mong ước trong đời là một công việc bình bình, một đồng lương tàm tạm, bạn bè trung bình, gia đình bình thường, những đứa con bình thường . . . Hãy dấn thân khám phá thêm điều khiến bạn trở nên độc đáo và mới mẻ. Hãy nhớ bạn là một cá nhân. Cho dù bạn không cảm thấy như thế.​

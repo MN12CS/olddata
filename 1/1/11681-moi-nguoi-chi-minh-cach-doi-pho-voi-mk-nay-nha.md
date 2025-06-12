@@ -1,0 +1,12 @@
+---
+title: "Mọi người chỉ mình cách đối phó với MK này nha!"
+date: 2025-06-12T12:03:13Z
+slug: moi-nguoi-chi-minh-cach-doi-pho-voi-mk-nay-nha
+draft: false
+---
+
+## Mọi người chỉ mình cách đối phó với MK này nha!
+
+## nekosanS2
+
+Mình là BB nhưng mình đang "chinh phục" 1 anh chàng MK, vấn đề là mình lâu lâu lại thấy "sợ" cái kiểu hành xử máu lạnh của MK này. Phải khó khăn và tốn nhiều thời gian lắm mình mới tiếp cận được với cái tên đáng ghét đó, lúc đầu còn gượng ép, kiệm lời với mình nhưng sau đó thì thân thiết hơn nhiều (và dĩ nhiên là mấy câu hỏi hay câu trả lời cũng nhiều ra được chút xíu, nội dung bớt nhạt nhẽo hơn lun)  Hồi đó, mình bị MK này từ chối 1 lần rồi, xong vụ đó là chàng ta tự tìm cách văng ra khỏi quỷ đạo lun, mình chỉ biết ngậm ngùi từ từ kéo MK ta vô lại, mình phải "mặt dày" và tiếp tục cố gắng lắm (phải đáng mặt BB chứ). Từ đó, 2 đứa coi nhau là bạn thôi nhưng giai đoạn sau đó thì chàng mới thể hiện mình là đứa biết cách quan tâm (cũng chỉ vỏn vẹn có câu: "Đang làm gì?" hay là hỏi ngược lại mình nếu như mình có hỏi trước, mà còn chèn thêm tên mình vào câu nữa vd: ... đang làm gì? or còn ... thì sao?  trước giờ có thế đâu!). Gần đây mình bị bệnh phải nhập viện, suốt thời gian đó toàn được MK này dỗ dành thôi, nào là kiếm cái gì zuj zuj cho mình xem hay nói mấy câu quan tâm, nghe ngữ điệu cũng thiện chí lắm! Mình hơi nghi ngờ, không biết bạn bè chàng rỉ tai thế nào nên mới đối xử tốt với mình, tại vì mình học chung lớp với mấy cậu bạn thân của MK này nè!^^ khó hỉu??? Bây giờ, tuy thân nhưng cũng chưa đi tới đâu, mấy hôm trước lại còn bảo nhớ mình không ngủ được nên thức tới 1h sáng [???], nói thế chắc để xoá tội đã hỉu nhầm mình cách đó không lâu. Thế là 2 đứa ngày nào cũng nói đùa rất ngọt ngào. Thế thôi, mới tối hôm qua gần 12h khuya, BB mình thấy MK đáng ghét kia không ngủ được nên cũng không nhẫn tâm ngủ trước nên tìm chuyện nói, hồi thấy mình nói là đang ngủ nên hắn bảo mình ngủ trước đi. Mình chỉ ẩn cho ai kia vừa lòng nhưng vẫn không off, lát sau thấy sốt ruột nên pm nói chuyện với hắn. Không ngờ hắn bảo mệt rồi off lun, thật đáng ghét! Giờ mình onl mà không thèm pm hắn lun coi sao (để vài ngày coi sao nhưng không biết làm thế này MK sẽ như thế nào nhỉ???), hắn cũng không thấy pm lại (nếu mình mà chủ động thì thể nào MK cũng như bắt được vàng). Nhưng cứ vậy cũng không phải là cách hay gì??? Làm sao để gây sự chú ý với 1 MK kiểu này? Mọi người cũng là MK nên mình mong mọi người giúp đỡ mình!  Tks

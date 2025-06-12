@@ -1,0 +1,13 @@
+---
+title: "Gửi người tôi thương!"
+date: 2025-06-12T15:49:38Z
+slug: gui-nguoi-toi-thuong
+draft: false
+---
+
+## Gửi người tôi thương!
+
+## please be mine
+
+Bài thơ này là bài thơ tình em thích nhất...Và em cũng chưa bao giờ nghĩ đến một lúc nào đó em lại giống như cô gái đó...Vì em cũng chỉ có thể gọi tên nhưng không thể nào tìm thấy anh... 
+ Em đi tìm anh trên bán đảo Ban-căng (Khổng Văn Đương)Em đi tìm anh trên bán đảo Ban-căngTìm không thấy chỉ thấy trời im lặngMột mình em trong màn đêm thanh vắngTim bồi hồi chân bước vội dưới trăngEm trèo lên đỉnh núi cao Các-pátNhìn theo anh mất hút biết về đâuChân ai đi xa lắc tím trời ÂuDòng nước mắt bỗng trào ra chua chát!Em lại đến Biển Đen xưa dào dạtSóng xô bờ liên tiếp gọi triền miênBuồn! Chao ôi, gió làm em phiêu bạtThân cô đơn kinh khiếp cả trăng hiền!Ôi dòng xanh rầm rì sông Đa- nuýpMây trời in lồng lộng giữa dòng sôngNên ngàn năm êm đềm trôi một nhịpChỉ mình em nhức nhối vết thương lòng!Hỡi trái đất rộng làm chi bao laCho loài người chia biên giới thế gianCho sa mạc nổi bùng cơn bão cátCho tình anh chưa bén đã lụi tàn?Em xin hỏi Trời cao và Đức PhậtCõi Niết Bàn có mãi mãi mùa xuânĐâu trời Tây, đâu xa gần cực lạcMà trần gian đầy bể khổ trầm luân?Con lạy Chúa Jêsu ban phép lạCho nước Người hết ly biệt, chia phôiHai chúng con quỳ trước Người đa tạXin hoà tan làm một, ngàn đời!Em cầu nguyện. Còn anh anh chẳng biếtTrái tim anh sao giá lạnh thờ ơ?Và hôm nay dù tình anh đã hếtEm vẫn mong, vẫn hy vọng, vẫn chờ...Vẫn trèo lên đỉnh cao Các-patVẫn theo dòng Đa-nuýp những đêm trăngEm lại đến Biển Đen xưa dào dạtĐi tìm anh trên bán đảo Ban-căng! Bucarest, 19-3-1969Em quen anh được bao lâu nhỉ ?Tình yêu có rất nhiều định nghĩa, nhiều quan điểm......Nhưng đối với em...Tình yêu là không phải ở bên nhau mà là cùng nhau nhìn về một hướng.....................Em là gió...Gió cô đơn...Gió phiêu bạt khắp nơi...Em luôn mâu thuẫn...Mâu thuẫn với chính mình...Mặc dù em biết nếu có người bạn đồng hành thì chắc chắn gió sẽ không còn cô đơn nữa...Nhưng...Niềm tin trong em đã không tồn tại... ............Xa anh!Em sẽ rất nhớ...Nhớ nhiều lắm và suy nghĩ về sự chọn lựa của mình nhiều hơn...Nhưng vì đó là cách duy nhất...........Mùa đông lạnh đã về...Và em hứa sẽ để cho những kỉ niệm êm đềm ngày hôm qua chìm sâu trong giấc ngủ...........Bài thơ này hay lắm! Rất có ý nghĩa...Em không biết anh có đọc không...Nhưng em mong là anh sẽ đọc Để người viết sẽ thanh thản hơn....................Lyly

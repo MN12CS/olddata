@@ -1,0 +1,12 @@
+---
+title: "TURQUOISE ( NHÂN MÃ 23/11-21/12)"
+date: 2025-06-12T10:44:22Z
+slug: turquoise-nhan-ma-2311-2112
+draft: false
+---
+
+## TURQUOISE ( NHÂN MÃ 23/11-21/12)
+
+## teddyhangvu
+
+Ý nghĩa:​Giúp bạn khởi đầu những dự án mới. Người xưa cho rằng khi loại đá này ngả sang màu khác thì đó là sự cảnh báo cho nguy hiểm hay bệnh tật. Turpuoise mang đến niềm vui, hạnh phúc và sự may mắn.​ ​Màu sắc: xanh da trời, xanh lá. ​ ​Diamond Turquoise Jewelry Photography Kevin Kish. New York, NY, Diamond Turquoise Jewelry Pendant Photography Kevin Kish copyright 2010​ ​Với màu quá đặc trưng nên tên của đá đã được dùng để chỉ cho màu này. Turquoise cũng là báu vật trong hàng nghìn năm. Các nền văn hóa cổ xưa gồm Tây Tạng, Mỹ bản xứ, Aztecs, Trung Hoa và Ai Cập đã tôn vinh turquoise vì sức mạnh tinh thần và vẻ đẹp chủa chúng.​ ​Người Ai Cập cổ giữ turquoise làm tài sản: các nhà khảo cổ tìm thấy nữ trang hoàng gia có những đá quý này có tuổi đến hơn 5000 năm.​Các nghệ nhân Trung Hoa làm các đồ chạm trổ từ turquoise đã 3000 năm. ​ ​ ​Turquoise là đá quý cấp quốc gia của Tây Tạng, họ xem chúng mang đến sức khỏe tốt, sự may mắn và giúp tránh những điều rủi ro.Người Aztec và Incas xem turquoise quý hơn vàng, đã đưa các đá này về từ những mỏ ở phía bắc, bây giờ là vùng tây nam nước Mỹ. Đeo turquoise sẽ được thượng đế bảo vệ.​ ​Những chiến binh Apache gắn turquoise vào cung tên để gia tăng độ chính xác. Các nhà sưu tập đã đánh giá cao những trang sức đẹp mắt bằng turquoise làm bởi người Navajo, Pueblo và Zuni.​ ​ ​Trong Viện Smithsonian, đá turquoise nổi bật cùng với 700 carat kim cương trong vương miện Marie-Louise, là một quà tặng của hoàng đế Napoleon cho vợ ông trong lễ cưới. Vương miện này đầu tiên được gắn đá emerald, sau này được thay thế bằng đá turquoise phù hợp bởi công ty Van Cleef & Arpels vào những năm 1950.​Theo truyền thống Châu Âu, tặng quà bằng đá turquoise mang ý nghĩa là “xin đừng quên tôi”.​ ​​ ​Chất lượng, giá trị: Turquoise có nhiều và rẻ nhưng khó kiếm đá chất lượng cao với màu xanh da trời thuần chất và thậm chí cả cấu trúc trong mờ. Màu turquoise có giá trị nhất là xanh da trời đều. Đôi khi turquoise thành phẩm có dạng mạng lưới, giống như những mạng nhện màu đen theo các kiểu hấp dẫn.​Turquoise cũng được mài theo nhiều dạng như hạt, cabochon, chạm trổ, khảm theo đủ dạng và kích cỡ.​Turquoise có độ cứng 5 đến 6 trên thang Mohs. Turquoise thiên nhiên thường phai màu theo thời gian vì cấu trúc xốp nên dễ hấp thu mồ hôi và hóa chất.​ ​(Sưu tầm)​ ​​ ​

@@ -1,0 +1,64 @@
+---
+title: "Tình yêu Cách đánh vào \"tim đen\" 12 Sao"
+date: 2025-06-12T11:14:08Z
+slug: tinh-yeu-cach-danh-vao-tim-den-12-sao
+draft: false
+---
+
+## Tình yêu Cách đánh vào "tim đen" 12 Sao
+
+## bagiaxulanh
+
+Làm thế nào để khiến "người ta" lộ "tim đen" (bí mật trong chuyện tình cảm) ? 
+P/S: binh pháp cũng có chỗ sai, chiến thuật không phải trường hợp nào cũng hiệu quả. Chỉ để tham khảo thôi nhé ^^
+ 
+ 
+1. Bạch Dương: Đứng trước người mình thích, Bạch Dương là người hồn nhiên thể hiện sự quan tâm. Họ rất ân cần, dõi cái nhìn theo sát và bước đi kề kề bên bạn. Ẩn sâu trong lòng cậu ấy là những tâm tư ngổn ngang và 1 quyết tâm đang nuôi lớn. Nếu đột nhiên bạn quay ra cười với họ và nhẹ nhàng hỏi: "Cậu có thích tớ không?/Anh có thích em không?" thì phần lớn Bạch Dương sẽ thót tim 1 cái rồi ánh mắt của họ thoáng chốc mất tập trung. Bạch Dương có thể dùng 110% nỗ lực để đánh chiếm trái tim bạn, hoặc cũng sụp đổ trong giây lát nếu bị chủ động "đánh úp bất ngờ" ^^
+ 
+ 
+2. Kim Ngưu: "Tim đen" của Kim Ngưu là một tình cảm giản dị thuần nhất. Bạn sẽ chẳng cần phải nghĩ cách làm gì để khiến họ bất ngờ. Chỉ cần nhẹ nhàng quan tâm, tạo cho Ngưu Ngưu 1 cảm giác an toàn và bình yên, họ tất sẽ bộc lộ tâm tư tình cảm sâu kín. Bằng những quan tâm đáp lại, những món quà (Kim Ngưu sẽ ko bao giờ đắn đo khi tặng quà người họ yêu mến). Kim Ngưu không thích sự đổi thay vội vàng, nếu bạn tỏ ra hời hợt để thăm dò, có thể họ sẽ bộc lộ lòng tự ái và buồn tủi đấy .
+ 
+ 
+ 
+3. Song Tử: Song Tử bản tính dễ nóng nảy lúng túng không thường là người giỏi cầm giữ cảm xúc. Có thể họ chỉ "thinh thích" bạn thôi, nhưng dù là tình cảm nhỏ nhất họ cũng đối với nó rất thật. Nếu đang vui vẻ ngọt ngào với nhau mà đột nhiên bạn lạnh lùng và mất tích, Song Tử sẽ âu lo rõ rệt. Nếu bạn tỏ ra ưu phiền và cô đơn, họ sẽ dành thời gian để chuyện trò với bạn; còn nếu bạn tỏ ra mệt mỏi và cần một bờ vai, họ sẽ cho bạn 1 bờ vai. Đó là nếu họ có "cảm tình" với bạn thôi nhé. Song Tử sống rất thật với mọi tình cảm nên đôi khi họ muốn đáp lại tất cả, khó mà biết được họ yêu ai thích ai. Khi đã nhận được sự quan tâm của họ, bạn hãy dùng lạnh lùng làm phép thử, họ sẽ đuổi theo bạn bao lâu là minh chứng của tình cảm sâu đậm bấy nhiêu .
+ 
+ 
+ 
+4. Cự Giải: Cự Giải tuy là người thầm kín và tế nhị nhưng ánh mắt họ sẽ luôn không rời khỏi người họ yêu mến. Một tình cảm chưa thể nói ra là khi họ cảm thấy chưa đủ điều kiện tấn công. Một chút quan tâm gần gũi sẽ khiến họ mạnh dạn và bộc lộ. Người Cự Giải tỏ ra thân thiện và gần gũi với bạn bè cũng như "người ấy", muốn nhận biết bạn là ai trong số đó, hãy im lặng (Cái này gọi là: dĩ độc trị độc). Khi bạn bè im lặng, họ sẽ bớt quan tâm 1 chút, khi "người ấy" im lặng, họ sẽ lo lắng. Hãy nhờ bạn bè của họ, 1 cách gián tiếp nói với họ rằng bạn đang gặp khó khăn. Một Cự Giải khi yêu mến ai sẽ vội vàng băng qua làn mưa để đến với bạn .
+ 
+ 
+ 
+5. Sư Tử: Thẳng như ruột ngựa & hồn nhiên như cây cỏ là bản chất của người Sư Tử. Cứ buông thẳng 1 câu với giọng điệu nghiêm trang - Nghiêm trọng - Nghiêm túc: "Anh có thích em không?/Em có thích anh không?". Họ sẽ thành thật trả lời bạn sau 1 chút lúng túng bất ngờ (Ở điểm này Sư Tử cũng như Bạch Dương). Tuy nhiên họ lại có lòng tự kiêu rất lớn, bạn có thể dùng thêm phép thử, vờ nói với họ rằng: "Anh/em đùa đấy. Tưởng thật à" theo cách lạnh lùng và vô tâm 1 chút, nếu Sư Tử thực sự thích bạn, lòng tự ái của họ sẽ bị đâm 1 nhát và trọng thương. Họ tất tỏ ra buồn, thất vọng hoặc thậm chí là giận dỗi; đôi lúc họ cố giấu đi điều đó, nhưng 1 cách vụng về ^^
+ 
+6. Xử Nữ: Xử Nữ vốn thận trọng nhưng lại hết sức chân thật nếu họ có tình cảm với ai. Song họ vẫn hơn Song Tử ở 1 điểm, họ không đánh giá cao tình cảm chỉ ở mức "thinh thích" và không bị chi phối nhiều bởi nó. Họ đối đáp rất tử tế và chu đáo với người dành cho họ sự quan tâm. Người Xử Nữ rất có óc logic và tài nắm bắt khách quan, "Tim đen" của họ nằm ở chỗ mơ hồ bí ẩn, nghĩa là khi không xác định được rõ ràng tình cảm của "người kia" thì họ quyết không vội vàng lên tiếng. Muốn đánh vào tim đen của họ, hãy làm cho họ cảm thấy bạn thật lòng, chân thành và quan tâm. Nếu thích bạn, họ tất sẽ tự đánh vào tim đen của mình mà bày tỏ thôi .
+ 
+ 
+ 
+7. Thiên Bình: Phức tạp nhất ở Thiên Bình là họ còn không biết được mình có bao nhiêu... "tim đen" nữa. Họ luôn giỏi nhất trong việc tỏ ra bình thản, bình thường nhưng lại không muốn làm mất lòng ai. Cách đánh vào "sào huyệt" của họ là, nghe rõ nhé: Đưa họ lên mây rồi thả ngay xuống đất, lạnh lùng đối diện. Giải thích: Hãy làm cho vui vẻ hài lòng, rồi vờ như mình hời hợt vô tâm khiến họ rơi vào thế bị động, hãy nói lời nhẹ nhàng chân thành rồi nhìn thẳng vào mắt họ. Nếu trong mắt họ có bạn, họ sẽ tỏ ra bối rối y như khi bạn gặp phải 1 người giống hệt mình ^^
+ 
+ 
+ 
+8. Thần Nông: Dùng cái thâm sâu đánh người thâm sâu. "Tim đen" của Thần Nông được người đó giấu tận dưới đáy vực lòng mình, vì khó có thể chân thật đem ra mà đôi khi dù khéo léo tài tình họ cũng bị cho là thiếu 1 chút chân thành để hoàn toàn chinh phục người khác. Vì thế đường tình họ nhiều phen thất bại, nhiều bận chuyển hướng cũng là dễ hiểu. Không có gì sai cả, Thần Nông không phải là người muốn phơi bày trần tình rồi bị làm cho tổn thương. Thần Nông về lâu dài mới có thể bộc lộ chân tình. Nếu thực sự yêu mến bạn, họ sẽ không bỏ cuộc, hãy khéo léo tạo những thử thách; nếu bỗng nhiên họ mạo hiểm lao vào thử thách thì chỉ có thể "tim đen" của họ vừa phải sống chết 1 phen leo lên đỉnh vực để đẩy họ đến với bạn thôi ^^
+ 
+ 
+ 
+9. Nhân Mã: Đường tình cũng như đường đời. Phải làm gì với 1 kẻ phiêu lưu? Bạn không thể ngồi yên 1 chỗ mà lại muốn giữ được Nhân Mã. Người Nhân Mã muốn 1 người đồng hành và cảm thông chứ không phải người yêu ích kỉ. "Tim đen" của họ chính là tâm hồn phiêu lưu, nếu cuộc sống của họ gặp khó khăn, hãy chân thành giúp đỡ họ; nếu cuộc sống của họ có lúc cô đơn, hãy tìm đến họ. Nếu bạn là người thực sự họ cần, họ sẽ đánh đổi hết hành trang để đem theo 1 người đồng hành như bạn. Khi đến với tình yêu, trái tim phiêu lưu của họ có thể làm được cả những điều điên rồ nhất .
+ 
+ 
+ 
+10. Ma Kết: Ma Kết yêu 1 cách nên thơ và lãng mạn, tin hay không tùy bạn. Nhưng Ma Kết không phải người quá bay bổng, họ không chọn mẫu người yêu lý tưởng mà chọn người ân cần dễ mến, người chu đáo và biết vỗ về lòng họ. Ma Kết tuy có "tim đen" to đùng nhưng lại không có xu hướng nói ra, chính vì ấp ủ lâu mà càng ngày nó càng lớn. Ma Kết dùng chữ tín và sự tin tưởng để chinh phục người khác, nếu dùng những thứ đó để chinh phục lại họ, họ sẽ cảm thấy như được cảm thông và gặp bạn tri kỉ. Giống như Thiên Bình, ánh mắt bối rối của họ sẽ tố cáo chính họ, khiến bao nhiêu nỗ lực im lặng đổ xuống sông xuống bể; nhưng không phải bối rối trước sự lạnh lùng, mà trước sự chân tình ấm áp 
+ 
+ 
+ 
+11. Bảo Bình: Bạn đang đứng trước một người khó lường và đầy cảm xúc. Bảo Bình sẽ diễn rất hay vở "như không có gì xảy ra cả" nhưng nếu "khán giả" tỏ ra vô tâm hoặc chán nản, lập tức họ sẽ chuyển ngay sang vở "cái này hay nè" hoặc vở "thật lòng xin lỗi". Bảo Bình đối với người mình thích sẽ chu đáo bất ngờ và có thể đang lạnh lùng vô tâm biến hành ân cần nóng hổi. Giỏi giả vờ nhưng không giỏi đè nén cảm xúc, đó chính là "tim đen" của Bảo Bình. Chẳng cần phải làm gì nhiều, nếu họ có tình cảm với bạn thì họ sẽ như 1 con tắc kè, sẽ đổi màu khi bạn đổi màu, không muốn khiến bạn phật lòng. Tuy thể hiện mình lúc nóng lúc lạnh, lúc thật lúc đùa, tâm trí ở đâu đâu nhưng 1 Bảo Bình khi trót mang bạn trong lòng sẽ luôn đi rất gần và thi thoảng lén nhìn xem bạn còn ở đó không.
+ 
+ 
+ 
+12. Song Ngư: "Tim đen" của Song Ngư là 1 món cổ vật nhiều màu và không dễ nắm bắt. Bản thân Song Ngư không thích bị người khác nắm bắt. Tình cảm của họ là thứ tình cảm "kinh điển" trong phim ảnh, nếu bạn cố tỏ ra lãng mạn thì rất dễ bị hòa quyện vào phong cách của họ và ngộ nhận rằng họ thích bạn mà sự thật thì không phải thế. Song Ngư yêu người họ yêu chứ không yêu người yêu họ. Là những cô cậu bé hồn nhiên, nếu họ thích bạn họ sẽ nằm mơ về bạn cả ngày và chỉ 1 ánh mắt ấm áp, 1 nụ cười dịu dàng của bạn cũng đủ dẫn họ đi theo bạn đến những nơi nhạt nhẽo đơn điệu nhất. 
+P/S: Nhưng đừng thường xuyên dẫn họ đến những nơi như thế nếu bạn không phải là người biết làm những điều lãng mạn nhé ^^
+ 
+ 
+Không có lời yêu đương nào có thể "dán tem" cho lòng chân thành của bạn. Không có phương sách nào là tối ưu cho chiến lược tình yêu lâu dài. Cứ thật lòng đi, bạn có thể bỏ lỡ cả thế giới này chứ không bỏ lỡ người tốt nhất thế giới này - cái người biết trân trọng tình cảm của bạn í. 
+ 
+ 
+nguồn: sưu tầm

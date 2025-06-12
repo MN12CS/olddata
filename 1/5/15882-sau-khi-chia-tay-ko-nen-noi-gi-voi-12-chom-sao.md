@@ -1,0 +1,60 @@
+---
+title: "Sau khi chia tay, ko nên nói gì với 12 chòm sao ?"
+date: 2025-06-12T13:34:07Z
+slug: sau-khi-chia-tay-ko-nen-noi-gi-voi-12-chom-sao
+draft: false
+---
+
+## Sau khi chia tay, ko nên nói gì với 12 chòm sao ?
+
+## Sky Dream
+
+Bạch Dương
+ Không nên hỏi: “Sau này chúng ta còn làm bạn tốt đc không?”
+ Bình thường Tiểu Bạch sẽ nói “Có thể” , nhưng thường là hắn căn bản sẽ ko thèm chủ động liên hệ với bạn. Tiểu Bạch trước giờ làm việc không thích ngoái lại phía sau. “Thôi là hết, xem như là xong”. Câu hỏi và câu trả lời này chẳng qua là lừa mình dối người, bạn không nên ảo tưởng vào câu trả lời này.
+
+ Kim Ngưu
+ Không nên hỏi: Vì lẽ nào mà anh/em nỡ lòng bỏ quên giấc mộng của chúng ta?
+ Bản thân bạn cũng nên biết rằng mọi giấc mộng đều tốt đẹp, nhưng lại chưa chắc thành hiện thực. Bản chất chữ “thủy chung” cũng chứa chút sắc thái hư ảo. Ngưu-chan là chòm sao hướng tới thực tế,cho nên hắn rất có thể sẽ trả lời “Giấc mộng là hư vô ảo ảnh”. Một khi đã như vậy, bạn cũng nên thoát ra khỏi giấc mộng đẹp khi xưa, không nhắc tới nữa làm gì.
+
+ Song Tử
+ Không nên hỏi: “Anh thật sự có yêu em sao?”
+ Cho dù đã từng yêu bạn đến sống đến chết thì thế nào? Trong tình yêu, Song Tử luôn tràn ngập bất an, lúc còn yêu nhau thì say đắm vô vàn, nhưng đến thời điểm cạn tình thì lại xem như người lạ. Chia tay có nghĩa là tình cảm cũng đã dứt, đến lúc này Song Tử có thể trả lời là “Có yêu”, thế nhưng bạn nên hiểu là trong lòng hắn, chuyện dĩ vãng giờ đã là quá khứ.
+
+ Cự Giải
+ Không nên hỏi “Sao lại chia tay với anh/em?”
+ Khi được hỏi câu này, 1 Cự Giải nhân hậu có lẽ sẽ trả lời bạn rằng “Do chúng ta không hợp” hoặc tế nhị hơn là “Anh/em có thể tìm được người khác tốt hơn”. Nhưng nguyên nhân chính thì chỉ có 1: “Do ko còn yêu nữa”.Nếu bạn không ngừng truy vấn : “Vì sao, tại sao?” thì có thể sẽ tái hợp, do Cự Giải rất dễ mềm lòng. Thế nhưng bạn ko cần phải như vậy – vì đây chỉ là tình thương chứ không phải tình yêu, bạn ko cần sự bố thí tình cảm phải ko?
+
+ Sư Tử
+ Không nên hỏi “Chúng ta còn cơ hội quay lại với nhau chứ?”
+ Sư Tử bình sinh cực kỳ sĩ diện, cho nên khi chia tay cũng phải giữ tôn nghiêm cho mình. Tuyệt đối ko có chuyện phút trước nghiêm túc nói chia tay, giây sau lại quyết định tái hợp. Như vậy đối với hắn chẳng khác nào tự mình tát vào mặt mình. Mặc dù có thể còn do dự, hắn cũng sẽ không biểu lộ ra, mà lãnh đạm trả lời “Không quay lại được” . Nhưng dù sao lúc này bạn cũng có thể tỉnh ngộ bước tiếp, một lần nữa tìm kiếm tình yêu đích thực.
+
+ Xử Nữ:
+ Đừng hỏi “Em /anh rốt cuộc ko tốt chỗ nào?”
+ Nếu đã muốn hỏi bậc thầy theo đuổi sự hoàn hảo như Xử Nữ (lúc này lại đang bị chấn thương tình ái), hắn sẽ giúp bạn nhìn thấy hàng chục, thậm chí hàng trăm điểm yếu, và đổ lỗi cho bạn. Nhưng nếu bạn xấu như vậy thì tại sao hắn lại chọn bạn ngay từ đầu nhỉ?
+
+ Thiên Bình
+ Đừng hỏi “Tại sao lại làm điều này với em/anh?”
+ Câu trả lời sẽ là “Xin lỗi” do tổn thương mà Bình Nhi đã gây ra cho bạn. Thế nhưng trong lòng, Thiên Bình không nghĩ rằng mình phải xin lỗi bất cứ điều gì, vì mọi quyết định của Thiên Bình đều đã được cân nhắc kỹ trong khuôn khổ “công bằng” – hay ít ra đó là điều họ nghĩ. Vì vậy bạn không nên mơ đến chuyện trách móc người cầm cán cân công bằng để mà đòi lại sự hợp lý!
+
+ Thiên Yết
+ Đừng hỏi: Trong tương lai chúng ta sẽ vẫn đối xử tốt với nhau chứ?
+ Không ai yêu cuồng si bằng Tiểu Yết. Không ai lụy tình bằng Tiểu Yết. Thế nhưng cũng không ai băng giá tuyệt tình bằng Tiểu Yết. Chia tay có nghĩa là hai bên đã trở thành hai đường thẳng song song – sẽ gặp nhau ở vô cực. Vì vậy, câu trả lời sẽ là “Sau này chúng ta không nên gặp lại”.
+
+ Nhân Mã
+ Đừng hỏi: Những lời thề non hẹn biển của anh giờ đâu rồi?
+ Vì hắn sẽ nhắc nhở bạn rằng: hiện tại cả 2 đều đã trưởng thành rồi, thề non hẹn biển khi xưa chẳng qua là do sự hồn nhiên thơ dại của 1 tình yêu lý tưởng. Huống hồ với Mã Mã, việc nói lời ngon tiếng ngọt chưa chắc đồng nghĩa với việc thực hiện chúng. Vì vậy, lời khuyên tốt nhất cho bạn là đừng cố nắm cương 1 con ngựa đã quyết ý nhảy qua bờ rào.
+
+ Ma Kết
+ Đừng hỏi: Trong lòng anh còn có em chăng?
+ Vì hắn sẽ nói “Tình cảm đó anh sẽ trân trọng tận đáy lòng”, nghe xong thật là cảm động nhưng đừng choáng váng khi biết sự thật: những lời này ngụ ý là: bạn và hắn vĩnh viễn cũng ko nên gặp lại. Kết Kết thuộc dạng gìn giữ tình cảm rất cẩn thận, nếu nói chia tay thì thật là nghiêm trọng lắm rồi. Cho nên vết sẹo trong lòng này hắn sẽ quyết tâm chữa lành.
+
+ Thủy Bình
+ Đừng hỏi: Anh/em sẽ nhớ mãi những khoảnh khắc đẹp ta đã có bên nhau chứ?
+ Không cần tin tưởng vào câu trả lời “Anh/em sẽ luôn nhớ rõ”, vì đó chỉ đơn giản là một lời an ủi. “Người ra đi đầu không ngoảnh lại – sau lưng thềm nắng lá rơi đầy”, dù nhớ hay ko, nhớ rõ như thế nào, mọi thứ rồi đều sẽ bị bụi bặm tương lai xóa mờ. Bảo Bảo cũng như Tiểu Bạch đều hướng đến tương lai, nhìn về con đường phía trước.
+
+ Song Ngư
+ Đừng hỏi: Về sau này anh còn có thể nhớ rõ em sao?
+ Chia tay tất nhiên sẽ làm bạn khổ đau, nhưng Ngư Ngư đa sầu đa cảm trong lòng nhất định cũng cảm thấy phần nào đau khổ. Tuy rằng hắn sẽ rất nhẹ nhàng mà nói rằng “sẽ còn gặp lại”, nhưng một đặc điểm của Song Ngư chính là dễ quên. Đừng nghĩ tới chuyện gặp lại, bởi vì khi thời gian chậm rãi trôi qua, ký ức của bạn trong tâm hồn Ngư Ngư lại rất nhanh phai nhạt, thậm chí hắn còn muốn quên bạn thật nhanh để giữ mình khỏi áy náy đau lòng. Vì vậy bạn cũng đừng nên nhớ mãi hắn không quên, phải dũng cảm đón chào tình yêu sắp tới. 
+ 
+nguồn : zing game

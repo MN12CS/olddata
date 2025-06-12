@@ -1,0 +1,14 @@
+---
+title: "Assassin’s Creed III phiên bản PC dời ngày phát hành?"
+date: 2025-06-12T12:43:51Z
+slug: assassins-creed-iii-phien-ban-pc-doi-ngay-phat-hanh
+draft: false
+---
+
+## Assassin’s Creed III phiên bản PC dời ngày phát hành?
+
+## CziosCerny
+
+Chắc chắn ai trong số chúng ta cũng phải thừa nhận một điều rằng, hội chợ E3 tổ chức tháng 6 năm nay đem tới rất nhiều cái tên ấn tượng với những màn trình diễn không khỏi làm các Game thủ tròn mắt, đặc biệt là Ubisoft. Từ Watch Dogs, Splinter Cell Black List, Farcry 3 tới Assassin’s Creed III, từ Trailer tới Demo, tất cả đều để lại những khoảnh khắc đẹp trong lòng cộng đồng. Nhưng thật không may, khi chúng ta nhìn vào đó sẽ nhận thấy một điều rằng, các tựa Game này đa số đều không phát hành trong năm nay, duy chỉ có 2 cái tên bom tấn là Farcry 3 và Assassin’s Creed III là ở gần tầm tay Game thủ nhất. Và sẽ thật thất vọng nếu những tựa Game chất lượng đó không thể đến với chúng ta đúng như lịch hẹn.
+ 
+Game thủ đang rất nóng lòng được thưởng thức Assasin's Creed III.Những ai đã theo sát dòng Game Assassin’s Creed, đặc biệt là những Game thủ sở hữu hệ máy PC, có thể nhận thấy rằng Ubisoft có một tiền lệ khá xấu, khi cả phiên bản PC của Assassin’s Creed Brotherhood lẫnAssassin’s Creed Revelations, đều bị lùi ngày phát hành từ nửa cho tới vài tháng. Và dường như Assassin’s Creed III sẽ "kế thừa" thói xấu của những người tiền nhiệm, tiếp tục lùi ngày phát hành ở phiên bản PC.Mọi chuyện bắt đầu khi một nhà cung cấp Game không rõ tên tuổi tại CH Czech đã cung cấp Box Art của phiên bản Assassin’s Creed III Join or Die cho tạp chí Eurogamer. Trong bức ảnh này, chúng ta có thể dễ dàng nhận thấy ngày phát hành của Assassin’s Creed III, ngày 31/10 năm nay. Nhưng ngay ở dòng dưới cùng thôi, là thông báo ngày phát hành của riêng phiên bản PC, ngày 23/11, bị lùi gần một tháng so với ngày phát hành được thông báo chính thức, một điều đang làm cộng đồng Game thủ PC không khỏi lo lắng trong thời gian gần đây.Bức hình được một nhà phân phối Game tại CH Czech cung cấp.Mặc dù chưa có bất cứ phàn hồi nào từ Ubisoft, nhưng với truyền thống lùi ngày phát hành trên phiên bản PC, không những đối với dòng Assassin’s Creed mà còn cả những sản phẩm đa nền khác của hãng, việc phải thưởng thức muộn hơn so với người dùng Console, có lẽ cũng là điều không quá khó hiểu với cộng đồng Game thủ PC. Và cho dù bức hình ở trên có là sự thật đi chăng nữa, thì hãy nhìn về phía lạc quan hơn, khi đối với những tựa Game rất được mong chờ trong năm nay, cũng đã có rất nhiều tựa bị lùi tận sang năm 2013, chứ không chỉ là 1 tháng như Assassin’s Creed III. Hơn nữa, ở những lần trì hoãn trước đó, Game thủ PC đều được nhận những ưu đãi đặc biệt từ phía Ubisoft để đổi lấy quãng thời gian chờ đợi tựa Game mà mình đã dõi theo bấy lâu.GenK

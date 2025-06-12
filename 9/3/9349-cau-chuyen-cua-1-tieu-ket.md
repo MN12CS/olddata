@@ -1,0 +1,12 @@
+---
+title: "câu chuyện của 1 tiểu kết ^^"
+date: 2025-06-12T11:34:44Z
+slug: cau-chuyen-cua-1-tieu-ket
+draft: false
+---
+
+## câu chuyện của 1 tiểu kết ^^
+
+## ssionz
+
+Mình là một tiểu kết. Năm nay học lớp 10 , trong lớp mình chả làm gì cả nhưng đến một ngày , mình dc vào đoàn rùi trở thành bí thư của lớp rồi lên bí thư toàn trường lun ^^. Một hôm ban chấp hành đoàn trường mình dc đi cắm trại, và đó là một ngày rất wan trọng đối với mình , vì duyên số đã đưa mình đến với 1 nữ Bạch Dương ^^. cố ấy là một người rất giỏi , dể thương , vẽ đẹp , hát hay ( người như vậy 102 đó nha ^^ ), và cô ấy cũng là người trong BCH đoàn nên cũng dễ gần gũi nhưng 2 người lại học 2 cơ sở khác nhau ==" ( trường mình có 2 cơ sở , cách nhau cũng khá xa ). Thế là mình xin số dt , nick chat , facebook , zing me , ..... mọi thứ để liên lạc ^^. Và hằng ngày mình chỉ bik nt , chat rùi nc w BD ấy , thật ra mình còn có những người bạn giúp đỡ mình rất nhìu trong chuyện này, họ giúp mình rất rất nhìu ( đôi khi mình thấy bản thân mình vô dụng ==" ).hằng tuần mình và Bd ấy gặp nhau dc 2 ngày vì cô ấy phải wa cs2 đễ học , lúc đầu nói chuyện tiểu kết mình đây rất ngại ^^ ( cô ấy cũng thế ), rùi từ từ 2 đứa cũng wen dần nhưng mình vẫn chưa ngỏ lời w cô ấy, nhìu khi mình thấy mọi thứ tệ đi và gần như tuyệt vọng ==" . rùi một ngày BD cho mình xem cái trang web http://forum.matngu12chomsao.com và mình mới bik mình là Ma kết ==". ngày nào mình cũng lên đọc mật ngữ ^^ rùi 2 đứa chia sẽ wa lại mấy cái xếp hạng , tính cách của sao ( công nhận ma kết y chang mình ^^ ) rùi mình thix nhất là cái 7 điều nên bik về ma kết ^^ ( chung tình và lãng mạn nhất ^o^).Nhưng mình thấy mọi chuyện cứ diễn ra như vậy thì 2 đứa cũng như bạn bt ==" nó làm mình hơi thất vọng, nhìu khi mình ước mình mạnh mẽ như bạch dương, mà mình thấy BD + MK thì ko ra gì cả ==" cái này là cái duy nhất mình ko tin trong cái trang web này >.< .Đến bi h mình đi chơi w cố ấy dc 3 lần , hình như 2 lần có đi xem phim ^^. Mấy thằng bạn nó bảo lúc xem phim là cơ hội nhìu nhất , ít nhất phải nắm tay nó , nhưng đến cả việc đó mình cũng không làm dc, mỗi lần đi chơi xong mình lại hối hận ==" vì mình đã không làm gì cả .mình mong bà kon hãy giúp tiểu kết này có dc hạnh phúc nhak ,có bí quyết gì xin bà kon chỉ giáo ^^ . mà hình như mình có đọc chổ nào đó bảo là : Ma kết : chưa bao h dc yêu . mình sẽ phá câu nói đó ^^

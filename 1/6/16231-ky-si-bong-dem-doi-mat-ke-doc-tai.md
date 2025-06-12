@@ -1,0 +1,20 @@
+---
+title: "\"Kỵ sĩ bóng đêm\" đối mặt \"Kẻ độc tài\""
+date: 2025-06-12T13:43:43Z
+slug: ky-si-bong-dem-doi-mat-ke-doc-tai
+draft: false
+---
+
+## "Kỵ sĩ bóng đêm" đối mặt "Kẻ độc tài"
+
+## teddyhangvu
+
+Một bộ phim mang đến ngày Thứ 6 đen tối trên đất Mỹ và một nhân vật gây sốc Oscar 2012, bạn chọn thưởng thức tác phẩm nào?PHIM CHIẾU RẠPThe Dark Knight Rises(Kỵ sĩ bóng đêm trỗi dậy)Đạo diễn: Christopher NolanDiễn viên: Christian Bale, Michael Caine, Gary OldmanThể loại: Hành động / Giả tưởngPhân loại: PG – 13Sau 8 năm bặt vô âm tín, Batman trở lại thành phố Gotham, nơi đang thực sự hỗn loạn. Tại đây, món nợ liên quan tới cái chết của Harvey Dent vẫn khiến anh bị cục cảnh sát thành phố truy lùng gắt gao. Nhưng điều đó không nguy hiểm bằng việc phải đối mặt với tên trùm khủng bố hàng đầu đang âm mưu thôn tính toàn thành phố - Bane. Và một lần nữa, Kỵ sĩ bóng đêm là niềm hy vọng duy nhất của dân chúng trước bờ vực diệt vong…
+Quy tụ dàn diễn viên trong mơ gồm Christian Bale, Tom Hardy, Joseph Gordon-Levitt, Morgan Freeman và Anne Hathaway, phần kết cho loạt phim bom tấn về siêu anh hùng Batman hứa hẹn sẽ mang tới nhiều điều bất ngờ, kịch tính cho khán giả.The Dictator
+(Kẻ độc tài)Đạo diễn: Larry CharlesDiễn viên: Sacha Baron Cohen, Anna Faris, Ben KingsleyThể loại: Hài hướcPhân loại: RHafez Aladeen – nhà lãnh đạo tối cao của đất nước Cộng hoà Wadiya - từng tuyên bố rằng: chủ nghĩa dân chủ sẽ không bao giờ có đất dung thân tại nơi mà ông cai trị. Chính vì bản tính ngông cuồng đó cùng với chế độ mà ông đang đặt lên đầu người dân, Liên hợp quốc đã vào cuộc. Đứng trước nguy cơ bị can thiệp quân sự, Aladeen buộc phải tới trụ sở Ủy ban Liên hợp quốc tại New York để giải trình.
+Trong hành trình tới Mỹ, kẻ độc tài đã bị người chú của mình bắt cóc với âm mưu thôn tính ngai vàng. Nhưng đây cũng là cơ hội để Aladeen gặp gỡ Zoey, người mà sau này sẽ làm vợ và thay đổi tư tưởng củaAladeen về chế độ dân chủ, mở ra 1 trang mới cho nước cộng hòa nhỏ bé tại Bắc Phi.
+PHIM TRUYỀN HÌNHThe Lord of the Rings: The Two Towers (2002)Đạo diễn: Peter JacksonDiễn viên: Elijah Wood, Ian McKellen, Viggo MortensenThể loại: Giả tưởngPhân loại: PG – 13Phát sóng: 14h00 ngày 28/7Ở phần này, đoàn hộ tống nhẫn đã không còn thực sự là những người bạn của nhau nữa khi một vài người tử nạn, một vài người bị chính chiếc nhẫn ám ảnh rồi tự xa cách nhau. Hơn bao giờ hết, cậu bé người Hobbit - Frodo - đang đứng trước những nguy hiểm và âm mưu thâm độc chưa từng có.
+Bên cạnh đó, tên phù thủy xấu xa Saruman dưới quyền lực của Chúa tể hắc ám Sauron và tên đầy tớ của hắn là Grima Wormtongue đã tạo nên một đội quân Uruk-hai cực kỳ hùng mạnh nhằm tiêu diệt con người và những sinh vật khác. Mọi hy vọng giờ chỉ hướng về Frodo và cuộc hành trình của cậu bé…X-Men: First Class (2011)Đạo diễn: Matthew VaughnDiễn viên: James McAvoy, Michael Fassbender, Jennifer LawrenceThể loại: Hành động / Giả tưởngPhân loại: PG – 13Phát sóng: 23h45 ngày 24/7, 20h00 ngày 26/7, 11h30 ngày 27/7Lấy bối cảnh thập niên 1960, X-Men: First Class đưa người xem trở về thời điểm bắt đầu truyền thuyết về những người biến đổi gen. Lúc này, thế giới đang đứng bên bờ diệt vong bởi những cuộc chiến hạt nhân.
+Trước khi Charles Xavier và Erik Lensherr trở thành Giáo sư X và Magneto, họ đã từng là đôi bạn rất thân. Cả hai cùng nhau cộng tác với các dị nhân khác (một số là người quen, một số là người mới đến) để ngăn chặn thảm họa tồi tệ nhất xảy ra với thế giới. Hanna (2011)Đạo diễn: Joe WrightDiễn viên: Saoirse Ronan, Cate Blanchett, Eric BanaThể loại: Hành độngPhân loại: PG – 13Phát sóng: 21h00 ngày 25/7 và 13h05 ngày 29/7Không giống như những cô bé 16 tuổi khác, Hanna sớm trở thành một sát thủ chuyên nghiệp khi cả tuổi thơ được chính người cha là cựu điệp viên CIA đào tạo. 
+Nhưng trong một lần thực hiện nhiệm vụ, Hanna đã bị bắt. Từ đây, cô dần phát hiện ra những bí ẩn sâu xa đằng sau thân thế thực sự của mình. Liệu rằng, Hanna có thể đi tới tận cùng để giải đáp những khúc mắc mà bấy lâu nay bản thân luôn hoài nghi hay không?
+Mộc Phong - Theo TTVN

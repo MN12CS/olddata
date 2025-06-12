@@ -1,0 +1,12 @@
+---
+title: "Khái niệm Song Ngư - Sự thật đằng sau vẻ ngoài."
+date: 2025-06-12T12:23:50Z
+slug: khai-niem-song-ngu-su-that-dang-sau-ve-ngoai
+draft: false
+---
+
+## Khái niệm Song Ngư - Sự thật đằng sau vẻ ngoài.
+
+## mrtaxzan
+
+Khái niệm Song Ngư - Sự thật đằng sau vẻ ngoài.♥ Nữ Song Ngư thuộc type con gái khó hiểu nhất, họ không hề giả tạo, mà họ khó đoán trước. Trước và sau khi biết họ là 2 con người hoàn toàn khác nhau. Là con người của sự khôn ngoan và mê hoặc, đừng bị đánh lừa trước vẻ ngây thơ đó, vì đằng sau họ tinh ranh như MÈO ♥ Cả nam và nữ Song Ngư đều bị cho là yếu đuối, dễ tổn thương. Cả 2 đều tỏ ra hiền lành, dễ gần vì đều có mục đích của mình. Song Ngư là những con ác ngư sống thầm lặng không mục đích, mà họ luôn trong tình trạng "tùy cơ ứng biến".Với Nam nhân Song Ngư họ thể hiện ra khi bảo vệ người khác bằng tất cả những gì họ có. Còn Nữ Song Ngư yêu đuối để dễ nắm bắt người khác hơn.♥ Loại người mà Song Ngư ghét nhất là những kẻ thích dạy đời. Vì bản chất Song Ngư là độc lập và ít khi nghe lời ai. Họ ghét cay những lời chỉ trỏ từ người khác, cho dù là cấp trên. Cứ thử như nhà bẩn, và Song Ngư đang định quét, phụ huynh của anh ta bỗng dưng nói thừa :"quét nhà đi con" Song Ngư sẵng sàng ném cái chổi Tuy khó bảo, nhưng Song Ngư rất dễ bị những lời khích chi phối.♥ Bản chất của Song Ngư là cung mệnh nước, vô định hình, vì thế Song Ngư rất dễ thay đổi để phù hợp với mọi hoàn cảnh sống. Nhưng khi bị tổn thương, Song Ngư trở nên "lạnh" hơn, nước đóng băng và sẵng sàng làm tổn thương bất kỳ ai chạm vào. Cho dù họ có ý tốt. Nhưng khi Song Ngư "điên" lên. Họ sẽ tạo ra hiệu ứng domino "điên theo" cho những người xung quanh. ♥ Song Ngư rất giỏi tạo ra bầu không khí chung trong 1 nhóm bạn. Vui vẻ, trầm lặng, căng thăng, hay nhộn nhịp. Song Ngư đều có thể biến tấu, họ giỏi hòa giải, cho dù là có sự căng thẳng, Song Ngư vẫn có thể làm không khí trùng xuống. Nhưng bạn biết đấy khi nó "cáu" Song Ngư có thể làm không khí trong lành đó nổ tung...♥ Và Song Ngư bề ngoài càng hiền bao nhiều, thì càng nhiều tâm sự bấy nhiêu, và càng nhiều tâm sự bao nhiêu, thì đụng vào càng dễ nổ bấy nhiêu. Khi nổ thì bạn chắc chắn sẽ tổn thương tinh thần nhiều hơn là thể xác...Bị Song Ngư đá đểu bao giờ chưa? Đau lắm đấy...[Cá sấu]Bản quyền page Song Ngư : www.facebook.com/hoicungsongngu

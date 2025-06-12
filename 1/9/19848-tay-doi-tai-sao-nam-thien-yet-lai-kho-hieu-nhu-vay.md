@@ -1,0 +1,14 @@
+---
+title: "Tay đôi Tại sao nam Thiên Yết lại khó hiểu như vậy?"
+date: 2025-06-12T15:09:40Z
+slug: tay-doi-tai-sao-nam-thien-yet-lai-kho-hieu-nhu-vay
+draft: false
+---
+
+## Tay đôi Tại sao nam Thiên Yết lại khó hiểu như vậy?
+
+## Scarlet
+
+Mình là nữ Thiên Bình đang quen một Thiên Yết nam. TY ấy rất vui vẻ, hòa đồng, lại rất dễ thương nên ngay từ đầu mình đã thích cậu ấy. TY biết chuyện này, tuy không nói gì nhưng từ đó tỏ ra quan tâm với mình rất nhiều, khi mình gặp chuyện gì thì nhiệt tình giúp đỡ vô cùng, nhiều lúc mình bắt gặp cậu ấy lén nhìn mình rồi nhìn chằm chằm nữa. Cái cách TY đối xử với mình khác hẳn so với những đứa con gái khác và chuyện này diễn ra rất thường xuyên nên mình nghĩ có lẽ cậu ấy cũng thích mình thật. Dù hai bên chưa ai chính thức thừa nhận, song chuyện tình cảm này cũng kéo dài được gần 3 năm 
+Tuy nhiên, mọi chuyện bỗng trở nên thật kỳ lạ. Ngày thứ hai vừa rồi, mình gặp TY. Trông cậu ấy có vẻ mệt mỏi, mặt thì sưng như bị ai đánh vậy. Mình lo lắm nên đi hỏi mấy đứa bạn của TY thì biết được, trước đó, TY có lỡ lời châm chọc một nhóm người, hậu quả là bị bọn họ chửi rủa thậm tệ, tệ hơn là vào thứ bảy vừa rồi, cậu ấy bị một nhóm người lôi đi tuy nhiên không rõ đã có chuyện gì xảy ra, người thì nói cậu ấy không sao, người thì nói cậu ấy bị đánh vài phát nhưng không quá nghiêm trọng. Sau khi biết chuyện, mình lên mạng xã hội (hầu như ngày nào mình cũng qua trang cá nhân của TY để xem cậu ấy đang làm gì) và quả thật, trên trang cá nhân của cậu ấy có nhiều lời lẽ khiêu khích, quở trách, có người còn đòi tìm cậu ấy để trị cho một bài học. Mình biết từ trước tới giờ cậu ấy chưa từng gây xích mích với ai như thế này, lần này chỉ là do vô tình, mình nghĩ chắc TY đang rất buồn nên đã nhắn tin hỏi han và an ủi cậu ấy. Nhưng không ngờ, ngay hôm sau, cậu ấy tỏ ra lạnh nhạt với mình hẳn, còn trên mạng xã hội, mình thấy cậu ấy mới đây còn thích những page liên quan đến chia tay, trong đó có page mang tên "Bóng muốn bay hay người cầm tay không muốn giữ" (??) làm mình vừa sốc vừa khó hiểu. Chẳng lẽ tin nhắn ngày hôm qua của mình khiến cậu ấy khó chịu, bực bội? Mình liền nhắn tin xin lỗi TY rằng nếu mình có gì sai khiến cậu ấy bực thì cho mình rút lại những lời nói hôm qua, mình sẽ không làm phiền như vậy nữa và mong là cậu ấy ổn. Vậy mà cậu ấy nhắn lại cho mình ngắn gọn "gì vậy?" làm mình đứng người, sau đó mình ráng chat với cậu ấy bình thường, không hề nhắc đến chuyện vừa xảy ra nhưng cậu ấy cứ tỏ ra không biết gì cả, nói những câu đại loại như "không hiểu", "nghĩa là gì vậy?", "gì đây?" làm mình khó chịu vô cùng >_<
+Thật sự mình không biết mình đã làm gì sai mà cậu ấy đối xử với mình như thế này. Mình không hiểu lý do là gì, tại sao lại chấm dứt một cách lãng xẹt như thế. Thật là khó hiểu....

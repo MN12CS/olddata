@@ -1,0 +1,12 @@
+---
+title: "chàng sư tử của em, nếu 1 ngày nào đó anh tình cờ đọc những dòng này...."
+date: 2025-06-12T12:04:03Z
+slug: chang-su-tu-cua-em-neu-1-ngay-nao-do-anh-tinh-co-doc-nhung-dong-nay
+draft: false
+---
+
+## chàng sư tử của em, nếu 1 ngày nào đó anh tình cờ đọc những dòng này....
+
+## msgemini
+
+...chính là lúc Song Tử nhí nhảnh, hồn nhiên, ngây thơ của anh đã đi vào bước đường cùng, đã trở ra cái bộ mặt thứ 2 của Song Tử mà theo các mem đăng bài gọi là mặt tuyệt vọng (aka mặt ác quỷ). Em nhiều lúc tự hỏi phải chăng em quá mù quáng, dẹp bỏ cái tôi để đến với anh yêu anh bằng cả con tim mình. Và câu trả lời của em là phải! em chưa từng yêu ai nhiều như anh, chưa từng gắn bó với ai mà mỗi lúc ở bên là mỗi lúc con tim em rỉ từng giọt máu. Anh có biết chỉ 1 lúc vô tình anh đã làm tổn thương em rất nhiều không? anh là Sư Tử, đúng! anh có quyền bá đạo, đúng, cái tôi của anh cao ngất trời, đúng, anh muốn tránh né mọi chuyện từ từ suy nghĩ rồi nói với e sau, đúng. Nhưng cái quyền bá đạo đó vô tình đã giẫm đạp lên lòng tự trọng của em, cái tôi cao ngạo kia bỏ lại trong em 1 khoảng trống hụt hẫng, sự tránh né đó chỉ làm e đã đau nay còn đau gấp vạn lần. Em không phải Cự Giải hiền lành chịu đựng, cũng không phải Kim Ngưu kiên nhẫn, càng không phải Song Ngư sống quá tình cảm, em là 1 Song Tử, lòng tự trọng của em cao không kém bất cứ người con trai nào và đức tính nhẫn nhịn phải nói là bằng con số 0. Nhưng không biết vì một lý do nào đó mà em đã phải nhún nhường trước mặt anh, đứng trước anh em không còn là con bé Song Tử kiêu hãnh ngày nào, chỉ đơn giản 1 điều là vì người em yêu em sẵn sàng hy sinh tất cả. Anh à! lời hứa bên nhau đến cuối con đường em vẫn sẽ giữ, lời thề bên anh mỗi khi anh vấp ngã em vẫn làm theo, bàn tay đưa ra em vẫn còn đó... chỉ còn chờ anh muốn nắm lấy hay buông tay. Lòng tự tôn của em đã bị giẫm đạp quá nhiều, em sẽ không níu kéo thứ gì đã khôg còn là của mình nữa. Em sẽ tôn trọng quyết định của anh, anh cứ yên tâm, em vẫn có thể đứng lên và tiếp tục bước đi trên con đường của mình. Trái tim đã chằng chịt sẹo rồi, có thêm 1 vết nữa thì em vẫn có thể chịu đựng. Hoặc nó có bể tan nát thì em vẫn có thể lượm lại từng mảnh mà chắp mà vá... nên đừng hỏi vì sao Song Tử em lại đột nhiên thay đổi hay quá lạnh lùng hay quá tàn nhẫn, vì đơn giản em là 1 Song Tử đã bị dồn vào thế tuyệt vọng

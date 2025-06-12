@@ -1,0 +1,19 @@
+---
+title: "Thiên yết à ....ngốc lắm ...!!"
+date: 2025-06-12T14:47:13Z
+slug: thien-yet-a-ngoc-lam
+draft: false
+---
+
+## Thiên yết à ....ngốc lắm ...!!
+
+## purple scorpion
+
+Ngồi tự kỷ ...viết trong những ngày mưa ​ ​Lặng ngồi bên hiên trong những ngày mưa bay và nhìn dòng đời qua lại .....TY nép mình vào góc khuất trong đêm ...những hình ảnh và ký ức của ngày xưa lại quay về như mới hôm qua ...từng tiếng nói ...từng hành động vẫn như thế ....từng cơn đau tưởng chừng như đã chìm và quên lãng....sao bỗng chốc lại thấy nhói lòng ..! Với một kỷ niệm ...mỗi con người ngang qua đời ....TY vẫn không bao giờ quên được....hoạ chăng chỉ là cất giấu nó vào một góc nhỏ trong lòng mình ....để rồi lại thấy đớn đau ....để rồi thấy nhớ ...và từng giọt nước mắt lại rơi ...rơi trong vô thức ..........​ 
+Trong mắt của mọi người xung quanh... TY là kẻ đa mưu ... nguy hiểm ..nhiều thủ đoạn với vẻ ngoài lạnh giá ...và lời nói đến cay độc ...nhưng... khi chạm tay vào tình yêu ...thì TY lại ngốc lắm ....khờ đi nhiều lắm ... tổn thương thật nhiều ....và càng đau đớn hơn người khác ....sao lại thế kia cơ chứ ?! .....Trời sinh ra đã là vậy ....vẻ ngoài đen tối và nọc đọc chết người của bọ cạp làm cho các loài khác đều phải sợ khi đến gần ...đều phải tránh né và chạy trốn ....nhưng ...đằng sau vẻ đen tối và lạnh giá đó là một con tim rất mềm yếu ....một cơ thể sợ bị tổn thương đến vô hạn .....! Lúc buồn thì TY giấu kín trong lòng ...chẳng khi nào nói ra cả ...vì nó biết rằng chẳng ai có thể xoa dịu được nổi đau này ....có thể làm lành những tổn thương kia ......! Còn vui thì sao ? TY thật sự không biết thế nào là vui ...vì không có điều gì làm cho nó vui thật sự ...chỉ cười nhẹ một giây bất chợt xem như có lệ ...vậy thôi ! 
+ 
+...Lúc nào cũng thế ...TY cũng muốn ở một mình ....lặn người đi trong bóng đêm...khép mình trong tâm hồn đầy những hố sâu ....vì nó hiểu rằng bản thân mình đã quen như thế ....nhưng... thật ra ...lúc này TY cần môt người ở cạnh mình ...hơn bao giờ hết ....TY thích một mình nhưng lại sợ cô đơn .... ....bản thân TY cũng rất nhiều những mâu thuẫn .....thật ra rất ít trong cuộc sống hằng ngày ....nhưng khi có tình yêu thì trái tim TY bị giằng xé dữ dội ... ....chính vì cái lẽ thích giấu mọi điều trong góc khuất tâm hồn ...mà tình yêu với TY cũng thật khó khăn ....mọi điều ấm ức .... khó chịu ...hay những khuất mắc ....đều chẳng muốn nói ra .....chỉ vì muốn giữ cho mối quan hệ của mình thật tốt đẹp ......TY chẳng muốn nói cho đối phương mọi điều khó nói trong lòng đâu ....vì khi nói ra ...TY sợ mình sẽ không đủ bình tĩnh ....sợ mình sẽ không thể giữ được một nửa mà nó tìm kiếm bấy lâu nay  .....khờ và ngốc lắm ....TY à ! ....TY cũng chính là Cung duy nhất có nọc độc ....khi giận thì chích người khác ....nhưng lúc buồn thì sao ....độc nó tự chảy ngược vào trong ... và đầu độc chính cơ thể này ....  như vậy có đáng không TY ?! ....vì chữ "tình" mà làm hại bản thân đến thế sao  ? ....với TY thì tình yêu là thứ không thể thiếu trong cả cuộc đời ....TY có thể không cần những người bạn thân ...có thể không cần xã hội phải nghĩ tốt cho mình ...TY bỏ ngoài tai tất cả mọi điều dèm pha của cuộc sống ....và chỉ cần" một nửa" của mình vui là TY cảm thấy hạnh phúc lắm rồi ..
+.....
+....Đã khi nào bạn thấy trong đêm dài mưa rơi của phố vắng...với những tán cây bên đường ...có một người đi trong âm thầm lặng lẽ ...với vẻ ngoài băng lạnh và mang theo một con tim đầy sẹo ....và rỉ máu từng ngày ....chưa ?! .....
+ 
+Có lẽ ..TY là cung hy sinh cho tình yêu nhiều nhất ....có một tình yêu chân thành nhất...và cũng bị tình yêu làm cho đau khổ thật nhiều ....!! ....nhưng vì lẽ nào mà TY phải chịu như thế ....cũng vì....khi con tim còn đập ....máu còn chảy ....và tình vẫn còn yêu .....!

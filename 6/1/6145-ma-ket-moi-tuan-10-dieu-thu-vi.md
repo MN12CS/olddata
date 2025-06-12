@@ -1,0 +1,12 @@
+---
+title: "Ma Kết - mỗi tuần 10 điều thú vị"
+date: 2025-06-12T10:50:51Z
+slug: ma-ket-moi-tuan-10-dieu-thu-vi
+draft: false
+---
+
+## Ma Kết - mỗi tuần 10 điều thú vị
+
+## bagiaxulanh
+
+​ ​ ​ ​1. Bị cho là con người tính toán… nhưng thực chất không hẳn ma kết nào cũng thế. Họ chỉ là lựa chọn thông tinh, sáng suốt và cân nhắc trước khi làm​ ​2. Thường hay dằn vặt rất lâu vì một lỗi rất nhỏ haizzz​ ​3. Đừng trả lời nhát gừng kiểu trẻ con thế này với ma kết: “sao cũng được” ​ ​4. Ma Kết hầu như không van xin tình yêu (dù yêu ai đó rất nhiều nhưng đã cần kết thúc thì phải kết thúc… không đánh mất bản thân vì người không thuộc về mình)​ ​5. Ẩn sâu trong Ma Kết cũng là người nhạy cảm và biết cảm thông ​ ​6. Thật sự là người mạnh mẽ nhưng đôi lúc cũng rơi vào tình trạng thấy tự ti và cô độc​ ​7. Nỗ lực của Ma Kết phải được công nhận​ ​8. Ma kết sẽ không nói những câu an ủi sáo rỗng nếu họ cảm thấy không thực tế với bạn, ma kết thật sự muốn cho bạn lời khuyên tốt nhất​ ​9. Tình yêu chỉ là một phần cuộc sống của Ma kết, công việc và gia đình cũng quan trọng không kém ​ ​10. Trưởng thành sớm (cụ non =___ ​ ​ ​ ​​ ​ ​1. Nhóm máu A: Không ngại khó khăn để đạt được cái mình muốn. Chỉ tin vào bản thân mình, không dễ tâm sự với ai đó. Lòng tự trọng rất lớn.​ ​2. Nhóm máu B: Luôn bận bịu làm gì đó, lơ là với mọi chuyện xung quanh trừ công việc. Coi trọng thời gian, khéo léo trong giao tiếp nhưng không phải ai cũng kết bạn.​ ​3. Nhóm máu AB: Sống thực tế, cẩn thận và kiên nhẫn. Luôn giữ sự thân thiện với mọi ngừoi xung quanh nhưng thực ra vẫn có sự đề phòng.​ ​4. Nhóm máu O: Ngoài mặt lạnh lùng hơi nghiêm nhưng lại có trái tim rất ấm áp. Không thích tụ tập bàn tán nên hay bị cho là khó hòa nhập​ ​5. Nhiều việc bạn tưởng chừng ma két làm vu vơ nhưng thật ra họ làm gì hầu hết đều có mục đích​ ​6. Thường ít nổi bật, ít tham dự này nọ như bàn tán, chém gió… quan sát âm thầm là chủ yếu​ ​7. Ở khía cạnh nào đó, không nên chỉ liên tưởng đến họ là những người già trước tuổi, ma kết cũng có khía cạnh vui vẻ, con nít, biết giỡn, thích đùa đôi khi…​ ​8. Coi trọng những giá trị truyền thống​ ​9. Quá nghiêm khắc với bản thân hoặc một số chuyện nên tự làm bản thân mệt mỏi​ ​10. Càng trưởng thành Ma kết sẽ càng có xu hướng trẻ hóa :”> nhưng vẫn giữ một số quy tắc nhất định nên cũng đừng giỡn quá với ma kết​ ​​ ​ ​ ​​ ​ ​​ ​ ​p/s: updating..........​ ​ nguồn:khám phá bí ẩn 12 chòm sao​

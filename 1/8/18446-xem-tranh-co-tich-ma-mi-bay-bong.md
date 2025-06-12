@@ -1,0 +1,16 @@
+---
+title: "Xem \"tranh cổ tích\" ma mị bay bổng"
+date: 2025-06-12T14:36:17Z
+slug: xem-tranh-co-tich-ma-mi-bay-bong
+draft: false
+---
+
+## Xem "tranh cổ tích" ma mị bay bổng
+
+## teddyhangvu
+
+Chuyến tàu ma thuật, ngôi làng trên cây cổ thụ, họ hàng quái vật... hiện ra huyền bí qua tranh digital art.
+Nếu như vào thế kỷ 18 - 19, thế giới cổ tích châu Âu được thêu dệt bằng những câu chuyện ly kỳ của các nhà văn nổi tiếng như Andersen hay anh em nhà Grimm, thì nay, nó cũng được tái hiện sinh động không kém bởi các tác phẩm điện ảnh và mỹ thuật. 
+Chúng ta hãy cùng ghé thăm thế giới hoang đường mà kỳ diệu ấy qua bộ tranh digital art của họa sĩ người Thụy Điển - Alexander Jansson. Biểu diễn rối dây.Căn nhà nhỏ tọa lạc trên cây.Ông và cháu trong căn phòng nhỏ xinh ấm cúng.Sinh ra và lớn lên ở cố đô Uppsala (Thụy Điển), Jansson mang niềm say mê với âm nhạc và nghệ thuật từ rất sớm. Sau khi tốt nghiệp trường Nghệ thuật New Domen, anh mở studio riêng, đặt cho nó cái tên “Sleeping House” và bắt đầu sự nghiệp của mình như một họa sĩ thiết kế đồ họa, minh họa nhân vật.Ngôi làng nhỏ với những căn nhà trên cây cổ thụ...… các vị dân làng kỳ quái.Khung cảnh thơ mộng với con thuyền gỗ bay giữa bầu trời đầy sao và chiếc thuyền trăng lung linh trên mặt nước.Halloween.Tranh của Alexander Jansson mở ra một không gian đầy huyền bí với những ngôi nhà nhỏ treo lơ lửng trên đỉnh ngọn cây, người tí hon biết chơi nhạc, các pháp sư bí ẩn ngồi trên chiếc xe bay vun vút giữa màn đêm...Con cú khổng lồ kéo xe chở các pháp sư đi xuyên màn đêm.Chuyến tàu ma thuật - nơi tụ họp của các nhân vật trong thế giới thần kỳ.Chiếc máy bay đang rải phép màu trên bầu trời thành phố vào buổi sớm đầu năm mới.Quầy hàng chuyên bán các món đồ ma thuật, giống như cửa hàng “Phù thủy quỷ quái” của anh em nhà Weasley trong “Harry Potter”.Đây là thế giới pha trộn giữa cổ tích và ma quái: nó không lung linh, trong trẻo như thiên đường cổ tích, cũng không tăm tối, rùng rợn như trong những thước phim kinh dị. 
+Nhân vật ở đây tuy mang hình hài quái vật nhưng dáng vẻ lại cực hiền lành, khung cảnh trời đêm u ám thì được điểm xuyết khéo léo bằng những ánh trăng, ánh đèn, tạo cho người xem cảm giác không hề xa lạ mà ngược lại thật thân quen và ấm áp.Các bức tranh thường có phông nền tối với sắc xanh - đen làm chủ đạo...... song những điểm nhấn bằng ánh sáng đã làm tăng thêm nét mờ ảo, bớt đi vẻ u tối cho cảnh trời đêm.Họ hàng nhà quái vật trên chiếc mũ bay.Màn biểu diễn của ban nhạc mang tên “Huyền bí” (Orchestre de Mystere).Hãy thử tưởng tượng bạn sẽ ra sao nếu đi lạc trong thế giới này: bạn sẽ được trải nghiệm cảm giác khó quên khi ngồi trong chiếc... vỏ chai lênh đênh giữa biển, được đi thang máy bằng đường... gầu nước hay ngắm nhìn những sinh vật kỳ lạ chơi nhạc cụ, biểu diễn phép thuật và đạp xe...  
+Quả là chuyến phiêu lưu đáng mong ước với một chút sợ hãi nhưng rất nhiều niềm vui, phải không nào?Ông bố vĩ đại” đang đạp xe chở các “tiểu bảo bối” đi chơi.Tiết mục ảo thuật mừng Giáng sinh của “Tiến sĩ” Blumenauers mang tên “Chiếc bàn bay”. Nhưng, nhân vật núp sau sân khấu đang cầm vật gì thế nhỉ?Vị vua lười biếng của Vương quốc những chú lùn.Để lên được ngôi nhà hình giếng này, bạn sẽ phải đi trên chiếc thang máy bằng gầu nước.Ba chàng “thuỷ thủ nhí” trên con thuyền bằng vỏ chai.Oksein - Theo MASK

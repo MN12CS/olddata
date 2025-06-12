@@ -1,0 +1,14 @@
+---
+title: "12 CHÒM SAO VÀ ZODIAC WORLD"
+date: 2025-06-12T15:51:04Z
+slug: 12-chom-sao-va-zodiac-world
+draft: false
+---
+
+## 12 CHÒM SAO VÀ ZODIAC WORLD
+
+## Shizuka
+
+TÊN TRUYÊN: 12 CHÒM SAO VÀ ZODIAC WORLD​Thể loại : Kì ảo ,Phép thuật, Lãng mạn ( rồ men tíc như ti ta níc  ), Hành động , Học đường, Tâm lí.​Giới thiệu :​ Thế giới : Zodiac World​ Tứ đại Quốc gia :​- Khí Quốc ( Bắc )​- Hỏa Quốc ( Nam )​- Thủy Quốc ( Đông )​- Thổ quốc ( Tây)​ Phe phái :​- Ma​+ Ma Kểt ( chữ " Ma" to lù lù kia kìa !!! )​+ Thiên Yết ( đừng hỏi nhé.... )​+ Song Ngư ( vô địch tàn bạo . mặt non tơ lòng cáo già -_- )​+ Bảo Bình ( đơn giản là em thích độc và em đủ độc ^^ )​- Tiên​+ Cự Gải ( ngoài cứng trong mềm , cương nhu đúng lúc )​+ Xử nữ ( hoàn hảo là công lí . sạch sẽ là ánh sáng ! )​+ Song Tử ( Thần cưa gái  )​+ Kim Ngưu ( Thực thần )​- Nhân​+ Thiên bình ( ko ác ko hiền -----> TRUNG GIAN)​+ Nhân mã ( Chữ " Nhân " ngay đầu dòng )​+ Bạch dương và Sư tử ko đủ ác để làm Ma cũng chảng đủ hiền để làm Tiên nên xếp vô đây ( -_- )​ ​ ​VĂN ÁN :​ Từ thưở khai sinh lập địa, các vị thần cổ đại đã khai sinh ra những hành tinh, những thế giới, những nền văn minh khác nhau để bắt đầu hành trình của sự sống. Công việc này được thực hiện trong 1 quá trình vô cùng nghiêm ngặt dưới sự kiểm soát chặt chẽ của Thần Tối Cao. Tuy nhiên , 1 ngày nọ , 1 thế giưới mới đã được sinh ra, ko bởi bất kì hay được chịu trách nhiệm của 1 vị thần nào cả. Vậy nên, nó là 1 thế giới vô cùng hỗn loạn và bất ổn. Các vị thần gọi nó là Zodiac World. Trong Zodiac World, sự sống dần hình thành và tiến hóa vs tốc độ chóng mặt. Đó là những sinh vật cao cấp, mang sức mạnh của thần chia làm 3 phe : Ma, Tiên và Nhân. Tiên đại diện cho ánh sáng công lí , Ma tượng trưng cho bóng tối tội lỗi và Nhân duy trì vị trí trung gian ,cố thiết lập nền hòa bình thế giới. Chiến tranh giành quyền lực kéo dài gây ảnh hưởng mạnh mẽ đến các vị thần. Vì thế , các vị thần , vốn ko thể can thiệp vào thế giới mà họ ko tạo dựng, quyết định mang sứ mệnh này cho 12 đứa trẻ mang dấu ấn của Thần Tối Cao : Zodiac Child. ​ ​ 
+ Các Couple mình đã quyết định rồi. ko thể thay đổi đc . Vậy nên hi vọng các bạn sẽ chấp nhận và hoan nghênh các Couple này ^^ Còn ai cặp vs ai thì cứ xem đi hãng biết hén  GTNV mai mình sẽ up cùng CHAP 1 nhé ^^
+ Giờ xin các bạn gợi í cho mình linh thú của các chòm sao khác nhé  Sự tử Song tử Bạch dương Thiên bình đã quyết định ùi :''> 8 Chòm sao khác thì sao ta ??

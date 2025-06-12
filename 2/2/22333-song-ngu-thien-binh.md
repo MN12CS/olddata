@@ -1,0 +1,13 @@
+---
+title: "Song Ngư - Thiên Bình"
+date: 2025-06-12T16:04:33Z
+slug: song-ngu-thien-binh
+draft: false
+---
+
+## Song Ngư - Thiên Bình
+
+## Le Vinh
+
+20/11 lại sắp đến..nếu chúng mình hiểu nhau hơn và em đừng thay đổi thì có lẽ cuộc tình chúng mình sẽ không dừng ở con số 6 em nhỉ...
+Anh không nhớ rõ ngày em và anh gặp nhau nhưng chúng mình nhất chí là lấy 20/11 sẽ là ngày kỷ niệm 2 đứa quen nhau..lúc mới biết em ,em là 1 người con gái ngoan hiền còn anh thì ngược lại chỉ là 1 thằng hư hỏng..lúc chưa có em cuộc sống của anh rất tẻ nhạt mọi chuyện anh làm chỉ vì 1 chữ bạn, không đắn đo suy nghĩ không cần biết hậu quả nhưng từ khi quen em thì lại khác..cuộc sống của anh như đc mở ra trang mới anh biết nghe lời em hơn làm gì cũng cần lời khuyên từ em anh biết nhìn mọi vật xung quanh mình có màu xanh hơn không còn bất cần như trước..lúc đó anh cám ơn ông trời lắm vì đã mang em đến với anh anh tự hứa với lòng mình sẽ không bao giờ rời xa em và sẽ đi cùng em trên những con đường em chọn lúc đó tình yêu chúng mình trong sáng em nhỉ..2 năm khoảng thời gian này có thể anh sẽ không bao giờ quên trong suốt quảng đời còn lại của mình nếu trong 2 năm đó chúng mình đừng xa nhau..nếu lúc đó anh biết suy nghĩ..nếu lúc đó anh biết kìm chế mình hơn thì anh đã không mất em..em nhỉ  trong suốt quảng thời gian trong đó ngày nào anh cũng nhớ đến em nhớ đến những kỷ niệm từng khoảng khắc chúng mình ở bên nhau..anh nhớ 1 lần anh lỡ làm em đau nhưng lúc đó anh không cố ý đâu tuy em không giận anh nhưng anh thấy dây dứt trong lòng lắm..những lúc em lên thăm anh anh vui lắm em còn hứa với anh sẽ đợi anh đến ngày anh mãn án dù ở môi trường nào anh cũng tự nhủ lòng mình phải cải tạo thật tốt để rút ngắn thời gian trở về bên em..anh nhớ em lắm, 2 năm cuối cùng ngày anh mong đợi nhất cũng đã đến lúc đó trong 3 ngày liền anh không ngủ đấy anh nôn lắm anh chỉ mong thời gian trôi qua lẹ lẹ để anh đc về gặp em thôi..nhưng cuối cùng thì như thế nào em có làm theo những gì em đã hứa với anh hay toàn làm những chuyện có lỗi với anh ? nhưng đối với anh cho dù em có làm gì đi nữa anh vẫn sẽ tha thứ cho em anh chỉ muốn em ở bên cạnh anh..anh chỉ muốn em như ngày xưa..nhưng có lẽ làm thay đổi 1 con người rất khó phải không em ,dù chúng mình quay lại với nhau nhưng em đã thay đổi thay đổi hoàn toàn..nhưng trong mắt anh em vẫn là em như ngày xưa..dù chỉ 1 lần cũng làm anh mãn nguyện lắm rồi..em cứ làm theo những gì em muốn anh lúc nào cũng dõi theo em trên con đường em đã chọn..dù em thay đổi như thế nào thì tình cảm anh dành cho em vẫn như vậy không bao giờ thay đổi..mối tình đầu của anh!

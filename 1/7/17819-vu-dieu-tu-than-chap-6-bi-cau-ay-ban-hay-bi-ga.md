@@ -1,0 +1,120 @@
+---
+title: "Vũ điệu tử thần: Chap 6: Bị cậu ấy “bán” hay bị “gả” ?"
+date: 2025-06-12T14:22:02Z
+slug: vu-dieu-tu-than-chap-6-bi-cau-ay-ban-hay-bi-ga
+draft: false
+---
+
+## Vũ điệu tử thần: Chap 6: Bị cậu ấy “bán” hay bị “gả” ?
+
+## yenvidiepnade
+
+Ta sẽ bắt đầu cuộc sống với con người... thứ động vật mà                                                                          ta cho là hạ cấp và nhơ bẩn đó
+                                                                                Ngươi có nghĩ quyết định ấy là đúng không?
+ 
+Sớm tinh mơ…
+“ Oa…”
+“Nào, Yết, con gái ngáp thì phải che miệng chứ, mất hết hình tượng thục nữ rồi”.
+“ Cái thục nữ gì gì đó của cậu, tớ chẳng học đâu, Bình nhi. À, tớ  nhắc cậu chưa nhỉ ? Hôm nay phân phòng đấy”.
+“ Tớ có nghe. Rồi, bây giờ thay đồ đi, tớ sẽ gặp cậu sau.”
+“Ừ, Bình Nhi”.
+[ Cậu ấy ở với Ma Kết sẽ ổn chứ ? Tha lỗi cho tớ nhé. Chính tớ đã nói Xử Nữ cho cậu với Ma Kết  chung phòng, vì chỉ có cậu ấy mới tiết chế, kìm hãm sức mạnh trong cậu được. Tớ mong cậu và Ma Kết sẽ thành một cặp, mơ ước của tớ không quá đáng chứ ?]
+“ Cậu đang thất thần gì vậy Bình nhi ? Ra cho tớ thay đồ nào”. 
+“ Cùng là con gái, sao cậu nỡ lòng làm thế với tớ hả Yết nhi ? ”
+“ Oé. Sáng sớm đã thấy thấy cảnh than mật vậy, thật là khiến cho người ta mặt đỏ tim đập nha, song Thiên”.
+“ Xử Nữ, cậu vào đây làm gì ? Mà thôi cũng được , kéo tên này” *chỉ chỉ váo Thiên Bình* “ ra hộ tớ với. Cậu ấy sắp thành con sam bám dính tớ rồi”.
+“ Ừm, ra thôi Bình nhi, tớ nói cái này”. Xử Nữ không đợi tiểu Nhân Nhi nói gì, túm cổ lôi xềnh xệch ra ngoài.
+“ Bỏ tớ ra !!! Yết, cứu tớ với !!!”
+“Bye. Bye”
+Cạch !
+Keng keng keng…
+“ Chủ nhân, người làm tốt lắm”. Con bồ câu trắng muốt xuất hiện từ trong vòng cổ tím biếc của cô.
+“Gezz, sao lúc nào người cũng biết tôi hiện nguyên hình nhỉ ? Người thích tôi à ? ”
+Thiên Yết nhướn mi cong “ Ngươi chống lệnh?”
+“ Hắc, ta xin lỗi người” Nói xong, con chim lẩm nhẩm câu thần chú: “Tatasa xanuya akedara, “ ma trận thiết lập ! ”
+Bùm !
+“Ưa, lần này trở lại có vẻ hơi lâu đấy ! Xin nhờ chủ nhân nhé ! ”
+“A ? ”
+“Cho tui ở chung phòng, hê hê”.
+ Mặt Thiên Yết giăng đầy hắc tuyến. Khói đen bao phủ căn phòng: “Biến ngay !”
+Đoạn, bị Yết túm gáy vất ra ngoài cửa sổ.
+“Chủ nhân, ngài ác quá, đây là tầng hai mà.”
+Rầm !
+Bên ngoài xôn xao.
+Ngay hôm đó, cáo trạng xuất hiện trên bản tin “ Một anh chàng đẹp trai rơi từ tầng 2 phòng Yết đại. Haizz. Cớ sao cũng là hoa đã có chủ. Nhất định phải hảo hảo mà bảo hộ a.”
+Nhưng mà…
+Cái con Hoàng Minh kia, rốt cuộc sau khi bị ngã xuống tầng 1 đã bị gãy mất một cái xương sườn, ba đốt xương vai, khâu bảy mũi…
+Ây da, thế mới biết Yết ác thế nào chứ.
+Chà.
+“ Cái gì trong phòng tui ý nhỉ ?”
+“Chắc không có gì đâu. Mà cậu nói với cậu ấy chưa ?”
+“Chưa. Tui không đành. Nói ra nhỡ cậu ấy giận, chả bõ.”
+“Cậu phải chịu chứ.”
+Ừm.”
+……………………..
+“Này, cậu biết gì chưa?”
+“Chưa. Có gì thế?”
+“Tiểu mĩ nhân hôm đó, một người ở với La sát trưởng phòng Vệ sinh còn một người là ở bên ngoại đó.”
+“Ma Kết ý hả ?”
+“Ừa đó. Chuyện này còn đến đâu nữa đây.”
+B nhún vai “Who knows !”
+Tình hình là, Yết đi đến đâu , người ta xì xào bàn tán đến đấy.
+ 
+Di ạ, cô thành minh tinh rồi sao?
+Thôi kiếm đại người hỏi vậy.
+“Này em” cô tùm tay một em gái ngồi gần đó, nở một nụ cười “quyến rũ” đến mức cô cũng phải buồn nôn chính mình.
+Qủa nhiên, em gái xinh đẹp không thoát khỏi ma trảo của cáo thành tinh Thiên Yết , lập tức đỏ mặt “ Gì thế ạ?”
+Được thế, Thiên Yết càng dí sát mặt “Em có thể cho chị biết , có chuyện gì mà mọi người bàn tán về chị không?” [ Vì chị xinh quá à?]
+Cô bé mở to mắt vô tội ngây thơ nhìn Thiên Yết “ Chị không biết sao, chị sẽ chung phòng với Kết – sempai đó”.
+Thiên Yết lặng người.
+chị sẽ chung phòng với Kết – sempai đó …
+chị sẽ chung phòng với Kết – sempai đó …
+chị sẽ chung phòng với Kết – sempai đó …
+Cái quái gì đây?
+Lý do khiến Bình nhi ngơ ngẩn đây à?
+Vậy là cậu ấy biết?
+Lẽ nào lại thế…
+A a a a a a, cậu dám LỪA TỚ, tớ sẽ tính sổ với cậu !!!
+Bên nào đó Bình nhi và Xử Nữ đang dọn phòng bỗng lạnh cả người.
+Mọi người thấy sát khí tỏa ra từ người Thiên Yết, trong lòng đợt trống nổi lên.
+Không phải chứ, họ sai cái gì sao? 
+Gezz, thật là…
+Thiên Yết lầm lũi bước đi, thất thiểu vào lớp mới.
+“Sao vậy? Mĩ nhân đây có gì không vui à? Có cần tớ giúp không?” Song Tử vừa thấy Thiên Yết, lăng xăng chạy đến.
+Thiên Yết lườm một cái, sát khí ngày càng tăng.
+Khổ cái Song Tử mặt giày, làm gì có thấy được khói đen , cứ thế tí tớn cười.
+Thiên Yết điên tiết, cầm gáy áo Song Tử, túm ra ngoài. Song Tử trúng tường, rớt xuống đất như cái bánh bao nhũn.
+“Wa, án mạng học đường nha.” Bảo Bình rầm trồ.
+“Thế này có nhằm nhò gì đâu.” Sư Tử nói, đến khóe mắt cũng chẳng thèm liếc.
+Lão vương a, giá như đừng nói ra câu đó thì tốt hơn không.
+Nói xong, Sư Tử cảm thấy có một ánh mắt thù địch ghê rợn đang nhìn mình.   Sư Tử lập tức ngậm tăm.
+“Yết nhi” Bình nhi đẩy cửa vào lớp “cậu lại dỗi cái gì rồi”.
+“ Tớ thích làm căng kệ tớ”.
+“???”[* lo lắng* Cậu ấy làm sao thế nhỉ? Mình mới là người phải bực chứ.]
+Chà…
+“Này, hai cậu” Xử Nữ nói “Tớ chuyển đồ của hai cậuđến phòng của các cậu rồi đó”.
+Một ngày địa ngục của Yết ác ma bắt đầu …
+“Chào cậu, cậu đến rồi” Ma Kết mở cửa, mặt buồn thỉu buồn thiu vì phải share phòng.
+Yết *Giơ tay, nhéo má* “ Cậu là mĩ nam”.
+“Ừ.” Kết lơ đãng “Ủa?”
+“Mĩ nam cậu có thể ăn được”.
+Sxp* rét lạnh* “N… này… cậu…cậu…định…ăn tớ?”
+“Yes. Tiền của cậu”. Yết thẳng thắn “Tớ ham tiền, bởi vậy, cho tớ mật mã đi. Mã két ý.” [ Phù, lần đầu nói nhiều thế này, khô cả cổ.]
+“Tớ có gì?” Kết trao đổi “buôn bán”.
+“Chẳng lẽ hằng ngày được ngắm nhìn dung nhan tớ chưa đủ ư ?” 
+“Hình cậu có tiền !”
+*Đạp bàn hăm hở* “Cậu bán ảnh tớ đi !’
+*Sock* Kết ngất xỉu. 
+A.
+Nham hiểm quá.
+Đúng là lòng người khó lường. Hoa hồng càng tươi thì gai càng độc mà.
+10’ sau, Kết tỉnh.
+Căn phòng xanh lam ưa thích của cậu đã biến thành màu đen.
+Hình tuyển thủ thần tượng cũng biến thành hình đầu lâu kèm mấy diễn viên kinh dị.
+Bộ CPu hình con cừu cũng thành hình đầu lâu nốt.
+Đến chùm đèn pha lê sáng rực cũng biến thành màu xanh xanh vàng vàng như đốm lửa ma trơi kì dị.
+Chung quy lại phòng Kết bây giờ không khác gì:HANG ĐỘNG QUỶ Kết bất mãn bật volume hết cỡ “Trời ơi! Sao phòng con toàn đầu lâu vậy hả Chúa ???”
+Vài giây sau, họ lại rỉ tai nhau “Không những thu phục thêm một mĩ nam mà Yết đại nhân còn tính xử hết đám nam nhân này nữa a”.
+Từ đó về sau, người đi đường gặp Yết cũng phải nể phục 3 phần, dịch xa 3 thước.
+Bất hạnh cho cô quá !
+ Tính ra thì Yết hay Kết mới là người gặp xui đây?

@@ -1,0 +1,14 @@
+---
+title: "[ sư tử ] Barack Obama  tổng thống thứ 44 và đương nhiệm của Hoa K"
+date: 2025-06-12T12:17:24Z
+slug: su-tu-barack-obama-tong-thong-thu-44-va-duong-nhiem-cua-hoa-k
+draft: false
+---
+
+## [ sư tử ] Barack Obama  tổng thống thứ 44 và đương nhiệm của Hoa K
+
+## ghedangghet
+
+Barack Hussein Obama  sinh ngày 4 tháng 8 năm 1961tại Honolulu, Hawaii, Hoa Kỳ là tổng thống thứ 44 và đương nhiệm của Hoa Kỳ. Ông đánh bại Thượng nghị sĩ John McCain trong kỳ tổng tuyển cử ngày 4 tháng 11 năm2008 để trở thành người Mỹ gốc Phi đầu tiên thắng cử chức vụ này. Trước đó, Obama là Thượng nghị sĩ đại diện cho Illinois đến khi ông từ chức. Ngày 9 tháng 10 năm 2009, ông được Ủy ban Nobel Na Uy tuyên bố trao giải Nobel Hòa bình "nhờ những nỗ lực xuất sắc nhằm củng cố ngoại giao quốc tế và hợp tác giữa các dân tộc". Sau khi tốt nghiệp Đại học Columbia và Trường Luật Đại học Harvard, nơi ông từng làchủ nhiệm của tạp chí Harvard Law Review, Obama nhận công việc của một chuyên viên tổ chức cộng đồng và luật sư tập sự chuyên ngành luật nhân quyền, trước khi đắc cử vào Thượng viện Tiểu bang Ilinois và phục vụ tại đây từ năm 1997 đến 2004. Sau thất bại khi tranh cử vào Viện Dân biểu Hoa Kỳ trong năm 2000, Obama tuyên bố chiến dịch tranh cử cho Thượng viện vào tháng 1 năm 2003. Sau chiến thắng vang dội trong kỳ bầu cử sơ bộ trong tháng 3 năm 2004, ông được mời đọc diễn văn tại Đại hội Đảng Dân chủ Toàn quốc vào tháng 7 năm 2004. Tháng 11 năm 2004, Obama đắc cử vào Thượng viện Hoa Kỳ với 70% phiếu bầu, trở thành thượng nghị sĩ gốc Phi thứ năm trong lịch sử Mỹ và là người Mỹ gốc Phi duy nhất phục vụ trong Thượng viện vào lúc đó.
+Là thành viên khối thiểu số trong Quốc hội kỳ 109, Obama đồng đệ trình các dự luật kiểm soát vũ khí quy ước và nâng cao trách nhiệm công luận trong việc sử dụng ngân sách liên bang. Ông cũng mở các cuộc viếng thăm chính thức đến Đông Âu, Trung Đông và châu Phi. Trong Quốc hội kỳ 110, Obama bảo trợ các dự luật liên quan đến các vấn đề trong lĩnh vực vận động hành lang, gian lận bầu cử, biến đổi khí hậu, khủng bố hạt nhân và chăm sóc quân nhân hồi hương. Khi tham gia tranh cử tổng thống vào tháng 2 năm 2007, Obama tập chú vào các vấn đề như triệt thoái binh sĩ Mỹ khỏi Iraq, gia tăng khả năng độc lập năng lượng, hạn chế ảnh hưởng vận động hành lang và phát triển chương trình chăm sóc sức khỏe phổ quát, xem chúng là các ưu tiên quốc gia.
+Obama tuyên bố tranh cử trong cuộc bầu cử tổng thống năm 2008 từ tháng 2 năm 2007 và được Đảng Dân chủ chọn làm ứng cử viên đại diện với ứng cử viên phó tổng thống liên danh Joe Biden tại Đại hội Toàn quốc Đảng Dân chủ. Ông là người Mỹ gốc Phi đầu tiên được một chính đảng quan trọng tại Hoa Kỳ chọn lựa cho cuộc đua vào Nhà Trắng. Ông thắng cử với 53% số phiếu phổ thông và 365 phiếu đại cử tri, đánh bại đối thủ chính là ứng cử viên Cộng hòa John McCain, người nhận 46% số phiếu phổ thông và 163 phiếu đại cử tri. Ông nhậm chức vào ngày 20 tháng 1 năm 2009.

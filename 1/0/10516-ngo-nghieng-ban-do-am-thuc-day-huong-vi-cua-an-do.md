@@ -1,0 +1,29 @@
+---
+title: "Ngó nghiêng bản đồ ẩm thực đầy hương vị của Ấn Độ"
+date: 2025-06-12T11:43:35Z
+slug: ngo-nghieng-ban-do-am-thuc-day-huong-vi-cua-an-do
+draft: false
+---
+
+## Ngó nghiêng bản đồ ẩm thực đầy hương vị của Ấn Độ
+
+## teddyhangvu
+
+Nền ẩm thực của xứ sở “ăn bằng tay” này có rất nhiều nét độc đáo và thú vị đó các bạn ạ!Nét đặc trưng của ẩm thực Ấn Độ trước tiên thể hiện ở việc kết hợp hài hòa các loại gia vị. Mỗi khu vực, mỗi vùng miền ở Ấn Độ lại có những món ăn sử dụng các loại gia vị khác nhau với đặc trưng và kỹ thuật chế biến riêng.Sự đặc sắc trong các món ăn của miền Bắc Ấn Độ được thể hiện qua việc sử dụng một cách hài hòa các nguyên liệu thực phẩm như: sữa, bỡ sữa, sữa chua. Các món ăn ở đây thường không thể thiếu nước sốt. Bên cạnh đó, còn có một số các thành phần nguyên liệu khác được sử dụng thường xuyên như: ớt, nghệ và quả hạch…Các món ăn của miền Bắc Ấn thường không thể thiếu nước sốt.Ở miền Đông Ấn Độ, nổi bật là những món ăn của vùng Orissa, Bengal và Assam với cách pha chế gia vị vào món ăn một cách tinh tế. Các món ăn tại những vùng này thường sử dụng mù tạc, cây thìa là Ai Cập, ớt xanh, sốt thìa là.
+ 
+Súp gà miền Đông Ấn Độ với hương vị mù tạc rất rõ rệt.Trong khi đó, các món ăn của miền Nam Ấn Độ có thành phần chủ yếu là cơm, thịt nai, đồ chua, dừa và đặc biệt là nước cốt dừa, cà ri. Và những món ăn của miền Nam Ấn Độ thường chứa nhiều hương vị do sử dụng các gia vị như me, quả dừa, đậu lăng, cơm và một số loại rau.
+ 
+Một bữa ăn của người dân miền Nam Ấn Độ.Các món ăn của miền Tây Ấn Độ chịu ảnh hưởng bởi các món ăn Bồ Đào Nha còn các món ăn của Đông Bắc Ấn Độ thì lại chịu ảnh hưởng của các nước lân cận như: Burma, Trung Quốc.
+ 
+Món ăn miền Tây Ấn Độ chịu ảnh hưởng nhiều từ các nước lân cận.Với người dân Ấn Độ, gia vị được xem là yếu tố không thể thiếu để tạo ra một món ăn ngon. Ví như các loại bột làm từ ngô, lúa mạch, đậu có tác dụng làm sánh đặc thức ăn, lá cà ri (thường ở dạng lá tươi, sấy khô hoặc xay nhuyễn thành bột) tạo hương thơm đặc trưng cho món ăn của người Ấn. Ngoài ra, còn có nhiều loại gia vị ở dạng nước cũng có tác dụng tạo mùi thơm, được chiết xuất từ các loại thảo mộc như nguyệt quế, tiểu hồi, đại hồi, thảo quả, hồ trăn, đinh hương. Các loại gia vị ở dạng bột làm từ trái cây như dừa, me, xoài… thường được dùng để tạo ra các vị chua, cay, béo. Một điểm lưu ý trong khâu chế biến món ăn của người Ấn là trước khi dùng để nêm vào thức ăn, gia vị luôn được rang cho khô, như thế thì hương thơm mới đậm đà, lâu tan.
+ 
+Cơm Ấn Độ với cách chế biến độc đáo.Xuất phát từ cách ăn bằng tay mà ẩm thực Ấn Độ càng trở nên độc đáo hơn, từ đó dẫn tới sự khác biệt rõ nét trong cách chế biến các món ăn. Gạo và bột mì là hai thực phẩm chính của Ấn và được coi là món chính trong các bữa cơm. Người Ấn Độ thường chế biến món cơm như sau: Gạo được xào với dầu hoặc bơ trước khi cho nước vào để nấu và khi cơm sắp chín còn cho thêm một chút tiêu, hạt thìa là hay quế…
+ 
+Thịt cừu nấu hạnh nhân – một trong những món ăn đặc sắc của Ấn Độ.Ẩm thực Ấn Độ chịu nhiều ảnh hưởng từ các quốc gia lân cận và tôn giáo. Nếu như người Hồi giáo kiêng khem thịt heo thì người Ấn Độ giáo lại không dùng thịt bò, do đó thịt gà, dê, cừu và các loại thủy hải sản vẫn thường được sử dụng nhiều nhất. Các món thịt cũng được chế biến hết sức độc đáo. Theo phong tục của người Ấn Độ, trong các bữa tiệc cưới hỏi hay những ngày lễ lớn thì món ăn không thể thiếu là cừu nấu với hạnh nhân. Thịt cừu nướng cũng là một món ăn được yêu thích ở Ấn Độ và có nhiều cách chế biến khá lạ. Thịt cừu được đặt trong nồi đất nấu trên bếp than hay bếp củi và trên nắp nồi đặt than hồng để thịt cừu vừa thơm vừa giữ được vị ngọt nguyên thủy.
+ 
+Thịt cừu nướng cũng là một món ăn được yêu thích ở Ấn Độ và có nhiều cách chế biến khá lạ.Một trong những món ăn đặc trưng của ẩm thực Ấn Độ là gà Tandoori, người Ấn Độ ăn gà Tandoori ở “mọi lúc, mọi nơi, mọi thời điểm”. Có thể nói, Tandoori là món ăn vừa bình dân nhưng cũng vừa sang trọng bởi nó xuất hiện trong những bữa ăn hàng ngày đến những bữa tiệc quan trọng, thịnh soạn. Gà Tandoori được ưa thích bởi vị ngon và màu sắc rất bắt mắt của nó, một đĩa gà Tandoori có thể biến một bữa ăn bình thường thành bữa ăn khá hấp dẫn và được ăn kèm với hành tây sống. Món gà này ngon nhất khi vừa nướng xong và sẽ ngon hơn nếu trước khi ăn bạn vắt chanh lên miếng gà bởi vị chua của chanh sẽ làm bớt đi phần nào độ cay.
+ 
+Người Ấn Độ ăn gà Tandoori ở “mọi lúc, mọi nơi, mọi thời điểm”.Để làm được món gà Tandoori, người ta phải lột toàn bộ da gà, để nguyên con. Mùi vị của món gà Tandoori được quyết định bởi sự kết hợp nhiều loại gia vị: sữa chua, nước chanh nguyên chất, tỏi, gừng, rau mùi, hạt tiêu sẽ làm gia tăng mùi vị cho gà Tandoori… Sau khi trộn tất cả các loại gia vị trên với nhau thì cho gà vào ướp cùng hỗn hợp rồi để trong tủ lạnh khoảng 8 giờ cho gia vị ngấm vào thân gà. Tiếp đó, lấy gà ra khỏi tủ lạnh 30 phút trước khi nướng. Sau khi nướng lên, món gà có sắc màu vàng trông rất hấp dẫn.
+ 
+Cà ri – quốc hồn của ẩm thực Ấn Độ.Được coi như quốc hồn của ẩm thực Ấn Độ, cà ri từ lâu đã là món ăn không thể thiếu trong các bữa ăn của người Ấn Độ. Có rất nhiều loại cà ri khác nhau như cà ri trứng, cà ri hải sản, cà ri gà, cà ri bắp cải khô, cà ri rau củ... Mỗi món mang một hương vị đặc trưng riêng bởi những nguyên liệu làm nên nó như: các loại rau tạo nên món cà ri trộn rau củ và các gia vị làm nên món cà tím Masala hấp dẫn, các món gà như cà ri gà, cà ri Korma cay vừa, có thể không cay hoặc rất cay như món cà ri Vindaloo, Kadhai thật ngon miệng... Cơm Biryani, Pulau là hai loại cơm thường được dùng để ăn kèm với cà ri.
+Ẩm thực Ấn Độ thật độc đáo phải không các bạn? Nếu có cơ hội, chúng mình hãy thử một lần tự trải nghiệm những món ăn tuyệt vời này nhé!Vens - Theo MASK
