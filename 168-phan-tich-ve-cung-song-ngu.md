@@ -1,0 +1,68 @@
+---
+title: "Phân Tích Về Cung Song Ngư"
+date: 2025-06-12T09:27:30Z
+slug: phan-tich-ve-cung-song-ngu
+draft: false
+---
+
+## Phân Tích Về Cung Song Ngư
+
+## Song Ngư
+
+SONG NGƯ (20/2-20/3) _ 12 CHÒM SAO VÀ TÍNH CÁCH CON NGƯỜI
+
+SONG NGƯ (20/2-20/3)
+
+Chòm sao Song ngư, tiếng La tinh là Pisces, mềm mại như tắm trong dòng nước, ấm áp và cũng dễ dàng tuột khỏi như bọt bong bóng xà phòng. Vì vậy người thuộc chòm sao Song ngư có linh cảm tựa quỷ thuật. Âm nhạc, thơ ca, mỹ thuật và cả vũ đạo đều là cách để thể hiện sự dịu dàng của chính mình.
+1.SƠ LƯỢC VỀ CHÒM SAO SONG NGƯ
+
+
+Thuộc tính của chòm sao Song ngư
+•    Chòm sao Song ngư là chòm sao thứ ba tượng trưng cho nước, cũng là sao cuối cùng trong toàn bộ các chòm sao.
+Dấu hiệu của chòm sao Song ngư
+•    Cá trong nước tượng trưng cho mộng ảo của chòm sao này. Nhưng dùng dây để thắt chặt hai chú cá lại với nhau, cũng là sự tồn tại giữa tinh thần và vật chất trong người thuộc chòm sao Song ngư dẫn đến nảy sinh tình cảm quất quýt không rời.
+Sao chiếu mạng của chòm sao Song ngư
+•    Sao Hải vương lấy thần biển Poseidon đại diện là sao chiếu mạng của chòm sao Song ngư, anh ta ở sâu trong lòng biển, có thể hoạt động tự do trên mặt biển, thần bí và rất ảo mộng, cũng tiêu biểu cho sự trong sạch.
+Sức quyến rũ của người thuộc chòm sao Song ngư
+•    Cá tính lãng mạn của người thuộc chòm sao Song ngư có sức quyến rũ không thể tưởng tượng được. Với trí tưởng tượng phong phú và sự đồng cảm, đặc tính hơi ngại ngùng, thần bí, họ càng làm người khác không thể không yêu được.
+Khuyết điểm của người thuộc chòm sao Song ngư
+•    Người thuộc chòm sao Song ngư bất cứ lúc nào, bất cứ đâu cũng có thể rơi vào lưới tình. Họ luôn làm những dự định dễ nhất, không sử dụng trí tuệ của mình. Họ chỉ có một lý do để yêu, chính vì vậy khi tình yêu kết thúc họ có thể rất lao đao trong đau khổ.
+Vận may của người thuộc chòm sao Song ngư
+•    Màu may mắn: Xám bạc, tím
+•    Đá may mắn: Nguyệt trường thạch, lục bảo thạch
+•    Con số may mắn: 7, 16, 25, 34
+•    Ngày may mắn: Thứ ba
+•    Nơi may mắn: Thành thị lớn
+2.TÍNH CÁCH ĐẶC TRƯNG CỦA NGƯỜI THUỘC CHÒM SAO SONG NGƯ
+•    Tình cảm dị thường của người thuộc chòm sao Song ngư rất phong phú, lãng mạn, đa tình. Họ có tấm lòng nhân từ, tính cách hiền hòa, có trực giác và tính nghệ thuật. Họ chịu hy sinh bản thân mình, nưng tính cách co nhiều thay đổi, ý chí cũng không kiên định, thường chịu sự chi phối của người bên cạnh mà không dễ gì đưa ra phán đoán chính xác.
+•    Chòm sao Song ngư nằm ở cung sau cùng trong 12 cung Hoàng đạo, tập trung ưu điểm cua 11 chòm sao ở ban thân, đương nhiên cũng quy tụ 11 khuyết điểm. Vì vậy, tính tức tạp và tính tách bạch trong tính cách của họ cũng đứng đầu trong 12 chòm sao. Ngoài ra, chòm sao Song ngư cũng dễ bị ảnh hưởng của thế giới bê ngoài nhất. Tính tình họ nhạy cảm, tư tưởng thoát tục, nhưng không sát với thực tế, thường có khuynh hướng trốn bỏ hiện thực.
+•    Họ hơi giống với trẻ con, khát vọng ngông cuồng và rất mạo hiểm, thể hiện rõ những kích động và cấp tiến. Tuy nữ thần vận may thường chiếu cố đến chòm sao này, nhưng nếu vận may nhìn thấy là lẽ đương nhiên thì tính nguy hiểm cũng sẽ ngày càng tăng, nên tự mình sửa lại.
+•    Có khuynh hướng quá lạng mãn, trong đối mắt mơ màng của họ có thể nhìn thấy đất nước mơ ước. Nếu đủ thông minh, người thuộc chòm sao Song ngư nên biến khuyết điểm của mình thành ưu điểm, thể hiện trong các tác phẩm nghệ thuật, những nhu cầu về tiểu thuyết, kịch, thơ ca hoặc vũ đạo chính là bản chất đặc trưng của mơ ước này. Điều không may là, nhiều người thuộc chòm sao Song ngư vì chạy trốn hiện thực, quá ỷ lại vào thuốc men, kết quả là rơi vào trầm luân mà không sao rút ra được. Do ý chí họ nhu nhược lại thêm thiếu quyết đoán, không biết cách từ chối người khác là khuyết điểm lớn nhất.
+•    Từ những ưu điểm mà nói người thuộc chòm sao Song ngư rất giàu lòng thông cảm, có thể dốc lòng bảo vệ, cầu nguyện hoặc khổ tâm để trị vết thương lòng của bàn bè. Họ vốn hiểu được ý nghĩa của người khác, thẳng thắng và mê hoặc, khiến bạn bè có cảm giác vô cùng ấm áp. Nhưng họ lại thiếu can đảm đối diện với sự thực. Họ dễ làm cho người khác liên tưởng đến “nước”. Tính cách của họ rõ ràng và có nhiều chỗ rất giống với biển: sóng gió bất ngờ, sâu thẳm và thủy triều cuồn cuộn nổi dậy. Tình cảm của những người thuộc chòm sao Song ngư giống như những cơn sóng cuộn trào, sâu sắc và mãnh liệt, thế nên đã phải nếm trải những đau khổ vì tình yêu. Trên thế giới có nhiều nhà nghệ thuật nổi tiếng, sinh ra đều thể hiện khuynh hướng của chòm sao Song ngư mạnh mẽ, ấy là khéo léo làm cho tình cảm trào dâng của mình thêm thăng hoa, đưa chúng vào trong nghệ thuật và đã tạo nên vô số tuyệt tác lưu truyền thế gian.
+•    Họ vô cùng lãng mạn, không sao chịu được cách sống cơ giới hóa, kỷ luật nghiêm khắc và tuân theo những khuôn phép một cách nguyên tắc, không thay đổi. Họ thường “đứng núi này trông núi nọ” luôn không có mục tiêu, thay đổi từ việc này đến việc khác, từ mục tiêu này sang mục tiêu khác, rất dễ chán nản, nên phải tập trung trí lực học tập mới được.
+
+3.TRÍ TUỆ CỦA NGƯỜI THUỘC CHÒM SAO SONG NGƯ
+•    Vẻ bề ngoài những người thuộc chòm sao này hướng nội và hơi e dè. Sự phức tạp và mâu thuẫn trong lòng họ làm người khác không sao hiểu được. Trong lòng họ, những mặt đối lập như thiện và ác, vật chất và tinh thần… luôn cùng tồn tại. Tuy trí tượng tượng phong phú nên dễ nằm mộng giữa ban ngày, không sát với thực tế, ảo tưởng về “bạch mã hoàng tử” xuất hiện, lơ là với duyên phận vốn đã có trong cuộc sống hiện thực. Ngoài ra nên cẩn thận đừng lạm dụng trí tưởng tượng mà sa vào ảo tưởng, vì khoảng cách giưa hiện thực và lý tưởng sẽ gây nên tình cảm bất ổn, lưu ý đừng vì những chi tiết nhỏ nhặt làm phân tâm mà giảm đi cố gắng sữa đổi.
+•    Người thuộc chòm sao Song ngư khi quyết định sự việc hoặc thể hiện tư tưởng của mình rất ít khi liên hệ trước sau. Suy nghĩ của họ rất nhiều nhưng thường xảy ra tình huống lắm kế nhiều mưu, nhưng không biết chọn lựa cách nào, Họ thường đưa ra những cách nhìn không sát với thực tế, nhưng khi họ thẳng thắn và dùng lời lẽ dịu dàng phê bình người khác thì người đó sẽ vui vẻ đón nhận và không ngớt ca ngợi đối phương.
+•    Người thuộc chòm sao Song ngư cần một hình tượng anh hùng để theo đuổi. Dù làm việc gì họ cũng nhất định sẽ tìm người xuất sắc nhất trong cùng lĩnh vực với mình làm đối tượng học theo. Vì sao chiếu mạng là sao Hải cương có tinh thần đồng cảm, chi phối giác quan thứ sáu, nên khuynh hướng tôn giáo của họ cũng mạnh mẽ hơn những chòm sao khác. Họ có trực giác cao, thích tiếp cận với những môn học thần bí, kỳ lạ, đối lúc phát triển thành năng lực câu thông với thế giới thần linh. Nhưng bản thân họ tốt nhất nên loại bỏ khuynh hướng quá mê tín và vui vẻ làm điều thiện với tấm lòng từ bi. Họ vui vẻ giúp đỡ người cần hỗ trợ, vì vậy rất dễ hy sinh bản thân vì sự thành công của người khác. Sự tinh tế và quan tâm chăm sóc của người thuộc chòm sao Song ngư với người bất hạn luôn làm người khác không sao quên được. Họ là người rất biết lắng nghe, nhẫn nại nghe những nỗi khổ tâm của người khác, dù phát hiện những điều kể trên có sơ hở cũng sẽ mềm lòng không cố ý dùng những lời lẽ khích bác nhau.
+•    Tình bạn vui vẻ đối với người thuộc chòm sao Song ngư mà nói là một thứ không thể thiếu, nhất là khi kết bạn với người “cảm thấy rất hợp tình ý” thì họ càng cảm thấy phấn khởi không thôi. Nhưng điều này vẫn không làm mất đi sự cô độc trong lòng họ. Vì họ luôn xem mọi người là những cá thể độc lập, sự tồn tại của cảm giác cô đơn với họ xem ra chẳng qua chỉ là chuyện bình thường, nên sẽ không quyết tâm gạt bỏ cảm giác cô đơn này. Nhưng sự trống vắng không giống với sự vắng lặng. Họ có thể chịu được sự cô đơn, nhưng rất sợ sự vắng lặng. Họ thích náo nhiệt, nên thường thích những nơi gặp gỡ vui vẻ, ấm áp, để giữ không khí sối nổi, họ sẽ cố gắng để mọi người vui vẻ, thậm chí làm những chuyện chẳng ra gì lấy mình làm trò vui cho mọi người cũng không tiếc.
+4.TÌNH YÊU CỦA NGƯỜI THUỘC CHÒM SAO SONG NGƯ
+•    Người thuộc chòm sao Song ngư thân thiết và biết quan tâm chăm sóc sẽ có kinh nghiệm trong tình yêu tuyệt đẹp. Nhiều người thuộc chòm sao Song ngư rất đa tình, nhưng đối với mỗi tình yêu luôn rất nghiêm túc. Họ có cuộc sống vô cùng lãng mạn, dễ rơi vào biển tình yêu. Số lần yêu đương của họ dường như nhiều hơn so với người thường. Mỗi khi xuất hiện một người có điều kiện tốt, hoặc người thể hiện thiện cảm mãnh liệt với mình, thì họ sẽ không kiềm chế được tình cảm mà nảy sinh tình ý.
+•    Người thuộc chòm sao Song ngư là người luôn hướng đến tình cảm lãng mạn, thích ảo tưởng và dệt mộng một mình. Với họ mà nói, tình yêu là sinh mạng của họ, chỉ cần sống là không thể không có niềm vui trong tình yêu.
+
+•    Suy nghĩ của họ chất phác, ngây thơ, là người coi trọng tinh thần và hưởng thụ vật chất.
+•    Người thuộc chòm sao này gẫn gũi với mọi người, việc gì cũng sẽ không che giấu và trách móc ý trung nhân của mình. Khi có khó khăn, họ có thể đưa ra ý kiến cứu trợ và thỉnh giáo, nếu là người nghiêm túc, nhất định sẽ bị chống đối, sẽ có thành thực hưởng ứng. Về tình cảm, người thuộc chòm sao này là người rất có chủ kiến, nên một khi mục tiêu xác lập sẽ không dễ thay đổi. Chỉ cần yêu một người khác giới, họ nhất định sẽ làm hết sức mình để có được tình cảm của người đó. Vì có ý muốn chiếm hữu cao, nên họ thường nhìn chằm chằm vào đối phương. Họ có thể hết lòng cống hiến và thỏa hiệp, ngay cả trong phương diện ăn uống, cũng sẽ hy sinh khẩu vị của mình để làm hợp ý đối phương.
+•    Tuy họ thiếu tự chủ, nhưng liên tục có những kế hoạch tự chủ, mà dần chuyển sang kiểu thực hành. Tính cách họ mạnh mẽ, ghét nhất là phải chịu theo mệnh lệnh chỉ dẫn của người khác, là người thuộc phái người tích cực, để lại cho người khác ấn tượng hào phóng và sôi nổi.
+•    Vì trải qua nhiều cuộc tình nên họ sẽ bị người khác hiểu lầm là người không chung thủy. Nhưng thực tế họ không phải là người thích thay đổi bạn bè, thậm chí khi quen với một người nào nhất định thì sẽ nghiêm túc và chung thủy.
+•    Ngoài ra, cần khuyên người thuộc chòm sao Song ngư một câu “không nên chìm đắm trong tình yêu”, vì quên thực tế, đắm chìm vào trong thế giới trẻ con, điều này rất nguy hiểm. Có thể thông cảm với đối phương là phẩm hạnh tốt, năng lực này của người thuộc chòm sao Song ngư cũng mạnh hơn so với người khác. Nhưng họ cũng đừng quên tha thứ cho chính mình, lấy thái độ cân bằng để đối diện với mọi việc.
+•    Người có thể thích hợp với người thuộc chòm sao Song ngư ôn hòa là người thành thật, thái độ sống tích cực.
+•    Thể hiện tình cảm không khéo léo là điều không có gì quan trọng, người có thể mẫn cảm đón nhận sự thay đổi về tình cảm, tích cực đón nhận tình yêu mới là người đem đến hạnh phúc cho người thuộc chòm sao Song ngư.
+•    Người thuộc chòm sao Song ngư rất nhẫn nại trong tình yêu, khi sắp đến chuyên hôn nhân sẽ rất trọng nguyên tắc, rất quan tâm đến đánh giá, phê bình của người khác.
+•    Họ yêu một lần rồi một lần nữa mới kết hôn. Vì tính trách nhiệm của họ bẩm sinh mạnh, nên rất khó đem những dịp gặp gỡ làm trò chơi ái tình đơn thuần. Nếu vào tuổi kết hôn sẽ luôn có người tìm thay, đồng thời cũng nhận được sự giúp đỡ của người đi trước.
+•    Với họ hôn nhân và gia đình là hai nhân tố để mình tránh được những dao động. Vì vậy đối tượng kết hôn của họ phải ôn hòa, biết quan tâm chăm sóc và quan trọng là có thể chỉ đạo bản thân mình. Nếu họ là nam thì người vợ giống như người chị là thích hợp nhất. Nếu họ là nữ thì người chồng bao dung mình như cha là lý tưởng nhất.
+5.SỰ NGHIỆP CỦA NGƯỜI THUỘC CHÒM SAO SONG NGƯ
+•    Trong công việc nên việc bỏ lấy hư ảo, lấy cần cù làm gốc.
+•    Người thuộc chòm sao Song ngư dễ rơi vào không tưởng, hư ảo, hoặc hy vọng có thể qua một vài kỹ xảo công phu của người thuộc chòm sao Thủy Bình “tiết kiệm sức lực” mà có được những thứ mình mong muốn, điều này là không thể. Nếu nói cuộc đời là một chuyến du lịch, thì cuộc hành trình này là sự gian nan, gập ghềnh. Con người ta trên đường đi, mục đích không chỉ là du sơn ngoại thủy, họ còn gánh trên vai sinh mạng của mình. Họ phải luôn tiến về phía trước, không người bước, đi mãi đến cuối cuộc đời, hiểu được ý nghĩa của cuộc sống, không hề oán than khi bước xuống mồ. Cần mẫn, phấn đấu tiến lên là lương thực và nước trên lộ trình. Không có nó, con người ta không thể nào tiến xa trên đường đời, dù có xa thì cũng chỉ là sống thọ hơn một chút, từ đầu đến cuối chẳng có chút tài cán gì, đi suốt đoạn đường dài nhưng vẫn là hai bàn tay trắng. Người ta chỉ cần phấn đấu vươn lên mới có thể bước trên đường đời may mắn, có được thành công huy hoàng trong sự nghiệp. Trong những việc tầm thường, phấn đấu có thể giúp người thuộc chòm sao Song ngư phát huy hết mức trí thông minh của mình, làm được những việc mà thiên tài có thể làm, thậm chí cả những công việc thiên tài không làm được.
+•    Kẻ lười biếng, cái thiếu là hành động, họ thường chìm trong ảo tưởng. Họ là người suy nghĩ vĩ đại nhưng hành động tầm thường. Tín điều của họ là “vận may, chờ đợi”. Nhưng thực ra, vận may chỉ dành cho những người phấn đấu, chờ đợi chỉ lãng phí thời gian, nhưng không chờ đợi được sinh mệnh. Lười biếng thực ra chính là phủ định mình, đem sinh mạng của mình quăng vào hư ảo, nhưng không muốn một lần phấn đấu, cứu lấy bản thân. Lười biếng cũng chính là lãng phí sinh mệnh quý báu.
+•    Người thuộc chòm sao này thích hợp với các công việc sáng tạo chính vì vậy nghề nghiệp thích hợp nhất là âm nhạc, vũ đạo, thiết kế sân khấu, nghệ thuật từ thiện, người nghiên cứu khoa học ven biển…
+Trích: 12 chòm sao và tính cách con người

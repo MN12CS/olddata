@@ -1,0 +1,22 @@
+---
+title: "[Giới thiệu sách] Nụ cười Gioconda mang nàng Mona Lisa đến Việt Nam"
+date: 2025-06-12T10:14:06Z
+slug: gioi-thieu-sach-nu-cuoi-gioconda-mang-nang-mona-lisa-den-viet-nam
+draft: false
+---
+
+## [Giới thiệu sách] Nụ cười Gioconda mang nàng Mona Lisa đến Việt Nam
+
+## Deidara
+
+[h=2]Một tuyển tập những tinh hoa của hai nền văn học Anh và Mỹ.[/h]        Bảy truyện ngắn với dung lượng khá  lớn được bày tỏ dưới nhiều cách thể hiện vô cùng nghệ thuật của những  nhà văn nổi tiếng nhất thế giới, Nụ cười Gioconda  là một tập hợp hoàn hảo những mảng màu đa diện của cuộc sống thành thế  giới thu nhỏ đầy chiêm nghiệm. Với sự đồ sộ về nội dung và dung lượng,  cùng với bút pháp điêu luyện của các tác giả, những truyện ngắn trong  tuyển tập này xứng đáng là những truyện ngắn hay nhất của văn học Anh -  Mỹ thế kỷ XX.
+
+Nụ cười Gioconda cũng  mang giọng châm biếm, thể hiện khả năng biết cô đọng, rút rất gọn những  vấn đề chỉ có trong cấu trúc của một cuốn tiểu thuyết đồ sộ của nhà  văn. Câu chuyện về mối quan hệ giữa một tay địa chủ Henry Hutton luôn tỏ  ra hào nhoáng, sống giả dối và đùa giỡn trong chuyện tình cảm với 3  người phụ nữ: Emily - người vợ ốm yếu của anh ta, Janet Spence - một  trinh nữ ba mươi sáu tuổi, có những nét quyến rũ riêng và đặc biệt là  điệu cười mà Hatton âu yếm một cách mỉa mai gọi là nụ cười Gioconda, và  Doris - một cô nàng yêu anh ta đến chết mê chết mệt. Cái chết đột ngột  của người vợ cũng không khiến anh ta thay đổi và sống tốt hơn. Anh ta  lấy Doris, qua lại với Spence. Khi cái chết của người vợ bị đưa ra điều  tra, đó là một vụ đầu độc. Anh ta trở thành nghi phạm giết vợ. Thực ra,  chính Spence, người đàn bà có nụ cười bí hiểm kia mới là chủ mưu của tất  cả. Câu chuyện kết thúc ở đó với những dư âm không thể quên. Còn Trở lại Babylon  lại là câu chuyện đầy tinh thần nhân văn về quyết tâm của Charlie, một  người cha, người chồng có quá khứ bất hảo, nay quyết định sống tốt và  đấu tranh chống lại những định kiến và cám dỗ của xã hội để nhận nuôi  lại đứa con gái yêu quý của mình từ gia đình cô em vợ đầy thành kiến về  anh. 
+
+Với cảm hứng của những chuyến phiêu lưu, ba truyện ngắn Con thuyền không mui (Stephen Crane), Cuộc hành trình lên phương Bắc (Jack London) và Tuyết trên đỉnh Kilimanjaro (Ernest  Hemingway) mang đến cho chúng ta những góc nhìn mới. Con thuyền không  mui, là một câu chuyện, kể theo sự thực. Bằng lời văn nhẹ nhàng, nhà văn  đã tái hiện lại cuộc hành trình của sự sống: bốn con người (người đầu  bếp, người thợ dầu, chàng phóng viên, viên thuyền trưởng) trở thành bạn,  họ cùng nhau vật lộn với sự dữ dội của biển để cùng sống sót. Con thuyền không mui là một truyện ngắn tuyệt vời nhất viết về biển cả. Bởi vì “Lòng  nhân đạo giản dị và sâu sắc được trình bày trong câu chuyện về bốn con  người trong một con thuyền rất nhỏ dường như đã phác lên những yếu tố  cần thiết nhất của cuộc đời”.
+
+
+Hemingway thì tìm đến một không gian xa xôi và hùng vĩ ở tận châu Phi với Tuyết trên đỉnh Kilimanjaro.  Chỉ trình bày một lát cắt rất mỏng trong cuộc đời nhân vật Harry -  những giờ khắc sống cuối cùng của một nhà văn với cái ý thức sâu sắc về  sự thất bại không thể cứu vãn được trong văn nghiệp mình, tác giả đã nói  được rất nhiều điều. Và hình ảnh núi Kilimanjaro tuyết phủ là một biểu  tượng mang cảm hứng thẩm mỹ dồi dào mà tác giả đã gửi gắm vào đó những  ước vọng một đời của nhà văn. Trong các truyện ngắn của Ernest Hemingway  thường xuất hiện một thứ “ngôn ngữ đối thoại” nổi tiếng - ngắn gọn, cô  đọng, chỉ viết những gì tinh chất nhất. Hemingway thật sự là một  nhà  văn lớn vì sự giản dị của ông đã được sắp xếp cẩn thận lạ lùng.
+
+Xứ sở của người mù của  Herbert George Wells có một cốt truyện khác hẳn. Tác giả dựng lên một  câu chuyện giả tưởng về một anh chàng có tên Nunezơ lạc vào xứ sở của  những người mù. Anh ta tưởng rằng “trong xứ mù thằng chột làm vua”, anh  ta sẽ đồng hóa và khai sáng văn minh cho những người ở đó. Nhưng cuối  cùng chính anh ta lại bị chính những kẻ mù “giáo hóa”. Anh trở về với  cuộc sống của mình khi nhận ra “cả anh và cả thế giới mù lòa trong thung lũng, cùng tình yêu của anh nữa, hết thảy chỉ là một địa ngục của tội lỗi”.  Cuộc sống của đôi mắt mới là cuộc sống đích thực...
+2sao

@@ -1,0 +1,33 @@
+---
+title: "[Cự Giải] Nhật kí viết cho hai người"
+date: 2025-06-12T09:47:05Z
+slug: cu-giai-nhat-ki-viet-cho-hai-nguoi
+draft: false
+---
+
+## [Cự Giải] Nhật kí viết cho hai người
+
+## Umechan
+
+[FONT=&amp]Chắc là hội Cancerian phức tạp và thầm lặng quá chăng? Cũng có thể là, vốn dĩ Cự Giải không muốn “public” cách yêu thương của mình với cộng đồng. Thế nào cũng được! Nhưng tớ vẫn muốn viết 1 bài, kinh nghiệm của tớ để chia sẻ với mọi người, với các Cự Giải, những người đang yêu một Cự Giải hoặc những người đang được một Cự Giải yêu. Tớ cũng đang vẽ bộ sưu tập tranh 12 chòm sao nữa. Khi nào xong tớ sẽ up lên, mọi người cùng xem nhá ^^[/FONT]
+      [FONT=&amp]
+----Nhật kí viết cho hai người----[/FONT]  [FONT=&amp]
+Em là một Cự Giải tiêu biểu, nhưng em cũng là một Cự Giải hiện đại, cho nên hãy đọc thật kĩ càng những dòng tâm sự của em, hỡi người yêu em và người em yêu![/FONT]
+
+    [FONT=&amp]Cự Giải có tâm tư phức tạp đến vô cùng[/FONT][FONT=&amp]. Em suy tư từ ngày còn chưa biết đến đứng giữa hai mảng trắng đen của cuộc đời là màu xám tro vô cảm. Em lớn dần lên và cuộc sống dạy cho em điều ấy. Có những lúc em thất vọng vì cuộc đời thật trớ trêu, có những lúc em dằn vặt vì những quyết định sai lầm. Nhưng rồi em sẽ chấp nhận tất cả để lột xác và lớn lên, lớp giáp xác cũng cứng dần theo năm tháng. Người quan trọng của em ơi, đừng cố mất công tìm hiểu bên trong lớp vỏ ấy là gì. Tất cả anh nhận được sẽ là con số không. Anh chỉ cần im lặng thôi, anh sẽ cảm nhận được những lời em muốn nói.[/FONT]
+    [FONT=&amp]
+Lúc này đây em chẳng biết phải viết gì cho anh đâu, người yêu quý! Dòng cảm xúc cứ bồng bềnh và bất ổn, mơ hồ như khói sương, có lúc ấm áp, có lúc vui tươi, có lúc lại buồn đau và thất vọng. Ví dụ như hôm nay trời lạnh. Em chẳng thích lạnh đâu vì nó đáng sợ và quá thiếu an toàn. Em sẽ mặc thật ấm, không quan tâm mình sẽ lố bịch như một bà-mẹ-khủng-long-vĩ-đại hay đáng yêu như một cô-gấu-tròn-xoe. Người yêu em ơi, Anh cũng phải mặc đủ áo nhé, lãng tử mà bị ốm thì chẳng còn giữ hình tượng được đâu. Sẽ rất buồn nếu Anh bị ốm, nên hãy cười lên vì em sẽ chăm sóc Anh đến khi Anh khoẻ lại. Và đừng giở trò giả vờ ốm nhé, em sẽ nhận ra ngay và lúc ấy… Hậu quả còn tuỳ tâm trạng em Anh à! Còn Anh, người em yêu.[/FONT] [FONT=&amp]Có thể Anh không nghe, nhưng em sẽ vẫn nhắc Anh mặc ấm. Để rồi nếu Anh cảm lạnh, em sẽ bực mình vô cùng. Bực bội với chính bản thân và cả Anh nữa đấy! [/FONT]    [FONT=&amp]
+
+Người yêu em ơi, nói nhỏ này! Em thích được tặng quà như nhiều cô gái khác. Một bó hoa tươi, một viên chocolate ngọt ngào sẽ làm em mỉm cười. Nhưng em vẫn thích được tặng một chú gấu bông thật to. Chú ta sẽ đem lại cho em cảm giác được bảo vệ, được che chở và yêu thương, an toàn và ấm áp. Bình sinh em có bản năng bảo vệ người khác như một người mẹ, em sẽ bất chấp tất cả để che chở cho những người thân yêu. Chính vì lẽ ấy, những khi em ngồi đối diện với chính mình, em sẽ mang những món đồ chất chứa đầy kỉ niệm ra ngắm nhìn và nâng niu. Lúc ấy, em cần lắm một chỗ dựa tinh thần vững chãi, em nâng niu, nhưng em không muốn phải bảo vệ những món quà. Mâu thuẫn phải không anh? Hãy nhớ này, em sẽ không bao giờ coi chú gấu ấy là Anh đâu. Chú ta là bạn em, một người bạn lớn bảo vệ em. Nhưng khi ôm chú gấu, em chắc chắn sẽ nghĩ đến Anh. Và có thể lắm chứ, em nhớ Anh![/FONT]
+
+    [FONT=&amp]Người mà em yêu ơi! Đôi khi em sẽ gửi đến Anh món quà hand-made nhỏ xinh gói gọn tâm tư em trong đó. Em biết Anh sẽ trân trọng nó, vì em không nhìn lầm người, cũng không đặt nhầm chỗ trái tim đâu. Cự Giải thích gắn kết với những người yêu thương bằng một sợi dây đặc biệt do chính tay mình làm nên, theo cả nghĩa đen và nghĩa bóng.[/FONT] 
+
+   [FONT=&amp]Bởi vì Cự Giải bò ngang, nên đối với em, đừng bao giờ quá vội[/FONT][FONT=&amp]. Ở bên em, có nghĩa là Anh được sống thật nhất với tâm hồn mình. Ở bên em, nghĩa là Anh có thể giãi bày mọi chuyện, chờ đợi một lời khuyên đúng đắn, một cái ôm dịu dàng, một bàn tay mềm mại lùa vào tóc anh. Ở bên em, nghĩa là Anh đang cảm nhận dòng sữa ngọt ngào của mẹ, bóng dáng che chở của ba, sự vui tươi và trưởng thành của chị, sự dỗi hờn ỉ ôi chốc lát của em gái[/FONT][FONT=&amp]. Nhưng đừng nghĩ em chỉ là một phiên bản gia đình nhé, em chỉ là em thôi. Em chậm rãi và nhẹ nhàng. Em khát khao và mạnh mẽ. Em buồn bã và khó chịu. Em thật sự rất thất thường và trái khoáy. Những lúc như thữngin cứ để em lại một mình Anh nhé. Anh cứ làm nốt phần việc của mình đi. Nếu sau đó mà em vẫn đang ủ rũ, hãy mang đến cho em một cái bánh mặn hoặc một cốc kakao nóng ấm, được không Anh?[/FONT]    [FONT=&amp]Xúc cảm của em đa dạng và đa nghĩa, ít khi em bộc lộ cảm xúc thật của mình. Nhưng khi em đã thể hiện cho anh thấy chính xác em đang nghĩ gì, thì hãy lựa theo em nhé![/FONT][FONT=&amp] Ví dụ nhỏ, em thường xuyên là người chiều chuộng người khác. Cho nên khi em đã ra ám hiệu rằng “Hãy chiều em đi!”, thì đừng ngại ngần gì Anh nhé!
+
+ [/FONT]      [FONT=&amp]Em hay nghĩ đến hôn nhân, ngôi nhà và những đứa trẻ. Em nghiêm túc trong tình yêu và hạnh phúc của đời mình[/FONT][FONT=&amp]. Hỡi người đàn ông của em - người sẽ cùng em bước trên con đường dài! Sẽ thật tuyệt vời nếu người em yêu và người yêu em chính là Anh. Như vậy sẽ chẳng có gì phải lo nghĩ cả. Nhưng nếu cuộc đời không như ta mong đợi, và hai người ấy lại là hai chủ thể khác nhau? Ôi trái tim em sẽ chia làm đôi vì điều ấy! Người yêu em ơi, đừng đòi hỏi gì ở em hơn nhé, vì anh chính là người em lựa chọn. Tình cảm em dành cho Anh cũng chính là tình yêu đấy, nó còn chứa đựng cả tình thương mến và cảm phục, cả lòng ngưỡng mộ và sự ngợi khen. Em đặt trong anh ước mơ của em về tương lai rạng rỡ và chắc chắn, với những đứa con kháu khỉnh và gia đình hoà thuận. Đừng lo Anh nhé! Em sẽ dành cho Anh và gia đình ta cả cuộc đời. Nằm trong vòng tay Anh, em không bao giờ nghĩ đến người xưa cũ. Chỉ có điều, em là người lưu giữ kí ức. Đừng bắt em xoá bỏ tình cảm em đã dành cho người em yêu. Tình yêu ấy có thể là nồng nàn hơn, có thể dai dẳng hơn. Nhưng em tin tình yêu em dành cho Anh mới là sâu đậm, chân thật và bền vững nhất.
+
+ [/FONT]    [FONT=&amp]Cự Giải luôn sợ bị tổn thương và không đủ nhẫn tâm để làm tổn thương trái tim của người khác. Vậy làm sao đây, khi không ai có thể đi vẹn đôi đường?[/FONT]    [FONT=&amp]
+
+Em còn nhiều điều muốn viết, nhưng vì em là nước, nhất thời em chẳng biết viết gì. Có lẽ một ngày nào đó, em sẽ lại viết tiếp cho anh. Và khi ấy, hi vọng rằng em đã tìm được người đàn ông cho riêng mình. Lúc đó, em sẽ thì thầm với Anh thôi! Vì em là Cự Giải mà![/FONT]
+
+    [FONT=&amp]Thật ra tớ vẫn thấy bài này thiếu sót đâu đó. Nhất thời, nghĩ không ra =,=. [/FONT]

@@ -1,0 +1,23 @@
+---
+title: "ĐTH -[Truyện] Độc thân thì đã sao, nhỷ ;)"
+date: 2025-06-12T09:58:09Z
+slug: dth-truyen-doc-than-thi-da-sao-nhy
+draft: false
+---
+
+## ĐTH -[Truyện] Độc thân thì đã sao, nhỷ ;)
+
+## Scorpion
+
+.........Bạn gọi điện, chúc mừng năm mới qua loa rồi quay sang hỏi: 'Thế đằng ấy đã kiếm được anh chàng nào để Tết này du xuân chưa?' - Á, vẫn độc thân á, coi chừng ê sắc ế đó bạn của tôi... Nó tắt máy và mỉm cười - độc thân thì đã sao. Nhỉ! 22 tuổi, nó một mình đi đi về về trên những con đường, một mình sống, một mình vui tươi đón nhận những hạnh phúc nhỏ nhặt trong cuộc đời và cả những khó khăn. Đôi khi, bắt gặp đâu đó đôi tình nhân trao nhau những cái nắm tay nhẹ nhàng và những nụ hôn tình cảm, nhưng lạ thay, nó thấy đời thêm tươi chứ chẳng bao giờ thấy tủi thân hay buồn phiền. Bởi vì cuộc sống của một cô gái độc thân cũng thú vị và hạnh phúc lắm lắm. 
+Là một cô gái độc thân, nó nghĩ mình là người giàu có về thời gian và cả... trí tưởng tượng. Này nhé, ngoài thời gian phải đến lớp hay đi làm thêm, thời gian còn lại nó dành cho gia đình, bạn bè và bản thân với bao nhiêu điều thú vị đang chờ trước mắt. 
+Mỗi ngày, việc đầu tiên sau khi ngủ dậy là bật một bài nhạc yêu thích để nghe trong khi dọn dẹp căn phòng cho thật sạch sẽ, tươm tất. Điều này giúp nó khởi đầu một ngày mới trong trạng thái sảng khoái và đầy năng lượng. Vào những lúc rảnh rỗi sau giờ học hay đi làm, nó vi vu đến những hiệu sách. Vào đây khối điều hay nha, được đọc sách miễn phí, được nghe nhạc miễn phí... và quen được một số bạn cùng sở thích nữa. Thỉnh thoảng, nghía được quyển sách nào hay và vừa túi tiền thì... rinh về nhà bổ sung vào bộ sưu tập. Mà đọc sách thì có bao giờ là thừa đâu nhỉ!\ 
+Đọc sách giúp nó mở rộng kiến thức, tâm hồn, thấy lạc quan, yêu đời, yêu người hơn. Chưa kể, đọc sách giúp nó trau chuốt được cách giao tiếp của bản thân qua những con chữ cũng như cuộc sống hàng ngày. Mà theo nó thấy thì, những cô nàng có người yêu sẽ ít có thời gian để đi đọc sách hơn, nhở! Còn vào những ngày cuối tuần hay ngày lễ, thay vì đi chơi với người yêu, nó tranh thủ tụ tập với đám bạn bè để... tổ chức nấu ăn. Vụ này thì thú vị khỏi bàn luôn vì vừa được gặp gỡ bạn bè hỏi thăm tình hình cuộc sống của nhau, vừa được biết thêm các món ăn mới lại vừa... được ăn. 
+Là một cô gái độc thân, nó có nhiều thời gian để ở cạnh bố mẹ, anh chị em, trò chuyện và tâm sự với họ cũng là cách giúp nó gần gũi và thắt chặt tình cảm với gia đình hơn. 
+Là một cô gái độc thân, nó có nhiều thời gian để tự chăm sóc sức khoẻ cũng như làm đẹp. Người ta vẫn thường bảo, muốn yêu thương người khác thì trước tiên phải biết yêu thương bản thân mình, làm đẹp cũng là cách để yêu thương chính mình vậy. 
+Là một cô gái độc thân, nó tha hồ đi tung tảy với đám bạn gái hay những người con trai. Không phải vì nó lẳng lơ hay giết thời gian mà theo nó việc đó đơn giản cũng là một cách để mở rộng mối quan hệ, biết đâu nó sẽ gặp được những người bạn tốt hoặc một chàng trai tốt trong tương lai. 
+Là một cô gái độc thân, có đôi khi thời gian của chính mình nó dành để viết những email hỏi thăm bạn bè, làm những tấm thiệp đầy màu sắc hay tập tành đan lát. Biết đâu, sau này nó còn đan tặng khăn và áo len cho ai đó thì sao. 
+Là một cô gái độc thân, nó thấy mình yêu đời và hạnh phúc với những yêu thương dù rất nhỏ trong cuộc sống. Đâu phải có bờ vai vững chắc bên mình để quan tâm và chia sẻ mới là hạnh phúc. Hạnh phúc với nó, đôi khi đơn giản rằng là cùng cô bạn thân vi vu dạo khắp ngõ ngách phố phường để cùng ăn một món gì đó. Hạnh phúc đôi khi chỉ là nhận được một cái tin nhắn hỏi thăm từ một người bạn quen qua mạng ở rất xa. Hay hạnh phúc có khi chỉ đơn giản rằng nó biết cho đi; một sự giúp đỡ, một món quà nho nhỏ, một lời quan tâm... hay thậm chí chỉ một nụ cười khi vô tình lướt qua nhau. 
+Là một cô gái độc thân, nó không than thở vì chỉ có một mình trong khi bạn bè đứa nào cũng có lứa, có đôi. Tình yêu là một điều thiêng liêng, tạo hoá sinh ra mỗi chúng ta không phải chỉ có một mình mà luôn có ai đó để bên ta. Vấn đề là sớm hay muộn mà thôi. Khoảng thời gian mà ta một mình đó cũng chính là khoảng thời gian để bản thân mỗi người tự trau dồi thêm kiến thức, tự làm đẹp thêm tâm hồn và lối sống để sau này gặp được người xứng đáng với những yêu thương. 
+Bạn gọi điện, chúc mừng năm mới qua loa rồi quay sang hỏi: 'Thế đằng ấy đã kiếm được anh chàng nào để Tết này du xuân chưa?' - Á, vẫn độc thân á, coi chừng ê sắc ế đó bạn của tôi... Nó tắt máy và mỉm cười - độc thân thì đã sao. Nhỉ!        
+[ST]

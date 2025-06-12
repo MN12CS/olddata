@@ -1,0 +1,16 @@
+---
+title: "Khi cậu nói lời chia tay....."
+date: 2025-06-12T09:39:23Z
+slug: khi-cau-noi-loi-chia-tay
+draft: false
+---
+
+## Khi cậu nói lời chia tay.....
+
+## Ben_Chan
+
+Có ba từ mà tớ luôn muôn nói với cậu. Luôn luôn là thế....
+Cậu người khiến tớ có thể cười, cho tớ cảm thấy ấm ấp, cho tớ biết thế nào là yêu, cho tờ biết nên chia sẽ với người khác. Từ trước tới giờ chưa ai cho tớ biết những điều đó nhưng cậu đã tớ thấy, tớ luôn cảm ơn. Tớ muốn chúng ta là bạn và sẽ là bạn thân mãi nhưng không. Tớ là người nói lới yêu câu và cậu là người nói lời chia tay tớ. Tớ không thể hiểu nổi mình đã làm gì để khiến cậu chia tay tớ nhưng tớ biết một phần nào đó trong con người cậu còn yêu tớ. Nhưng tại sao cậu lại nói lời đó, câu nói đó của cậu đã làm tớ không thể tin vào tình yêu một lần nữa, một lần và mãi mãi....
+Chỉ một câu nói. nó làm tớ sống không bằng chết. Đêm đêm tỉnh dậy nhớ về những lúc đó lòng tớ lại quặn đau, và không biết bao lần tớ đã khóc trong đêm tối một mình. Tự hỏi bản thân "Vì sao, Vì sao" cậu lại nói thế trong khi cậu và tớ đều yêu nhau. Nhiều lần lên mạng tớ hỏi cậu, cậu không trả lời lí do mà chỉ nói làm bạn vui hơn. Chữ "vui" đó có nghĩ gi ? Chữ "vui" đó làm tớ đau đến thế này thì đó không phải là vui nữa rồi...
+Tớ muốn quên câu quên hết nhưng gì thuộc về cậu những kỉ niệm bên cậu những phút giây bên cậu. Những không thể quên được, cậu đã in sâu sâu vào trong trái tim tớ một nơi không thể xóa bỏ được.
+Đối với tớ ngày câu nói câu đó là ngày tận cùng của tớ, tớ không thể sống mà thiếu cậu. Giờ cậu đang làm gì đang ở đâu thì cả đời này tớ không thể biết...

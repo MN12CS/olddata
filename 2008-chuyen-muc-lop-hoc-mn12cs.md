@@ -1,0 +1,12 @@
+---
+title: "[Chuyên mục] Lớp Học MN12CS"
+date: 2025-06-12T09:54:44Z
+slug: chuyen-muc-lop-hoc-mn12cs
+draft: false
+---
+
+## [Chuyên mục] Lớp Học MN12CS
+
+## Miki_love
+
+LỚP HỌC MẬT NGỮ 12 CHÒM SAO(Nơi những câu chuyện về 12 học sinh tinh quái của chúng ta bắt đầu)Do Luna và Miki chủ biên, dịch từ nhiều bài và kèm theo trí tưởng tượng...trên giời ;Giới thiệu thành phần học sinh:Bạch Dương: Học sinh "cá biệt". (đôi khi dám "tấn công" cả thầy/cô và ông bảo vệ trường!)Kim Ngưu: Học sinh trung thành. (chỉ thích học 1 thầy/cô, ngồi 1 chỗ và tất nhiên cũng là trong 1 phòng học duy nhất)Song Tử: Học sinh bừa bãi. (sách vở trong cặp luôn luôn lộn xộn, nhưng thật bí ẩn là mỗi lần cần đến tài liệu gì thì chúng luôn luôn có mặt!)Cự Giải: Học sinh nội tâm. (rất ghét khi bị các bạn trong lớp nói xấu. Mỗi lần như vậy Cua đều rất dễ bị tổn thương!)Sư Tử: Học sinh năng động (vui chơi là chính học hành là phụ, Leo sẽ tụ tập "đồng bọn" và tổ chức các trò chơi vui nhộn cho các bạn cùng lớp)Xử Nữ: Học sinh "lắm chuyện". (sao này mà làm lớp trưởng thì cả lớp sẽ mệt cả năm đó. Vì luôn luôn nghiêm khắc với những người xung quanh + thêm nói nhiều nên nếu ai mắc phải 1 lỗi nhỏ nào đó...vd chép bài bạn, trốn trực nhật lớp,... sẽ bị Xử Nữ ghi ngay vào sổ đỏ....)Thiên Bình: Học sinh "nửa nạc nửa mỡ". Thiên Bình luôn phân vân về mọi vấn đề trên lớp - vd: mọi người có nghĩ tốt về mình hok ta ? Làm sao để biết?Thiên Yết: Học sinh "nguy hiểm". (đừng hòng chơi xấu Tiểu Yết nhé! nhiều khi họ đã nhìn rõ cạm bẫy trước khi người khác ra tay đấy)Nhân Mã: Học sinh cúp cua. (thế giới bên ngoài là nơi mà Mã Mã cho là thú vị hơn ở trường rất nhiều, Mã Mã chỉ tình nguyện đến trường khi có một bài kiểm tra cực kỳ quan trọng.)Ma Kết: Học sinh gương mẫu (Tuy thường xuyên trốn học nhưng chẳng ai biết, trong mắt thầy cô giáo luôn là học sinh gương mẫu- Lớp trưởng)Thủy Bình: Học sinh tinh quái. (luôn chọc phá bạn bè và thầy cô. Họ sẽ nghĩ ra nhiều trò mới lạ đến nỗi không ai có thể ngờ tới)Song Ngư: Học sinh lo nghĩ. (luôn lo lắng về thành tích học tập của mình và nhiều vấn đề khác - vd chuyện tình củm tuổi học trò chẳng hạn ^^)Phần I: Tình huống "12 sao nhí và rừng rậm Amazon"[Special] Lớp Học MN12CS - Cá Tháng TưPhần II: Khi 12 chòm sao nhận được thông báo đuổi học:1. Bạch Dương2. Sư Tử3. Nhân Mã4. Thiên Yết (P1) (P2)5. Kim Ngưu6. Song Tử (P1) (P2)7. Cự Giải và Song Ngư (P1) (P2) (P3)(P4)

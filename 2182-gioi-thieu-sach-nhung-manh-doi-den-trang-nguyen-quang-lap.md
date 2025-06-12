@@ -1,0 +1,28 @@
+---
+title: "[Giới thiệu sách] Những mảnh đời đen trắng - Nguyễn Quang Lập"
+date: 2025-06-12T09:55:41Z
+slug: gioi-thieu-sach-nhung-manh-doi-den-trang-nguyen-quang-lap
+draft: false
+---
+
+## [Giới thiệu sách] Những mảnh đời đen trắng - Nguyễn Quang Lập
+
+## Deidara
+
+​Thông tin về cuốn sách :
+Tên sách: Những mảnh đời đen trắng
+Tác giả: Nguyễn Quang Lập
+Giá: 79.000đ
+Số trang: 304
+Nhà xuất bản: Văn học
+Khổ: 13x 20.5 cm
+
+ 
+Hai mươi năm có lẻ đã trôi qua kể từ ngày cuốn tiểu thuyết Những mảnh đời đen trắng  lần đầu ra mắt độc giả, người viết sách và người đọc sách giờ đây cầm  lại cuốn sách hẳn suy nghĩ và cảm xúc cũng đã thay đổi nhiều. Trong lần  tái bản này, mong muốn của chúng tôi không chỉ là làm sống lại một tác  phẩm văn học có giá trị của nền văn học nước nhà, mà còn muốn kể lại cho  thế hệ hôm nay câu chuyện về một thời quá khứ lầm lỗi đã qua với những  bi kịch xung quanh cái “đen” và cái “trắng”, những bi kịch do chính con  người gây ra và con người phải tự trả giá cho nó.
+“Có một thời lầm lỗi như thế: người ta  hào hứng nhiệt tình xây dựng chủ nghĩa xã hội mà không hiểu chủ nghĩa  xã hội là gì, người ta nhân danh những lý tưởng cao đẹp của chủ nghĩa xã  hội để làm những việc gây ô danh cho lý tưởng đó, và điều tệ hại và  nguy hiểm nhất là người ta nói đến chủ nghĩa xã hội mà quên mất con  người, xem nhẹ con người với tư cách là một cá nhân riêng tư, độc đáo.  Thực chất đó là sự ngộ nhận về chủ nghĩa xã hội, đưa đến xuyên tạc bản  chất chân chính của nó, từ đó gây nên những hậu quả khủng khiếp, đau  lòng. 
+Đen trắng ở đây là bi kịch của sự ngộ  nhận này và được thể hiện tập trung trong nhân vật Đại úy Thìn. Con  người đó là sản phẩm của một thời kỳ lịch sử đó, của hoàn cảnh xã hội  đó, ông ta đáng thương và đáng trách. Toàn bộ cuộc sống của Đại úy Thìn  chỉ quy lại ở một dục vọng duy nhất: bảo vệ sự trong sạch, vững mạnh của  chủ nghĩa xã hội khỏi sự tấn công của những kẻ thù giai cấp mà ông nhận  biết chỉ bằng cách dựa vào lý lịch không phải bần cố nông và vào những  việc làm không thuận mắt ông. Ông hoàn toàn nhìn đời, nhìn người qua cặp  kính “đấu tranh giai cấp” để xây dựng chủ nghĩa xã hội như vậy. Với  ông, toàn bộ dân cư trong cái thị trấn Linh Giang chỉ chia thành hai  loại người: hoặc ta hoặc địch và chỉ nối với nhau bằng một loại quan hệ:  quan hệ địch - ta. Đen ra đen, trắng ra trắng, không thể nhập nhằng lẫn  lộn được. Thế nên đại úy Thìn đẩy tất cả mọi người quanh ông sang phía  đối lập thù địch với mình - cả họa sĩ Tư người em cùng cha khác mẹ, cả  vợ là thím Hoa, cả đứa con gái ông là Thùy Linh và thậm chí cả bí thư  huyện ủy Thanh do những bất đồng trong cách đánh giá con người dẫn đến  chỗ ông nghi ngờ lý lịch và động cơ của bí thư. Đồng minh với ông còn  lại chỉ có chủ tịch thị trấn Lê Đức Huy mà thực chất là anh cố nông Cu  Lùn dốt nát ngây ngô trong cái cương vị được đẩy đến cho mình nhờ lý  lịch thành phần cơ bản chứ không phải nhờ tài năng và trí tuệ. 
+Vậy nên đại úy Thìn bị cô đơn, bị lâm  tình thế cô đơn bản thể luận (xin dùng một khái niệm của chủ nghĩa hiện  sinh là học thuyết Lập có ý thích) của loại người duy ý chí, phi tình  cảm, lấy ý niệm thay cho thực tiễn, sống bằng ảo tưởng hơn là bằng hiện  thực. Tác giả đã dựng Thìn thành một hình nhân hiện thân của một kiểu tư  duy máy móc, cứng nhắc. Cuối cùng thì Thìn chết, vị đại úy lừng danh  thời chống Pháp, oai phong thời hòa bình, đã chết một cái chết vô ích  dưới trận bom của kẻ thù mới mà ông bất lực không thể nào tìm cách đánh  trả được nó dựa vào những kinh nghiệm và quan niệm mang đầy tính chất  chủ quan áp đặt của mình. Cái chết của đại úy Thìn như là sự kết thúc  của một thời, của một kiểu người đã bị lịch sử phê phán và vượt qua.  Chiến tranh bùng nổ đã làm đảo lộn, rối tung toàn bộ cuộc sống và cá  nhân mỗi con người ở thị trấn Linh Giang, buộc tất cả phải chịu đựng một  sự thử thách khắc nghiệt bằng chính bản chất mình.”
+(Phạm Xuân Nguyên, 1989)​ “Các  nhân vật trong sách thì mãi mãi vẫn nguyên thế, như khi họ hiện ra dưới  ngòi bút của nhà văn. Tôi nhận ra một điều sau hơn hai mươi năm “gặp  lại” Thím Hoa, Thùy Linh, Họa sĩ Tư, Đại úy Thìn, bí thư Huy..., những  nhân vật sống ở một thời đen trắng ấy, là họ đáng được thương cảm và  thông cảm vô cùng, và chính tác giả, nhà văn Nguyễn Quang Lập đã rất xót  thương họ, trong từng câu chữ, lời văn, thương đến mức anh không thể  khóc, mà phải lấy cái cười có chua chát, có châm chọc, có khỏa lấp, để  chia sẻ cùng nhân vật những hoạn nạn và bi kịch họ phải gánh chịu do  thời thế, do con người. Chỉ bằng tài năng thiên bẩm và sự trải nghiệm  sớm cuộc sống, Lập mới có được cái giọng văn hài hước mà đau đớn thấm  đẫm cuốn tiểu thuyết đầu tay, và toàn bộ các trang viết của mình từ  trước đến nay, trong mọi thể loại mà ngòi bút của anh chạm vào. Cuộc  sống là thiên hình vạn trạng, là đủ mọi màu sắc cung bậc, là cái “muôn”  chứ không phải cái “một”. Đem con người sống lược quy vào những sơ đồ,  biểu đồ xơ cứng, chụp lên nó những sắc màu phân biệt, biến nó đang sống  thành như đã chết, bởi vì con người chỉ trở về một khi chết, đó là tư  duy của một thời đã qua. Tiểu thuyết Những mảnh đời đen trắng đọc  lại hôm nay vẫn khiến ta đau, dẫu là phải cười. Và đọc xong cuốn sách  này, người đọc sẽ cảm thấy tiếc khi Nguyễn Quang Lập không có những tiểu  thuyết khác nữa, với một cách viết như thế, một giọng điệu như thế. Có  lẽ, họ vẫn có thể mong chờ ở Lập, sau hai mươi có lẻ...”
+(Phạm Xuân Nguyên, 2011)
+
+​

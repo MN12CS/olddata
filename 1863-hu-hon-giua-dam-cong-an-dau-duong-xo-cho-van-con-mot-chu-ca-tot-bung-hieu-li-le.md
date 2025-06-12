@@ -1,0 +1,16 @@
+---
+title: "[Hú hồn] Giữa đám công an đầu đường xó chợ vẫn còn một chú CA tốt bụng hiểu lí lẽ"
+date: 2025-06-12T09:51:33Z
+slug: hu-hon-giua-dam-cong-an-dau-duong-xo-cho-van-con-mot-chu-ca-tot-bung-hieu-li-le
+draft: false
+---
+
+## [Hú hồn] Giữa đám công an đầu đường xó chợ vẫn còn một chú CA tốt bụng hiểu lí lẽ
+
+## CziosCerny
+
+Giờ vẫn chưa hoàn hồn các thím ạ .Bây giờ viết thế này nghĩ đến vẫn còn sợ .
+Vừa rồi khi đi về qua ngã ba Khương Đình - Thanh Xuân ,chỗ đèn đỏ rẽ vào Khương Đình ý ạ .Chẳng là lúc e rẽ vào thì vẫn đèn xanh ,vẫn ung dung đi chầm chậm vào thì có chốt CA phường ở đó .E ở đấy nên thấy bình thường vả lại mình ko phạm lỗi gì thì sợ quái gì .Đang nhởn nhơ ngó em xinh tươi đi bộ đằng trước thì bất thình lình bị anh dân phòng dí dùi cui ngay trước ngực rồi abc xyz bảo e là vượt đèn đỏ mới ngớ người thì ra em vừa vào là đèn vàng ngay với lại các anh núp ngay sau chỗ cột điện nhìn thế quái nào được e đã qua khi chưa đèn vào hay ko .Bla bla giải thích một hồi là khi đèn vàng xe em đã ở trên ko đc .Các a còn nhỏ nhẹ biết điều thì nộp phạt ko lăng nhằng liệu hồn ko viết biên lai ,giấy phạt ngay và còn dọa giữ xe vì đồn CA phường ngay gần đó mà .
+Lúc này em hoảng thật sự đinh nộp nhưng mà do trong ví còn mỗi 500 đ với lại ko có lỗi sợ gì .Cãi nhau rồi bị mấy anh dân phòng cứ lôi xềnh xệch xe đi ,em thì giữ lại vừa nói lí vừa xin xỏ mà ko được (chắc vẫn muốn kiếm tí chút ăn tết ) .Một lúc a CA kia gọi điện vào phường ,em hoảng thật sự ,.Một chú Ca ra ko bảo e vào phường giải quyết ,nghĩ đến bao lần nghe kể về phường có mà giừ đòn với bọn nó  ,em liền trình bày tình huốn cho chú nghe nhưng mà mấy thằng trâu bò tên CA trẻ bắt em với 3 lão dân phòng phường thì như lũ chú đói cứ adua chửi bới e ngu ko biết điều rồi cứ thế lôi vào .Em giữ lại bị gần chục cái dùi cui đánh quật vào tay .Mị* nó chứ ( xin lỗi em ko thể ko chửi để giải tỏa ức chế ) mùa đông các bác biết thế nào rồi đấy .Tuy em to con nhưng mà ko dám bật nó lại vu cho tội chống người thi hành công vụ .  Đành ngậm ngùi bị kéo xềnh xệch vào trong phường .
+Vào đó ban đầu còn bị ăn mấy dùi cui và bị chửi bới.CA đéo gì cả một lũ như dân chợ búa đéo có học .Ức vãi chưởng mà ko làm gì được ,may mà có cái chú CA lúc nãy ra can .Chính cái chú này là e phục nhất hỏi em đầu đuôi ,rồi các thứ bla bla sau đó khuyên e lần sau dù thế nào cũng phải bình tĩnh dù mình có lỗi hay ko ,ko phải ai cũng hiểu lí lẽ .Trò chuyện với em một lúc rồi chú cũng bảo ,bây giờ ko biết e có lỗi hay ko nhưng mà e vẫn phải viết bản kiểm điểm nhận lỗi rồi chú sẽ tha ko làm gì cả .E lúc đó nhìn mấy thằng kia như lũ sài lang đói mồi ,mắt hau háu cũng sợ nên đành viết nhận lỗi về mình .Sau đó cũng được chú kia bảo thôi tha cho e .Hic lúc đó lí nhí cảm ơn mà vẫn run lẩy bẩy dắt xe ra về .Nói thật chứ từ bé đến giờ em mới bị lần này lần đầu ,ko va chạm ko hiểu sao lúc đó cãi xung thế  chắc lúc đó hết tiền xót của với lại mình cũng đúng nên ... .Lần sau đi về gặp chú này chào mấy tiếng mới đc  .Còn bọn kia đúng là đáng ăn gạch  .Xã hội này vẫn còn người tốt dẫu ít ỏi 
+vozForum

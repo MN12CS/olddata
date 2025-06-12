@@ -1,0 +1,35 @@
+---
+title: "Tình yêu Biểu hiện khi yêu của 12 sao nam"
+date: 2025-06-12T10:30:36Z
+slug: tinh-yeu-bieu-hien-khi-yeu-cua-12-sao-nam
+draft: false
+---
+
+## Tình yêu Biểu hiện khi yêu của 12 sao nam
+
+## b3_boolil
+
+Bạch Dương: Nếu có một ngày bạn nhìn thấy một bạn nam đứng giữa chốn đông người tỏ tình với bạn gái thì hơn một nửa là bạch dương. Tình cảm từ trước tới nay vốn mãnh liệt, khi con tim rung động thì sẽ bị tình yêu chi phối, cũng đơn giản thôi, một dương dương gan dạ cũng phải có lúc đáng yêu chứ.
+
+Kim Ngưu: Tặng bạn gái những món đồ có giá trị được ngưu ngưu coi là cách yêu thương tốt nhất. Kim Ngưu luôn coi trọng tiền tài nên sẽ không do dự mà tặng những thứ đắt tiền quý giá, nhất định là phải trải qua thời gian suy xét rất dài mới dám nói cho bạn biết tình cảm quan trọng của mình, và họ quý trọng bạn như thế nào.
+
+Song Tử: "Anh thấy em là người con gái xinh đẹp nhất, đáng yêu nhất, thông minh nhất, dịu dàng nhất" đưa bạn gái lên tít tận mây xanh, song tử có ưu thế là tài ăn nói, tuy hơi "công tử" một chút nhưng bạn gái cũng coi như rất vui vẻ, cho nên cũng rất ít cô gái nào có thể "trốn thoát" khỏi những lời ngọt ngào của song tử cả.
+
+Cự Giải: "Ừm anh...anh có thể mời em đi ăn thứ gì đó được không? Có phiền em không?" một chút ngượng ngùng hơi hơi nũng nịu chính là biểu hiện khi yêu của chàng cự giải nha.
+
+Sư Tử: Trong một bữa tối lãng mạn, có ánh nến, đoá hồng,... đây chính là đòn sát thủ của sư tử đó, với một khung cảnh như vậy thì bạn nữ nào có thể từ chối được đây?
+
+Xử Nữ: "Em không được làm thế này", "Nếu em làm như vậy thì tốt hơn" nghe đến mấy câu này thì bạn đừng tưởng rằng xử nữ đang cố ý moi móc khuyết điểm của bạn. Họ chỉ muốn để bạn cảm nhận được sự quan tâm, tình cảm bên trong, nếu họ không thích bạn thì cũng không quản lý mấy chuyện đó đâu.
+
+Thiên Bình: "Em xem có chồng tương lai như anh đúng là hạnh phúc nhỉ" "Chiếc nhẫn này đeo trên tay em nhất định là rất đẹp" "Áo cưới này rất hợp với em đó" Thiên Bình hơi sĩ diện nên nếu bị từ chối trực tiếp sẽ cảm thấy rất mất mặt, nhưng bạn gái nào đã được thiên bình yêu thì sẽ đủ thông minh để nhận ra những lời ám chỉ của họ. Cho nên chỉ sợ...bạn gái đó nghe không hiểu thôi...(mà con gái bây giờ ai cũng tinh nhanh lắm , nghe thế không hiểu mới là lạ...)
+
+Thiên Yết: Ôm bạn vào lòng và nhẹ nhàng nói "Từ giờ trở đi anh chỉ thuộc về một mình em, anh tình nguyện yêu em suốt đời" nhưng bạn nên hiểu cho rõ, từ nay về sau bạn chỉ thuộc về một mình họ, Thiên Yết tuy rằng lý trí rất mạnh nhưng khi đã si tình thì sẽ một lòng tuân theo, nhưng mà cũng rất khó được như vậy. (eo thế thì đổi Anh thành EM , EM thành Anh cho roai` )
+
+Nhân Mã: "Anh yêu em" trực tiếp nói với bạn đương nhiên không ai khác chính là nhân mã. Nhân Mã trong tình yêu thích thẳng thắn mà không quanh co lòng vòng, cho nên họ sẽ nói thẳng luôn.
+
+Ma Kết: "Em xem đây là bản kế hoạch sự kiến cho thời gian hạnh phúc sau này của chúng ta, có đầy đủ không, chúng ta kết hôn đi" ma kết từ trước tới giờ là người nghiêm túc và chăm chỉ, cho nên đương nhiên sẽ quan tâm đặc biệt tới tình yêu, cô nàng được họ yêu nói chung cũng đã được quyết định sẵn tương lai. Khi họ nói cho bạn biết thì có lẽ cách...dạy con chắc cũng đã tính đến lâu rồi, với sự cẩn thận thận trọng thế này thì rất khó từ chối được.
+
+Thuỷ Bình: Nếu bạn có người bạn bè (nam) tốt là thuỷ bình thì có thể hôm nào đi chơi hay họp lớp, nếu họ đột nhiên nói: "Anh thích em, chúng ta yêu nhau đi" thì bạn đừng có bị họ doạ làm cho sợ nhé. Thích làm những việc kì lạ là thuỷ bình, thích nhất là kiểu tỏ tình như vậy, yếu tố tình cảm tăng lên cùng với mới lạ và đột ngột khiến cho mọi việc trở nên lãng mạn..
+
+Song Ngư: Vì tình cảm từ trước tới nay, song ngư vốn trốn tránh tình yêu sẽ rất khó tự mình nói ra. Tuy rằng ngoài miệng không nói nhưng suy nghĩ, tình cảm của họ lại biểu hiện ra từ đôi mắt, nếu 1 song ngư nam thỉnh thoảng nhìn về phía bạn, khi ánh mắt 2 người giao nhau thì vội vàng né tránh, vậy khẳng định họ đã mất ăn mất ngủ vì bạn rồi ^^!
+Nguồn: forum.vietyo.com

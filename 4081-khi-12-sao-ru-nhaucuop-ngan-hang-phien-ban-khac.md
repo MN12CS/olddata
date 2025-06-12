@@ -1,0 +1,63 @@
+---
+title: "Khi 12 sao rủ nhau...cướp ngân hàng (phiên bản khác)"
+date: 2025-06-12T10:23:52Z
+slug: khi-12-sao-ru-nhaucuop-ngan-hang-phien-ban-khac
+draft: false
+---
+
+## Khi 12 sao rủ nhau...cướp ngân hàng (phiên bản khác)
+
+## bagiaxulanh
+
+Giống như mọi ngày trời xanh gió mát, thời tiết rất tốt, là một ngày đẹp trời.
+
+Song Tử ngồi ở nhà nhàm chán vô vị đề nghị: “Hôm nay là một ngày hoàng đạo may mắn, không bằng chúng ta đi cướp ngân hàng đi!”
+
+Bạch Dương nghe xong lập tức bày tỏ sự tán thành: “Được đó, hay đó! Song Tử quả nhiên là hiểu được lòng người! Anh giơ 2 tay, 2 chân, ngoài ra thêm 2 cái sừng trên đầu nữa, tuyệt đối ủng hộ!”
+
+“Anh không có rảnh!” Là Ma Kết, hắn đang lật giở một chồng tài liệu văn kiện, thân thể bị chúng chôn vùi hết một nửa! “2 tay, 2 chân, cộng thêm 2 cái sừng của anh, kiên quyết phản đối!!”
+
+“Phải đó!” Cự Giải tiếp lời, “Em vẫn còn một đống việc chưa làm xong nữa!”
+
+Xử nữ gật đầu, “Đúng đó đúng đó! Cự Giải, cậu làm cho kỹ một chút, đây vẫn còn một lớp bụi dày 0.8cm nè!” Cô chỉ một nơi nào đó, Cự Giải vội vàng giơ giẻ lau lau.
+
+Song Ngư khoanh hai tay lại, kéo cằm xuống, “Cướp ngân hàng cũng là một hoạt động giải trí không tồi nha! Nhưng trước khi có một đống tiền, có lẽ sẽ bị chú cảnh sát bắt mất rồi… Mình có nên đi hay không?”
+
+“Đương nhiên phải đi!” Sư Tử gầm lên một tiếng. “Cái việc vừa mới mẻ lại vừa cần phản ứng trí tuệ như vậy, tại sao lại không đi??”
+
+Lòng Thiên Yết bị dao động rồi! “Hoạt động phản ứng trí tuệ làm sao có thể bỏ qua? Thiên Yết mình là một cao thủ tài trí số 1 mà!” Nghĩ đến đây, Thiên Yết quét đôi mắt lạnh lướt qua quần chúng, “Anh đồng ý!”
+
+Song Tử vui mừng nhảy lên, “Thiên Yết ca ca cũng quyết định đi rồi, mọi người hay là cùng nhau đi đi! Kim Ngưu, cậu hầu như cả đời cũng chưa đụng phải việc kích thích như vậy phải không?” Cô hỏi Kim Ngưu không nói bất cứ lời nào.
+
+Kim Ngưu: “Ưm…” Nhìn thấy Xử Nữ cùng Ma Kết đang trừng hắn, hắn cúi đầu.
+
+Lúc này, Thiên Bình nói: “Ngưu Nhi à, em có thể giống như anh không tham gia bỏ phiếu! Là người đứng giữa tốt đẹp biết bao!” Hắn vươn cái lưng lười biếng.
+
+Kim Ngưu gật đầu, bỏ phiếu trống.
+
+Nhân Mã suy nghĩ một lát, “Cướp ngân hàng em từ đó tới giờ chưa từng chơi qua. Được thôi, tính một phiếu cho em!”
+
+Bảo Bình cười hi hi ghi lại số phiếu, “Tán thành 5 phiếu, 2 phiếu trống, lập trường không rõ 1 phiếu, phản đối 3 phiếu!”
+
+Bạch Dương hỏi: “Phiếu của cậu đâu?”
+
+Bảo Bình mỉm cười: “Mình bầu ‘xem tình hình mà định’ phiếu!”
+
+Sư Tử phất tay: “Đã như vậy, xuất phát thôi!”
+
+“Chờ đã!” Xử Nữ đề nghị: “Tính toán kĩ một chút!” Cô giơ bàn tay, “Cự Giải có 8 cái chân là 8 phiếu, Ma Kết ca ca có 2 sừng cộng thêm 4 chân là 6 phiếu, em có 2 tay 2 chân là 4 phiếu! Tổng cộng là 18 phiếu!”
+
+Song Tử cười ha ha xắn tay áo lên, “Bạch Dương 2 sừng 4 chân là 6 phiếu, Nhân Mã tiểu muội 2 tay 4 chân là 6 phiếu, Sư Tử đệ đệ 4 phiếu, Thiên Yết 8 phiếu, tiểu muội em 2 người 8 phiếu! Tổng cộng 32 phiếu!”
+
+Ma Kết trừng mắt nhìn Kim Ngưu, Kim Ngưu bị doạ trốn phía sau Bảo Bình.
+
+“Đừng có trừng nữa!” Thiên Yết đang dựa vào bức tường, "Thiên Bình có 2 bàn cân 2 phiếu, Bảo Bình có đế 1 phiếu, Song Ngư có 2 đuôi 2 phiếu, Ngưu Nhi có 6 phiếu, tính hết thì các em cũng chỉ có 29 phiếu mà thôi! Bọn anh thắng chắc rồi!”
+
+Sư Tử lại một lần nữa nói: “Ha ha! Xử Nữ muội muội, có cần lông tóc trên người của bọn anh cũng đem đi đếm luôn không?!”
+
+Xử Nữ: “…”
+
+“Vậy thì, xuất phát!!!” Sư Tử lần thứ 2 hạ lệnh.
+
+
+sưu tầm

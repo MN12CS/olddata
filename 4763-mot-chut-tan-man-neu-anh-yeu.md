@@ -1,0 +1,142 @@
+---
+title: "Một chút tản mạn ...[ Nếu Anh Yêu.♥. ]"
+date: 2025-06-12T10:33:11Z
+slug: mot-chut-tan-man-neu-anh-yeu
+draft: false
+---
+
+## Một chút tản mạn ...[ Nếu Anh Yêu.♥. ]
+
+## November
+
+Nếu anh yêu một cô bé.
+Hãy cứ để cô ấy lớn lên.
+
+Nếu anh yêu một cô gái đáng yêu và vui vẻ.
+Anh phải biết mình là người May Mắn.
+
+Nếu anh yêu một cô gái ốm yếu.
+Hãy làm trái tim cô ấy khoẻ dần lên.
+
+Nếu anh yêu một cô gái buồn và ít cười.
+Hãy để cô ấy nhìn thấy nụ cười của mình trong mắt anh.
+
+Nếu anh yêu một cô gái cay nghiệt và tàn nhẫn
+Đừng bao giờ để anh hay cô ấy phải nói câu: “Đã muộn rồi!”
+
+Nếu anh yêu một cô gái ương bướng, ngang tàng và nóng nảy.
+Hãy im lặng khi cô ấy tát vào mặt anh.
+
+Nếu anh yêu một cô gái hay khóc.
+Đừng bao giờ để bản thân anh phải nghĩ cô ấy phải khóc vì anh.
+
+Nếu anh yêu một trinh nữ.
+Đừng để tâm hồn cô ấy một ngày nào đó vấy bùn.
+
+Nếu anh yêu một phụ nữ đã có con.
+Hãy yêu con cô ấy hơn cả tình yêu của mình.
+
+Nếu anh yêu một cô gái thông minh, tài giỏi.
+Hãy hài lòng với vai chàng Ngốc và diễn nó thật tốt.
+
+Nếu anh yêu một Công Chúa.
+Hãy cho cô ấy biết những niềm vui của người bình thường.
+
+Nếu anh yêu một cô gái chưa-đẹp.
+Hãy luôn nhìn cô ấy bằng mắt thẩm mĩ của những người đứng ngoài tình yêu của anh và cô ấy, đấy là cách anh nhận ra cô ấy đổi thay.
+
+Nếu anh yêu một cô nàng đỏng đảnh.
+Hãy chiều cô ấy thật nghiêm khắc.
+
+Nếu anh yêu một cô gái đã từng tổn thương.
+Làm ơn hãy kiên nhẫn!
+
+Nếu anh yêu một người đẹp.
+Đừng nghĩ vẻ đẹp của cô ấy là của mỗi mình anh.
+
+Nếu anh yêu một cô nàng hay ghen.
+Hãy mỉm cười và ôm cô ấy thật lâu, thật lâu và đừng nói câu nào cả.
+
+Nếu anh yêu một cô gái đẫy đà.
+Hãy ăn nhiều hơn cô ấy.
+
+Nếu anh yêu một cô gái bé nhỏ.
+Hãy nâng cô ấy trên đôi vai mình, theo nghĩa đen.
+
+Nếu anh yêu một nàng lãng mạn
+Hãy cùng cô ấy làm Romeo và Juliette cho đến cuối đời.
+
+Nếu anh yêu một cô gái nghèo.
+Hãy làm cho cô ấy giàu có, chứ không phải bù lấp cho cô ấy bằng tiền và sự giàu có của anh.
+
+Nếu anh yêu một Thiên Thần.
+Đừng bao giờ để mình rơi xuống địa ngục.
+
+Nếu anh yêu một phụ nữ đảm đang.
+Hãy lo cho tốt những công việc bên ngoài của mình.
+
+Nếu anh yêu một cô nàng quá bận rộn.
+Đừng để thời gian rảnh rỗi lệch pha của anh và cô ấy cho những việc liên quan đến cô ấy.
+
+Nếu anh yêu một cô nàng tham lam.
+Đừng bao giờ thoả mãn cô ấy, hãy để cô ấy phải tự lấp đầy lòng tham của mình.
+
+Nếu anh yêu một cô nàng lạnh lùng.
+Hãy giữ ấm cho mình thật tốt, và ôm cô ấy thật nhiều, nhiều nhất có thể.
+
+Nếu anh yêu một cô nàng hay nói dối và giỏi diễn kịch.
+Đừng bao giờ nói dối cô ấy một nửa câu.
+
+Nếu anh yêu một cô gái với mái tóc dài thướt tha duyên dáng.
+Hãy chắc chắn anh còn yêu cô ấy hơn với tóc tém và sự cá tính nổi loạn.
+
+Nếu anh yêu một cô gái tài năng.
+Hãy là hộp màu, nốt nhạc, hay cung đàn của cô ấy
+
+Nếu anh yêu một cô gái bán hoa.
+Hãy mua tất cả chỗ hoa của cô ấy bằng cả cuộc đời anh.
+
+Nếu anh yêu một cô gái xăm mình và kẻ mắt.
+Đừng đưa trái tim, cũng đừng đưa tiền, đưa cho cô ấy mạng sống của anh.
+
+Nếu anh yêu một cô nàng đanh đá và ghê gớm.
+Hãy yêu cô ấy thật cẩn thận, kiên nhẫn và bao dung.
+
+Nếu anh yêu một cô gái quá yêu anh.
+Đừng bao giờ vứt bỏ cô ấy hay yêu cô ấy vì tình nghĩa hay sự đáp trả, yêu cô ấy như anh vẫn làm, và hơn nữa đi.
+
+Nếu anh yêu một cô gái yếu đuối.
+Anh nhất định không được rủ lòng.
+
+Nếu anh yêu một cô nàng mạnh mẽ và đanh thép.
+Không bao giờ anh được để mình trượt dốc.
+
+Nếu anh yêu một cô nàng trăng hoa.
+Đừng trói cô ấy.
+
+Nếu anh yêu một cô gái hơn tuổi.
+Hãy cho cô ấy thấy, ai đang ở trong vòng tay ai.
+
+Nếu anh yêu một cô gái không yêu anh.
+Đừng bao giờ hết yêu cô ấy.
+
+Nếu anh yêu một cô gái quá lôi cuốn và quyến rũ.
+Đừng nới lỏng sợi xích cho con Thú trong anh.
+
+Nếu anh yêu một cô gái, là thứ hai, thứ ba, thứ tư…
+Hãy yêu cô ấy hơn cả người thứ nhất.
+
+Nếu anh yêu một cô gái chưa từng yêu.
+Hãy cho cô ấy thấy Duy Nhất và Cuối Cùng.
+Nếu anh yêu một cô gái biết-yêu-anh... Hãy cưới cô ấy...!!!
+
+
+( suu tam)
+
+
+​[video=youtube;-REEQovpQD0]
+]View: http/www.youtube.com/watch?v=-REEQovpQD0&amp;feature=related[/video]
+
+
+
+​p/s : for some one ^__^​

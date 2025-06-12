@@ -1,0 +1,12 @@
+---
+title: "Này người em yêu - em máu B"
+date: 2025-06-12T10:14:03Z
+slug: nay-nguoi-em-yeu-em-mau-b
+draft: false
+---
+
+## Này người em yêu - em máu B
+
+## NgocKent
+
+Người mà em yêu sẽ tự tay làm tặng em 1 căn nhà diêm, hay nhét vào túi em 1 chiếc bánh ấm ấm trong 1 ngày giá rét. Vì anh biết em yêu những bất ngờ và quan tâm bình dị.​ ​Người mà em yêu sẽ chở em đi hóng gió lúc mặt trời chưa lên, hay cùng em đi ăn kem giữa trưa hè nắng gắt. Vì anh biết em ngẫu nhiên, tùy hứng, và đôi lúc thậm chí hơi bất cần.​ ​Người mà em yêu sẽ lặng lẽ dõi theo em, và vị tha vs những lỗi lầm em mắc phải. Vì anh biết em thiếu kiên nhẫn, em nóng tính, nhưng em biết sai em chẳng lẩn tránh bao h.​ ​Người mà em yêu sẽ để ngoài tai những đồn đại rằng em đa tình, e hay bắt cá. Vì anh biết em chung thủy vs ty đến thế nào, và cũng biết: yêu, nghĩa là tin tưởng lẫn nhau.​ ​Người mà em yêu sẽ từ từ bóc tách từng lớp từng lớp con người em, không vội vàng, không hấp tấp. Vì anh biết đằng sau vẻ ngoài thờ ơ, là 1 trái tim ấm những yêu thương.​ ​Người mà em yêu sẽ nhắn tin nhắc em đi ngủ sớm. Sẽ bắt em quàng thêm khăn mỗi lúc gió về. Sẽ cùng em nghe 1 bản nhạc ngộ nghĩnh dễ thương. Sẽ như 1 người anh, 1 người bạn, và cả 1 người yêu. Vì anh biết em còn rất trẻ con, dù em luôn tỏ ra mình người lớn.​ ​Người mà em yêu sẽ thỉnh thoảng châm chước rửa bát hộ em. Vì anh biết đôi khi bệnh lười của em trỗi dậy.​ ​Người mà em yêu sẽ cho em cảm giác 1 gia đình. Vì anh biết, ấm áp đó là thứ mà em luôn tìm kiếm.​ ​Người mà em yêu sẽ để em tự do, cho em niềm vui được là chính mình trong tình yêu 2 đứa. Vì anh biết, với em, trói buộc đồng nghĩa với chia tay.​ ​Người mà em yêu sẽ luôn khiến em được là con gái đúng nghĩa, được nũng nịu, được lãng mạn và dịu dàng. Nhưng cũng không làm mất đi nét cá tính riêng của chính em. Vì anh hiểu, em như 1 khối rubich, mỗi lần xoay, mỗi khoảnh khắc sẽ là 1 mặt khác nhau, đầy màu sắc.​ ​Người mà em yêu sẽ trung thực với em. Vì anh biết e có giác quan thứ 6. Em chẳng bao h nói ra đâu. Nhưng e biết hết thảy mọi điều.​ ​Người mà em yêu sẽ không làm em đau. Vì anh biết nỗi đau sẽ để lại trong nụ cười em những vết sẹo không bao h lành hẳn. Mà a, lại luôn muốn nhìn em cười nụ cười đẹp nhất.​Người mà em yêu….​….sẽ yêu em vì tất cả.​….sẽ yêu em khi em đáng yêu, và cả những lúc em đáng ghét.​….sẽ yêu em vì em không hoàn hảo.​….sẽ yêu em vì em là chính em.​ ​Và em tự hào ​Này người em yêu – e máu B.​ ​Nguồn: Hội những người nhóm máu B.​ ​

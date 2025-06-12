@@ -1,0 +1,30 @@
+---
+title: "Có con Nhân Mã đang ở trong vườn"
+date: 2025-06-12T09:46:21Z
+slug: co-con-nhan-ma-dang-o-trong-vuon
+draft: false
+---
+
+## Có con Nhân Mã đang ở trong vườn
+
+## November
+
+​Có một con Nhân Mã đang ở trong vườn.
+Con Nhân Mã đó, cái con Nhân Mã đã phải ẩn mình để trả giá cho một cái nghiệp của đời mình, đã quay trở lại với thảo nguyên mênh mông và chuyến hành trình đi tìm bản ngã thật sự của nó.
+Con Nhân Mã đó, cái con Nhân Mã luôn tự cho rằng mình đúng dù nó biết nó sai, cái Con Nhân Mã đã từng vùi đầu vào chăn gối mà khóc và rủa hận cuộc đời đã cho nó những thiệt thòi, đã khiến cuộc đời nó chậm lại, mà nói đúng hơn là dừng hẳn lại, làm trì trệ bao nhiêu ước mơ, dự tính tương lai của nó, phá sập cả những kế hoạch cuộc đời dù chỉ mới ở trên giấy. Bây giờ nó đang như con thoi, điên cuồng lồng lộn trên thảo nguyên bát ngát, xé đôi con gió, phi nước đại dưới bầu trời đầy sao mà không mảy may trước bất cứ một trở ngại nào. Nó đã được chạy.​
+Và nó vấp ngã. Nó vấp ngã vì những con Gà. Những con Gà lặng im, mệt mỏi, vẻ như không xác định mai ngày mình lại cục ta cục tác phương nào. Những con Gà đang đứng yên mổ thóc, đôi khi chúng lại ỳ ạch vỗ cánh bay. Phập. Phập. Cú vỗ cánh kéo dài dăm ba phút, đủ xa để phi từ bãi thóc này đến bãi thóc khác. Đương nhiên cũng có những con gà có cú vỗ cánh của những con diều hâu, mạnh mẽ và đầy uy lực dù nó mang hình hài một con gà, và đó là những con gà đáng ngưỡng mộ. Tuy vậy, chúng ta chỉ đang nói đến những con gà chỉ đứng yên mổ thóc. Những con gà đã khước từ Nhân Mã.​
+Từ khoảnh khắc đầu tiên con Nhân Mã đặt chân vào khi vườn, nó cảm thấy mọi thứ lạ lẫm trong cảm giác thân quen. Nó cảm thấy nó thật là trơ trọi, nó cố tìm tòi một góc nào đó có thể chứa chấp mình. Nó cứ rảo bước đi, kiêu hãnh, nhưng hiền hòa, đáng yêu. Nó cố gắng để thấu hiểu, yêu mến những người nó gặp và mong rằng họ cũng như thế. Nó tỏ ra dễ mến, và luôn mỉm cười. Nhưng không phải lúc nào nó cũng nhân lại được nụ cười từ những sinh vật khác. Có những sinh vật bốn mắt ưa nhìn bị choáng trước cái vẻ tí tởn, hồn nhiên, có chiều vồ vập như đứa trẻ của Nhân Mã, và có lẽ, chúng cảm thấy ớn ớn, cảm thấy không thoải mái với sự hồn nhiên đó, thế là chúng rút lui, lờ Nhân Mã đi mỗi khi “lỡ” nhìn thấy. Nhân Mã hiểu ngay trong 1 giây khi cái chớp mắt ẩn chứa sự ngại ngần, xa cách, Nhân Mã không mất nhiều thời gian để cảm thấy tổn thương, nó cũng cố lờ đi cảm giác mình bị-ớn mà cố gắng bước tiếp bởi một lẽ, dưới gầm trời này, không hề thiếu cỏ xanh!​
+        Con Nhân Mã tiếp tục cất bước, lúc lững thà lững thững, lúc băm bổ, xông pha, tự mãn đến mức đôi khi nó khiến những con vật khác bị thương, và xa lánh. Nhưng nó không thể vì thế mà cảm thấy mình phải kiềm hãm bản thân để sau này lại phải hối hận. Thế nên đôi khi nó cũng bị lừa. Cảm thấy nghi ngờ thế giới nó đang sống, cảm thấy nghi ngờ cả cách sống của mình có thật sự là tốt? Nó đi vòng vèo từ trạng thái này tới trạng thái khác nhanh tới mức đôi khi nó cảm thấy kiệt quệ và không còn thiết tha gì nữa, rồi chỉ sau một giấc ngủ dài, nó tỉnh dậy và lại tự mãn rằng, ta đây không dễ bị khuất phục như vậy, tự hô hào “ cố lên, cố lên, cố lên”, tự mình tặng cho mình 1 nụ cười trong gương và trầm trồ, đây mới là một gương mặt hạnh phúc!
+
+        Nó hạnh phúc khi là ai đó có thể làm cho người khác nở nụ cười, là người vỗ vai người ta và dõng dạc những điều nghị lực. Ừ, thì cũng có gì đâu mà phải xót xa. Con người ta sinh ra trên đời này chỉ 1 lần và chết đi cũng chỉ có 1, mà những cơ hội đi qua trong đời lại hạn hữu vô cùng. vì vậy, cứ vui vẻ đi, vì biết đâu ngày mai không thể cười được. Sống được 1 ngày, gặp được một người, hãy lấy đó là niềm vui và thử chơi trò chơi “lưu dấu trong trái tim người khác”, để lỡ đâu sau này trên đường đời, ta lại chẳng gặp ai. Sống, như thể ngày mai chẳng còn được sống, vì một lẽ rằng, chỉ thường những người ý thức mình không thể sống quá lâu và hay nghĩ vế cái chết lại là người “Biết sống” hơn những ai có niềm tin “ngày dài tháng rộng”, hoặc không quan tâm đến sự hữu hạn của đời người. Có thể Nhân Mã là sinh vật hay nói những điều viễn vông và hay chèn lạc quan trong những điều tưởng chừng rất tiêu cực, nhưng đó chính là cách Nhân Mã học cách để hồn nhiên mà đón đầu với sóng gió.
+
+​
+         Một buổi sáng đẹp trời nọ, Nhân Mã thức tỉnh dưới bầu trời đầy mây và giông bão. Nó cảm thấy dễ chịu và cứ nằm yên, vùi tâm trí mình vào cảm giác giá lạnh nhưng tĩnh lặng. Nó nghĩ tới những con Gà của ngày hôm qua, và khoảnh khắc nó hùng hổ ngoảy đít đi khi cảm thấy không- được- đón- nhận và trái tim kiêu hãnh của nó bị tổn thương. Nó bỏ đi như một đứa con nít ngỗ ngược chỉ vì những con Gà thích mổ thóc trong vườn còn nó thì thích vào rừng ăn trái cây dại. Những con Gà có lý lẽ của những còn Gà, còn nó có lý lẽ của một thứ cỏ cây hoang. Vì vậy mà nó không được đón nhận. Nó lặng người, à không, rung lên bần bật vì cảm giác cực shock, thấy chán ghét một góc khu vườn. Nó muốn bỏ đi. Nhưng rồi nó lại nghĩ, bỏ đi thì có ích gì nếu nó không thể học được cách sinh tồn, hòa hợp vơi thế giới. Nếu vậy, thì dù nó có đi đến đâu, nó cũng vẫn chỉ là một con Nhân Mã đơn độc.
+
+         Nó sẽ không hối hận bất cứ điều gì của ngày hôm qua. Nếu được quay lại, nó vẫn sẽ bỏ đi một mạch như thế mặc kệ những con Gà sau này có tẩy chay nó như thế nào. Nó hạnh phúc vì đơợc là chính mình. Nó thích những cơn điên đã mang nó đến gần hơn với bản ngã. Nó sẽ không ngại ngần mà làm cho cuộc sống nó thú vị hơn dù nó bị gọi là lập dị. Nó sẽ như vậy. Chắc chắn sẽ sống như vậy. Thẳng tiến trên con đường mình muốn đi và không quan tâm, hay ghét bỏ ai chỉ vì họ không cùng quan điểm.
+Nó sẽ sống đúng với bản thân nó- một con Nhân Mã chân chính hồn nhiên phi nước đại trên thảo nguyên bạt ngàn, hát ca, phiêu bạt cùng con gió và làm bạn cùng những chòm mây!
+
+
+( theo Yume.vn http://yume.vn/lonely_leaf/article/co-con-nhan-ma-o-trong-vuon.35D62D46.html)
+
+[video=youtube;HO4e4nCYBEo]http://www.youtube.com/watch?v=HO4e4nCYBEo&amp;ob=av2e[/video]

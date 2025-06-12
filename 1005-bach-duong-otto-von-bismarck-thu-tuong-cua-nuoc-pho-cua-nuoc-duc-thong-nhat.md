@@ -1,0 +1,164 @@
+---
+title: "[Bạch Dương] Otto von Bismarck - Thủ tướng của nước Phổ & của nước Đức thống nhất"
+date: 2025-06-12T09:38:28Z
+slug: bach-duong-otto-von-bismarck-thu-tuong-cua-nuoc-pho-cua-nuoc-duc-thong-nhat
+draft: false
+---
+
+## [Bạch Dương] Otto von Bismarck - Thủ tướng của nước Phổ & của nước Đức thống nhất
+
+## Deidara
+
+Otto Eduard Leopold von Bismarck, Vương công xứ Bismarck, Công tước xứ Lauenburg, Bá tước xứ Bismarck-Schönhausen, tên khai sinh là Otto Eduard Leopold von Bismarck-Schönhausen, có tài liệu tiếng Việt ghi là Ti Tư Mạch(1 tháng 4 năm 1815 – 30 tháng 7 năm 189 là một nhà hoạt động chính trị của Vương quốc Phổ và Đế chế Đức vào nửa cuối thế kỷ 19.  Ông giữ chức Thủ tướng Phổ từ 1862 đến 1890 và là người thực hiện công  cuộc sự thống nhất của nước Đức (vốn gồm nhiều vương quốc khác nhau) và  tuyên chiến với các nước Áo, Pháp (1866 - 1871). Ông là vị Thủ tướng đầu tiên của của đế chế Đức, giữ chức trong vòng 19 năm và được nhiều người gọi là "Thủ tướng thép" do đường lối quân chủ bảo thủ cũng như chính sách chính trị thực dụng của ông.
+
+
+
+
+ Bá tước Otto von Bismarck xuất thân trong một gia đình giàu có. Vốn  là một chính trị mang tư tưởng thực tế, bảo thủ và không ít mưu khôn  khéo, thể hiện bản chất của tầng lớp quý tộc địa chủ Đức. Triều đình  Wilhelm I đã triệu ông về Đức năm 1862, lúc ông làm Đại sứ của Vương  quốc Phổ ở Pháp. Ông trở thành Thủ tướng, đồng thời là Bộ trưởng Bộ  Ngoại giao của Vương quốc Pháp. Vị Thủ tướng này đã thực hiện chính sách  "sắt và máu", với mục đích là hợp nhất các tiểu quốc thuộc Liên hiệp  Đức "từ trên xuống".Công cuộc thống nhất Đức đã nhận được sự ủng hộ của đế quốc Nga dưới triều vua Aleksandr II. 
+
+
+ Năm 1866,  chính phủ Bismarck tuyên chiến với đế quốc Áo. Với chiến bại của quân  Áo, giờ đây quyền cai quản Liên hiệp Đức thuộc về vương quốc Phổ. Phổ đã  cai quản được các tiểu quốc miền Bắc Đức. Tuy nhiên, hoàng đế Pháp là  Napoléon III đã cản trở việc các tiểu quốc miền Nam Đức quy phục Phổ.  Thế là chính phủ Bismarck tuyên chiến với đế chế Pháp của Napoléon III.  Chiến tranh Pháp-Phổ kết thúc với chiến bại của quân Pháp. Các tiểu quốc  Đức được hợp nhất, đế chế Đức được thiết lập vào ngày tháng 1 năm 1871.  Wilhelm I - vốn là vua nước Phổ - lên ngôi hoàng đế của đế chế Đức.
+
+
+ Hoàng đế Đức Wilhelm I đã bổ nhiệm Bismarck là Thủ tướng của Đế chế  Đức. Dưới sự lãnh đạo của chính phủ Bismarck, sức mạnh của đế chế Đức  được nâng cao. Năm 1872, ông là một những người đề xướng Liên minh Ba  Hoàng Đế (Nga, Đức và Áo-Hung). Năm 1884, chính phủ Đức của ông thiết  lập Liên minh Tay Ba, cùng Ý và đế quốc Áo-Hung đối lập với Cộng hòa  Pháp. Ông đã ban bố "Đạo luật tháng năm", mang nội dung chống đối Nhà  thờ Ki-tô giáo. Tuy nhiên, kể từ năm 1880, trước sự trỗi dậy của phong  trào xã hội chủ nghĩa (giai cấp công nhân), ông bèn hạn chế "Đạo luật  tháng năm", không còn chống Giáo hội nữa và hợp tác với những có tư  tưởng bảo thủ.  Chính phủ của ông cũng công bố "đạo luật đặc biệt", phong trào xã hội  chủ nghĩa bị chống đối dữ dội. Thế nhưng, điều này không có nghĩa là  phong trào xã hội chủ nghĩa Đức bị dập tắt, cuối cùng Bismarck đã bị  hoàng đế Wilhelm II sa thải, sau khi ông bất hoà với nhà vua vào năm 1890. 
+
+
+Thời trẻ
+
+
+
+Otto von Bismarck sinh ra ở Schönhausen, phía Tây thành phố Berlin, tỉnh Saxony thuộc Vương quốc Phổ, là con thứ tưtrong một gia đình giàu có. Ông chào đời cùng năm với trận chiến Waterloo vào ngày 18 tháng 6 và việc thiết lập Liên minh các tiểu quốc Đức.  Thân phụ ông, Karl Wilhelm Ferdinand von Bismarck (11 tháng 3 năm 1771 -  22 tháng 11 năm 1845) là một địa chủ và một cựu sĩ quan quân đội Phổ.  Thân mẫu ông, Wilhelmine Luise Menken (24 tháng 2 năm 1789 - ?) là con  gái có học hành tử tế của một chính trị gia. Bismarck thừa hưởng cả vẻ  ngoài lực lưỡng và tính tình cứng rắn của người cha lẫn nền giáo dục và  sự tinh tế trong tính cách người mẹ. Ông thông thạo tiếng Anh, tiếng Pháp, và tiếng Nga. Khi còn trẻ ông thường xuyên trích dẫn các danh nhân Shakespeare hay Byron trong những lá thư ông viết cho vợ. 
+
+
+Trong giai đoạn 1832 - 1833, ông theo học luật tại Đại học Göttingen rồi sau đó chuyển sang Đại học Humboldt Berlin từ năm 1833 đến 1835. Khi còn học ở Göttingen, Bismarck kết bạn với một sinh viên người Mỹ tên là John Lothrop Motley. Motley sau này trở thành một sử gia lớn của thế kỷ 19 và đã kể lại về Bismarck dưới cái tên Otto v. Rabenmark trong tiểu thuyết Morton's Hope, or the Memoirs of a Provincial xuất bản năm 1839.
+
+
+ Mặc dù Otto von Bismarck muốn trở thành một nhà ngoại giao, ông đã bắt đầu sự nghiệp với việc tập sự làm luật sư ở Aachen và Potsdam.  Tuy nhiên, ông nhanh chóng bỏ việc để theo đuổi hai cô gái người Anh.  Đầu tiên là Laura Russell, cháu gái của quận công xứ Cleveland. Sau đó  là Isabella Loraine-Smith, con gái một nhà buôn giàu có. Cả hai cuộc  tình đều dang dở. Giữa những năm 20 tuổi, Bismarck trải qua một năm quân  dịch ở vị trí sĩ quan dự bị rồi trở về nhà tiếp quản công việc làm ăn  của gia đình tại Schönhausen sau khi mẹ ông qua đời.
+
+
+ Vào những năm ba mươi tuổi, Otto von Bismarck kết bạn thân với Marie  von Thadden, vợ của một người bạn. Do ảnh hưởng của bà này, ông trở  thành một người theo đạo Tin Lành. Bismarck lấy em họ của Marie, một phụ nữ quý tộc tên là Johanna von Puttkamer  (11 tháng 4 năm 1824 - 27 tháng 11 năm 1894) ở Alt-Kolziglow ngày 28  tháng 7 năm 1847. Cuộc hôn nhân bền vững và hạnh phúc mang tới cho họ  một con gái (Marie) và hai con trai (Herbert và Wilhelm, vẫn được gọi là "Bill"). Johanna là một phụ nữ nhút nhát, kín đáo và rất mộ đạo.
+
+
+ Trong kỳ nghỉ mà ông đi một mình ở Biarritz mùa Hè năm 1862, trước  khi trở thành Thủ tướng nước Phổ, Otto von Bismarck đã có mối tình lãng  mạn với Kathy Orlov - cô vợ trẻ (22 tuổi) của một nhà ngoại giao người  Nga. Tuy nhiên, không đủ cứ liệu để khẳng định rằng Bismarck và Kathy  Orlov đã quan hệ tình dục với nhau. Otto von Bismarck sau đó duy trì  liên lạc thường xuyên với Kathy. Họ viết thư cho nhau đến ngày Kathy qua  đời vào năm 1874 - khi Otto von Bismarck đã làm Thủ tướng Đế chế Đức.
+
+
+Sự nghiệp chính trị lúc đầu
+
+
+Cũng vào năm ông kết hôn, ở tuổi 32, Bismarck được chọn vào cơ quan lập pháp mới được thành lập của nước Phổ  là Vereinigter Landtag. Ở đó, ông bắt đầu nổi tiếng như một nhà hùng  biện sắc sảo. Bismarck công khai ủng hộ ý tưởng vua nước Phổ có quyền  trực tiếp đối với các vương quốc phụ thuộc. Việc Bismarck được bầu vào  cơ quan lập pháp là nhờ sự sắp xếp của anh em nhà Gerlach, những người  cũng theo đạo Tin Lành và có khuynh hướng bảo thủ cực đoan. Họ có xuất  bản một tờ báo với hình chữ thập sắt trên bìa.
+
+
+ Trước năm 1871, nước Đức chưa là một quốc gia thống nhất. Thời bấy  giờ, một Liên hiệp Đức bao gồm 38 tiểu quốc được thiết lập. Vương quốc  Phổ là một trong hai nước hùng cường nhất trong Liên hiệp này, tranh  chấp với đế quốc Áo để giành quyền kiểm soát tòan bộ Đức. 
+
+
+ Vào năm 1840, vua Friedrich Wilhelm IV lên ngôi tại Phổ. Tháng 3 năm 1848, Cách mạng Đức 1848 nổ ra và đe dọa triều đình vua Friedrich Wilhelm IV. Triều đình Phổ, dù lúc đầu có ý định sử dụng các lực lượng vũ trang để đàn áp cuộc nổi dậy, cuối cùng đã quyết định bỏ Berlin để tới tổng hành dinh của quân đội tại Potsdam  vì lý do an toàn. Sau này, Bismarck viết rằng “những thanh gươm rung  lên trong vỏ” khi các sĩ quan quân đội Phổ được biết nhà vua sẽ không  trấn áp cuộc cách mạng bằng vũ lực. Bismarck đã đề nghị rất nhiều nhân  nhượng với những người khởi nghĩa: ông khoác lên người lá cờ đen-đỏ-vàng  của lực lượng nổi dậy (quốc kỳ Đức ngày nay), hứa sẽ ban hành một hiến  pháp, đồng ý rằng nước Phổ và các bang của nước Đức phải được thống nhất  thành một quốc gia, và chỉ định một người theo đường lối tự do, Ludolf  Cam, làm thủ tướng.
+
+
+ Nhưng đó chỉ là những thỏa thuận hình thức. Otto von Bismarck trước  tiên cố gắng tổ chức những nông dân làm tá điền cho gia đình ông thành  một lực lượng vũ trang tiến tới kinh đô Berlin trên danh nghĩa nhà vua.  Ông cải trang tới Berlin để thực hiện ý định này, nhưng sau đó lại nhận  được lệnh rằng ông sẽ có ích hơn cho nhà vua nếu như chuẩn bị lương thực  cho quân đội từ các điền trang của ông trong trường hợp cần thiết. Em  trai nhà vua, hoàng tử Wihelm (sau này là vua Wilhelm I)  đã chạy sang Anh. Bismarck âm mưu với vợ của William là Augusta đưa cậu  con trai mới mười mấy tuổi của Wilhelm (sau này là vua Friedrich III)  lên ngai vàng nước Phổ thay cho Friedrich Wilhelm IV. Năm đó, Bismarck  không được bầu vào nghị viện. Nhưng ưu thế của những người nổi dậy bắt  đầu suy giảm từ cuối năm 1848 vì những chia rẽ nội bộ, trong khi phái  bảo thủ tập hợp nhau lại đoàn kết xung quanh nhà vua và giành lại quyền  kiểm soát kinh đô Berlin. Mặc dù cuối cùng một hiến pháp cũng được ban  bố, nhưng các điều khoản trong đó còn lâu mới giống như yêu cầu của  những người cách mạng.
+
+
+ Năm 1849, Bismarck lại được bầu vào Landtag, hạ viện trong lưỡng viện  mới của nước Phổ. Trong giai đoạn này, Bismarck phản đối việc thống  nhất nước Đức do ông nghĩ rằng Phổ sẽ mất quyền độc lập. Ông chấp nhận  cương vị đại diện cho Phổ ở Nghị viện Erfurt, một nghị viện được lập ra  bởi các bang thuộc nước Đức để thảo luận về kế hoạch thống nhất, nhưng  chỉ là để phản đối những đề nghị của tổ chức đó một cách hữu hiệu hơn.  Nghị viện Erfurt đã không thể mang tới thống nhất, do thiếu sự ủng hộ từ  hai thực thể chính trị quan trọng nhất của Đức, Phổ và đế quốc Áo. Năm 1850, trong một cuộc xung đột liên quan tới vùng Hesse, Phổ bị Áo (được Nga hoàng ủng hộ) qua mặt trong Hiệp định Olmutz  thừa nhận sự tự trị của các bang thuộc Đức. Một kế hoạch thống nhất  nước Đức dưới sự lãnh đạo của Phổ, theo đề nghị của Thủ tướng Phổ là  Radowitz, cũng bị hủy bỏ.
+
+
+ Năm 1851, Friedrich Wilhelm IV chỉ định Bismarck tham gia phái đoàn Phổ tham dự Hội nghị Liên bang Đứctại Frankfurt.  Do đó, Bismarck từ bỏ chiếc ghế của ông ở Landtag, nhưng vài năm sau  được chỉ định vào Thượng viện Phổ. Tám năm ở Frankfurt đã đánh dấu những  thay đổi trong quan điểm chính trị của Bismarck, thể hiện qua những bản  ghi nhớ dài mà ông gửi cho cấp trên của mình ở Berlin. Không còn chịu  ảnh hưởng của những người bạn Phổ bảo thủ cực đoan, Bismarck trở nên  thực tế hơn và không còn phản động như trước. Ông bắt đầu tin rằng để  trở thành đối trọng với nước Áo mới hồi phục ảnh hưởng, Phổ cần liên  minh với các bang khác của nước Đức và như thế, khái niệm về một nước  Đức thống nhất đã dễ chấp nhận hơn với ông. Bismarck cũng cho rằng Phổ  cần duy trì quan hệ hữu hảo với Nga và hoàng đế Napoléon III ở Pháp.  Napoléon III vốn bị những bạn bè của Bismarck, bao gồm cả anh em nhà  Gerlach, ghét cay ghét đắng. Nhưng mối quan hệ tốt với nước Pháp sẽ là  cần thiết cho Phổ để đe dọa Áo cũng như ngăn không cho Pháp liên minh  với Nga. Trong một lá thư nổi tiếng gửi cho Lepold von Gerlach, Bismarck  viết rằng sẽ là ngu xuẩn nếu chơi cờ vua mà lại loại 16 trong số 64 ô  cờ ra khỏi bàn cờ từ trước.
+
+
+ Otto von Bismarck cũng cảm thấy tình trạng bị cô lập của nước Phổ trong cuộc chiến tranh Krym vào giữa những năm 1850 là rất đáng lo ngại (trong cuộc chiến đó, Áo liên minh với các đế quốc Anh, Ottoman và Pháp chống lại Nga. Phổ không được mời tới tham dự các buổi hòa đàm ở Paris).  Trong cuộc khủng hoảng phương Đông vào thập kỷ 1870, nỗi lo sợ lặp lại  tình trạng tương tự đã khiến Bismarck thúc giục ký một hiệp ước liên  minh với đế quốc Áo-Hung vào năm 1879. Cũng trong những năm 1850, liên minh Nga - Áo không còn mặn nồng như trước. Đế quốc Nga đã giúp Áo dập tắt cuộc cách mạng ở Hungary vào năm 1849, nhưng Áo lại không có ý ủng hộ Nga. Tại Olmutz năm 1850, Felix Schwarzenberg, nhà lãnh đạo Áo, tuyên bố: “Nước Áo sẽ làm cả thế giới kinh ngạc vì sự bội bạc của mình”. Bismarck đã tiên đoán chính xác rằng kể từ đó, Áo không còn có thể dựa vào sự ủng hộ của Nga ở Ý và Đức nữa và do vậy, sẽ không thể chống đỡ sự tấn công từ phía Pháp và Phổ.
+
+
+ Năm 1858, Friedrich Wilhelm IV bị một cơn đột quỵ khiến ông tê liệt  thần kinh. Em trai ông, Wilhelm I lên ngôi nhiếp chính ở Phổ. Lúc đầu,  Wilhelm I có xu hướng ôn hòa. Ông duy trì quan hệ hữu hảo với những  người Anh theo chủ nghĩa tự do và đã cho con trai của ông (người trong  tương lai sẽ là vua Friedrich III) cưới Vicky, con gái lớn của nữ hoàng Victoria. Con trai của cặp vợ chồng Anh - Đức (sau này sẽ là vua Wilhelm II) ra đời vào năm 1859. Sự cầm quyền của Wilhelm I đã dẫn tới việc có mặt một số bộ trưởng theo trường phái ôn hòa trong nội các.
+
+
+ Tân nhiếp chính vương rút Bismarck khỏi đoàn đại biểu ở Frankfurt và chuyển ông đến làm đại sứ cho Phổ ở đế quốc Nga.  Về hình thức, đó là một sự thăng tiến đáng kể với Bismarck bởi Nga là  một trong hai nước láng giềng hùng mạnh nhất của Phổ (nước kia là Áo),  nhưng trên thực tế, Bismarck bị loại ra khỏi đời sống chính trị ở Đức.  Hơn thế nữa, nhiếp chính vương còn từ chối không thăng Bismarck lên cấp  thiếu tướng, vốn là cấp bậc bình thường với các đại sứ ở Sankt-Peterburg,  bởi lẽ Phổ và Nga là những đồng minh quân sự thân thiết mà những người  đứng đầu nhà nước thường liên lạc với nhau qua kênh quân sự, thay vì các  kênh ngoại giao. Bismarck ở Sankt-Peterburg được bốn năm, nơi suýt nữa  thì ông bị cưa chân do điều trị sai và gặp lại kình địch của ông sau  này, Công tước Gorchakov, người đại diện cho Nga ở Frankfurt vào đầu những năm 1850. Cũng trong giai đoạn này, nhiếp chính vương chỉ định Helmuth von Moltke làm tham mưu trưởng quân đội Phổ và Albrecht von Roon làm bộ trưởng bộ chiến tranh. Cùng với Bismarck, hai người này sẽ làm thay đổi hoàn toàn nước Phổ trong 12 năm tiếp theo.
+
+
+ Mặc dù ở nước ngoài trong một thời gian dài, Bismarck không hoàn toàn  bị loại khỏi các sự vụ chính trị trong nội bộ nước Đức. Ông vẫn được  thông tin đầy đủ nhờ vào tình bạn với Roon và họ sẽ cùng nhau thành lập  một liên minh chính trị bền vững. Tháng 6 năm 1862, Bismarck được chuyển  tới Paris để làm đại sứ tại Pháp. Ông cũng có chuyến thăm Anh mùa Hè  năm đó và đã gặp những nhân vật nổi tiếng trên chính trường thời bấy  giờ, sau này sẽ có người trở thành đối thủ của ông, bao gồm hoàng đế  Napoléon III của Pháp, Thủ tướng Anh Henry John Temple, Ngoại trưởng Anh John Russell và chính trị gia của Đảng bảo thủ Anh Benjamin Disraeli, người sau này sẽ nắm chức vụ thủ tướng trong những năm 1870.
+
+Tổng lý đại thần Vương quốc Phổ
+
+
+
+Wilhelm I  lên nối ngôi sau khi vua anh qua đời vào năm 1861. Triều đình Wilhelm I  thường xuyên mâu thuẫn với Nghị viện Phổ, nơi những người theo đường  lối tự do dân chủ ngày càng chiếm ưu thế. Khủng hoảng bùng nổ vào năm  1862 khi Nghị viện từ chối thông qua ngân sách cho một chương trình tái  tổ chức quân đội được nhà vua đề xuất. Cả hai bên đều không nhượng bộ.  Nhà vua đe dọa thoái vị và tin rằng Bismarck là nhà chính trị duy nhất  có thể chấm dứt cuộc khủng hoảng vào lúc đó, nhưng xuất hiện mâu thuẫn  trong tư tưởng nhà vua về việc chỉ định một người đòi hỏi được quyền  kiểm soát tuyệt đối với các vấn đề đối ngoại tham gia vào công việc đối  nội. Dẫu vậy, cuối cùng, vào tháng 9 năm 1862, sau khi Nghị viện một lần  nữa từ chối thông qua ngân sách quốc phòng với đa số phiếu, Wilhelm I  đã bị Roon thuyết phục và gọi Bismarck trở về Phổ. Ngày 23 tháng 9 năm 1862, Wilhelm I chỉ định Bismarck làm Thủ tướng kiêm Ngoại trưởng Phổ. Mặc dù lúc đầu bị nhà vua và Thái tử  nghi ngờ, bị Hoàng hậu ghét bỏ, Bismarck vẫn nhanh chóng tập trung được  quyền lực trong tay nhờ cá tính và tài hùng biện của ông.
+ Bismarck thể hiện sự ủng hộ với nhà vua bằng cách kết thúc sự bế tắc  trong vấn đề ngân sách quốc phòng theo hướng có lợi cho nhà vua, dù ông  đã sử dụng đến biện pháp ở ngoài khuôn khổ luật pháp. Bismarck tuyên bố  rằng do hiến pháp nước Phổ không giải quyết được trường hợp bất đồng  giữa những nhà lập pháp và chính phủ cầm quyền, ông sẽ đơn giản sử dụng  lại ngân sách đúng như năm trước.
+ Mâu thuẫn giữa Bismarck và nghị viện gia tăng trong những năm sau đó.  Năm 1863, Nghị viện Phổ thông qua một đạo luật tuyên bố họ không thể  làm việc với Bismarck nữa. Đó thực chất không khác gì một đề nghị yêu  cầu nhà vua phải cách chức thủ tướng của mình. Đáp lại, Wilhelm I giải  tán nghị viện và buộc tội các nghị viên đã tìm cách giành quyền kiểm  soát phi hiến đối với hoạt động của triều đình. Bismarck sau đó ban hành  một sắc lệnh hạn chế quyền tự do của báo chí. Sắc lệnh này thậm chí bị  cả hoàng thái tử, người sau này sẽ trở thành hoàng đế Friedrich III,  phản đối. Bất chấp nỗ lực ngăn chặn những kẻ chỉ trích, Bismarck là một  chính trị gia bị số đông người Đức ghét bỏ. Những người ủng hộ ông chỉ  giành được kết quả thiểu số trong cuộc bầu cử vào tháng 10 năm 1863 khi  liên minh tự do dân chủ giành hai phần ba số ghế ở nghị viện. Nghị viện  lại tiếp tục kêu gọi nhà vua cách chức Bismarck, nhưng nhà vua ủng hộ  ông và sợ rằng nếu loại bỏ vị thủ tướng, một chính phủ dân chủ cũng sẽ  xuất hiện và do đó, đe dọa đến ngai vàng của ông.
+
+Đại thừa tướng Đế chế Đức
+
+Năm 1871, Otto von Bismark được chỉ định làm Đại thừa tướng (Chancellor)- Thủ tướng (Prime Minister) Đế chế Đức, nhưng vẫn nắm quyền điều hành ở Phổ (bao gồm các bộ văn phòng thủ tướng và bộ ngoại giao). Ông cũng được thăng hàm trung tướng và ban thưởng một lãnh địa nữa, Friedrichsruh, gần Hamburg.  Lãnh địa này còn lớn hơn Varzin và biến Bismarck thành một địa chủ rất  giàu có. Vì cùng lúc nắm giữ hai chức vụ cực kỳ quan trọng, Bismarck nắm  quyền kiểm soát rộng lớn với cả chính sách đối nội lẫn đối ngoại. Có  một giai đoạn ngắn chức vụ thủ tướng Phổ được trao cho Albrecht von Roon vào năm 1873. Nhưng vào cuối năm đó, Roon từ chức vì lý do sức khỏe và Otto von Bismarck lại đảm nhận cả hai cương vị.
+
+
+ Trong những năm tiếp theo, một trong những mục tiêu chính trị chủ yếu của Bismarck là làm giảm ảnh hưởng của giáo hội Ki-tô giáo tại Đế chế Đức. Trong khi Phổ (trừ vùng Rhineland) và phần lớn các bang Bắc Đức theo đạo Tin Lành thì ở các bang Nam Đức, đặc biệt là Bavaria, tỷ lệ người theo Ki-tô giáo rất lớn. Tổng cộng, một phần ba dân số theo đạo Ki-tô. Bismarck tin rằng Giáo hội Công giáo Rôma  có quá nhiều quyền lực chính trị. Ông e ngại sự trỗi dậy của Đảng trung  dung Ki-tô giáo (thành lập năm 1870) cũng như những hiềm khích có thể  gây ra bất đồng giữa những người Ki-tô và những người Tin Lành. Để ngăn  chặn điều đó, Bismarck đã cố gắng, dù không thành công, thuyết phục các chính phủ khác ở châu Âu  cùng sắp xếp trước các cuộc bầu giáo hoàng. Theo đó, các chính phủ ở  châu Âu sẽ thống nhất đưa ra những ứng cử viên không có năng lực cho  cương vị giáo hoàng rồi sau đó, chỉ đạo những hồng y của nước họ bỏ phiếu cho phù hợp với tình hình. 
+
+
+ Dần dần, Otto von Bismarck đi tới vận động cả một chiến dịch chống Ki-tô giáo được biết đến dưới tên gọi Kulturkampf. Năm 1871, Phòng Ki-tô giáo của Bộ văn hóa Phổ bị bãi bỏ. Năm 1872, những người theo dòng Tên  bị trục xuất khỏi nước Đức. Bismarck còn ủng hộ những người Tin Lnh và  những người chống Ki-tô giáo. Năm 1873, những điều luật chống Ki-tô giáo  khắt khe hơn được thông qua cho phép chính quyền giám sát hoạt động  giáo dục của các trường dòng và giảm bớt quyền lực của giáo hội. Năm  1875, chính quyền đòi hỏi các nghi lễ dân sự đối với những đám cưới, vốn  trước đó chỉ cần tổ chức tại nhà thờ. Tuy nhiên, những cố gắng đó chỉ  càng củng cố thêm cho sự đoàn kết của Đảng trung dung Ki-tô giáo, và  Bismarck quyết định chấm dứt Kulturkampf vào năm 1878. Cũng trong năm đó, Giáo hoàng Piô IX, có xu hướng chống đối Bismarck, qua đời. Người kế nhiệm của ông, Giáo hoàng Lêô XIII tỏ ra thực tế hơn và dần dần cải thiện quan hệ với Bismarck. 
+
+
+   
+
+ 
+ 
+ Chiến dịch Kulturkampf tuy thất bại trong mục tiêu chính, đã  giúp Bismarck có thêm sự ủng hộ từ chính đảng lâu đời ở Đức, Đảng quốc  gia tự do. Đảng này trở thành đồng minh chính của Bismarck ở nghị viện.  Năm 1873, nước Đức và phần lớn châu Âu bước vào một cuộc đại suy thoái  kinh tế bắt đầu với sự sụp đổ của thị trường chứng khoán Viên. Lần đầu tiên kinh tế Đức suy thoái kể từ sau giai đoạn công nghiệp hóa hàng loạt vào những năm 1850 sau cuộc cách mạng năm 1848.  Để hỗ trợ những ngành công nghiệp đang xuống dốc, thủ tướng hủy bỏ  chính sách thương mại tự do và áp đặt thuế bảo hộ. Điều này khiến những  đảng viên quốc gia tự do, vốn ủng hộ chính sách tự do thương mại, nổi  giận. Kulturkampf và những ảnh hưởng của nó còn khiến dư luận  quay sang chống lại đảng ủng hộ chiến dịch đó. Bismarck tận dụng cơ hội  này để tự tách ra khỏi những người quốc gia tự do. Điều này dẫn đến sự  ủng hộ dành cho đảng này sụt giảm nhanh chóng và tới năm 1879, quan hệ  giữa họ và Bismarck chấm dứt. Ông lại quay sang tìm kiếm sự ủng hộ từ  những thành phần bảo thủ, bao gồm Đảng trung dung.
+
+
+ Để ngăn chặn những vấn đề phát sinh do nhiều chủng tộc khác nhau sống  trong cùng một đất nước, chính phủ của Bismarck cố gắng đồng hóa những  sắc dân thiểu số, chủ yếu ở các vùng biên giới của Đế chế Đức, như người Đan Mạch ở miền Bắc, người Pháp ở vùng Alsace-Lorraine và người Ba Lan ở Đông Đức.
+
+
+ Chính sách của ông nhắm tới người Ba Lan ở Phổ thường gây bất lợi cho họ, mang tính phân biệt đối xử rõ rệt.  Điều này đã gây thêm thù hận giữa người Đức và người Ba Lan. Những chính sách đó thường có động cơ từ quan điểm của Bismarck rằng sự tồn tại của Ba Lan  là mối đe dọa cho nước Đức. Chính Bismarck đã viết về những người Ba  Lan rằng “người ta phải bắn những con sói ngay khi có thể”.
+
+
+ Bismarck còn đặc biệt lo lắng về sự trỗi dậy của những người xã hội chủ nghĩa, được tập hợp bởi Đảng dân chủ xã hội Đức. Ngay từ ngày 20 tháng 3  năm 1852, tại viện thứ hai của Nghị viện Vương quốc Phổ, Bismarck đã  công bố một bài diễn văn. Bài diễn văn này đã cho thấy tầng lớp địa chủ  quý tộc Phổ có thái độ căm ghét các thành phố lớn - nơi phong trào cách  mạng thường xảy ra. Ông cho rằng, "nhân dân Phổ chân chính" sẽ "biết  cách bắt chúng phải phục tùng và sẽ quét sạch chúng khỏi mặt đất" khi  nào mà cuộc đấu tranh chống chính quyền của nhân dân các thành phố lớn  bùng nổ.  Năm 1878, ông vận động thông qua những điều luật chống những người xã  hội chủ nghĩa. Các tổ chức, những hội nghị và thậm chí cả văn học xã hội  chủ nghĩa bị cấm. Những nhà lãnh đạo xã hội chủ nghĩa bị bắt và bị xử ở  tòa án cảnh sát. Nhưng bất chấp những cố gắng đó của Bismarck, phong  trào xã hội chủ nghĩa vẫn trụ vững và ngày càng giành được nhiều sự ủng  hộ cũng như thêm ghế ở nghị viện. Những người xã hội chủ nghĩa có ghế ở  nghị viện với tư cách là những ứng cử viên độc lập, không thuộc bất kỳ  đảng chính trị nào, và hiến pháp Đức cho phép điều này.
+
+
+ Thủ tướng Otto von Bismarck bèn quay sang cố gắng làm giảm sự hấp dẫn  của chủ nghĩa xã hội với công chúng bằng cách dụ dỗ giai cấp công nhân.  Ông tiến hành nhiều cuộc cải cách xã hội, có thể được xem là những điều  luật lao động đầu tiên trên thế giới và làm mẫu cho các quốc gia khác.  Luật bảo hiểm y tế thông qua năm 1883 quy định người chủ phải trả một  phần ba, còn người làm công trả hai phần ba khoản tiền bảo hiểm. Luật  bảo hiểm tai nạn thông qua năm 1884,  luật bảo hiểm hưu trí và tàn tật thông qua năm 1889. Những điều luật  khác hạn chế việc sử dụng lao động phụ nữ và trẻ em. Nhưng ngay cả những  cố gắng này của Bismarck cũng không mấy thành công. Giai cấp công nhân  vẫn không ưa chính quyền bảo thủ của ông.
+
+
+Chính sách đối ngoại
+
+Bismarck rất nỗ lực để duy trì hòa bình ở châu Âu vì ông không muốn sức mạnh của đế chế Đức còn non trẻ bị đe dọa. Ông có ý định đưa nước Đức trở thành một đế quốc hùng mạnh nhất châu Âu. Ông buộc phải dàn hòa với chủ nghĩa phục thù của những người muốn trả hận cho thất bại trong chiến tranh Pháp-Phổ đang nổi lên ở Pháp.  Bismarck thi hành một chính sách ngoại giao với mục tiêu cô lập nước  Pháp trong khi giữ quan hệ hữu hảo với các quốc gia khác ở châu Âu. Để  tránh chọc giận nước Anh,  Bismarck đầu tiên phủ nhận việc biến Đức trở thành một đế quốc thực dân  và cam kết không gia tăng lực lượng hải quân. Tiếp tục đường lối đó,  năm 1872, ông đề nghị một hiệp ước thân thiện ba bên với Đế quốc Áo-Hung và Nga.
+
+ Năm 1875, Bismarck tìm cách hăm dọa Pháp bằng việc cấm không bán yên  ngựa sản xuất tại Đức cho kỵ binh Pháp và sắp xếp để một tờ báo do ông  kiểm soát giật cái tít “Phải chăng chiến tranh đã ở trước mắt?”. Tuy nhiên, sau đó Bismarck phải xuống thang khi cả Nga và Anh đều tuyên bố họ sẽ ủng hộ Pháp.
+ Bismarck còn giữ quan hệ tốt với Ý, dù cá nhân ông không thích đất nước và con người Ý. Có thể coi ông có đóng góp nhất định trong việc thống nhất nước Ý. Chiến thắng của quân đội nhà nước Phổ do Bismarck đứng đầu trong cuộc chiến tranh Áo Phổ đã giúp Ý sát nhập Venetia, vốn là một nước chư hầu của Áo suốt từ năm 1815. Còn chiến thắng trong chiến tranh Pháp-Phổ năm 1870 đã khiến hoàng đế Pháp Napoléon III phải rút quân đội Pháp, được cử để bảo vệ giáo hoàng, khỏi kinh thành Roma. Nếu không có hai sự kiện này, việc thống nhất nước Ý đã không thể hoàn tất.
+
+ Sau chiến thắng của Đế quốc Nga trước Đế quốc Ottoman trong chiến tranh Nga-Thổ Nhĩ Kỳ (1877–187, Bismarck đã hỗ trợ việc đàm phán dẫn tới cuộc hội đàm Berlin. Kết quả là Hiệp ước Berlin 1878, điều chỉnh lại Hiệp ước San Stefano trước đó, đã được ký kết, giảm bớt diện tích của quốc gia mới giành độc lập Bulgaria  (lúc đó là một nước thân Nga). Bismarck và những nhà lãnh đạo châu Âu  khác không muốn nước Nga mở rộng ảnh hưởng và cố gắng bảo vệ Đế quốc  Ottoman. Kết quả là quan hệ Nga-Đức xấu đi, kéo theo hiệp ước ba bên  trước đó giữa Nga, Đức và Áo-Hung chấm dứt.
+ Bismarck bèn thương lượng một hiệp ước liên minh với Áo-Hung, trong  đó mỗi nước đảm bảo cho nước kia trong trường hợp bị Nga tấn công. Hiệp  ước đó trở thành hiệp ước ba bên vào năm 1882 với sự tham gia của Ý, và  mối liên minh ba bên Nga-Áo-Phổ, được duy trì dưới nhiều hình thức suốt  từ năm 1813, chính thức chấm dứt kể từ đây.
+ Với những vấn đề bên ngoài châu Âu, lúc đầu, Bismarck phản đối ý  tưởng tìm kiếm thêm thuộc địa với lập luận rằng gánh nặng giành giật và  giữ thuộc địa còn lớn hơn mối lợi tiềm năng khai thác được từ đó. Nhưng  vào cuối những năm 1870, ý kiến dư luận ở Đức ngày càng ủng hộ việc tìm  kiếm thuộc địa tại nước ngoài và Bismarck có thể còn có động cơ khơi dậy  mối hiềm khích Anh-Đức về vấn đề này để hạ uy tín của hoàng thái tử  thân Anh đang sắp lên ngôi. Trong những năm 1880, Đức và các nước đế  quốc châu Âu khác xâu xé châu Phi. Nước Đức giành được Togoland (giờ là một phần của Ghana và Togo), Cameroon, Đông Phi thuộc Đức (giờ là Rwanda, Burundi và Tanzania), và Tây Nam Phi thuộc Đức (giờ là Namibia).
+
+
+Những năm cuối đời
+
+ Năm 1888, hoàng đế Đức là Wilhelm I qua đời. Thái tử lên nối ngôi, tức hoàng đế Friedrich III. Nhưng vị vua này trước đó đã bị ung thư vòm họng và qua đời chỉ sau ba tháng cai trị. Con trai Friedrich III, Wilhelm II  lên nối ngôi. Hoàng đế mới không đồng tình với chính sách đối ngoại  thận trọng của Otto von Bismarck. Ông muốn mở rộng nhanh chóng lãnh thổ  để bảo vệ vị trí của nước Đức.
+ Những mâu thuẫn giữa Wilhelm II và thủ tướng nhanh chóng khiến quan  hệ của họ đổ vỡ. Bismarck tin rằng ông đủ sức áp đảo Wilhelm II và không  chú ý nhiều tới những chính sách của nhà vua đề xuất vào cuối những năm  1880. Giọt nước cuối cùng làm tràn ly xảy ra vào đầu năm 1890 khi  Bismarck cố gắng áp đặt bộ luật chống những người xã hội chủ nghĩa rất  khó thực thi và không thực tế. Đa số trong nghị viện, là tập hợp của  Đảng bảo thủ và Đảng quốc gia tự do, nhất trí với nhau về phần lớn các  điều trong bộ luật. Nhưng họ bị chia rẽ bởi điều khoản cho phép cảnh sát  được quyền trục xuất những người xã hội chủ nghĩa tìm cách kích động  quần chúng, một điều luật có thể bị Bismarck lạm dụng để chống lại các  đối thủ chính trị của ông. Những người quốc gia tự do từ chối bỏ phiếu  thông qua điều luật đó, trong khi những người bảo thủ chỉ chấp nhận việc  thông qua toàn bộ đạo luật bởi lẽ Bismarck không muốn thay đổi bất kỳ  điều khoản nào.
+
+
+    
+ Bismarck, vào cuối những ngày làm chính trị.
+
+
+ 
+ 
+ Trong khi cuộc tranh cãi chưa có hồi kết, Wilhelm II ngày càng chú ý  hơn đến các vấn đề xã hội, đặc biệt là cách chính quyền đối phó với cuộc  đình công của những công nhân mỏ vào năm 1889. Nhà vua muốn duy trì một  chính sách năng động cho chính phủ của ông và thường xuyên va chạm với  Bismarck về các vấn đề xã hội. Bismarck hoàn toàn không đồng ý với chính  sách của Wilhelm II và dùng mưu mẹo để phá vỡ kế hoạch của nhà vua. Mặc  dù Wilhelm II ủng hộ bộ luật chống chủ nghĩa xã hội thay thế, Bismarck  quyết định vận động để bộ luật bị phủ quyết. Ông muốn kích động những  người xã hội chủ nghĩa tiếp tục đấu tranh cho tới khi bạo lực bùng phát  và sẽ lấy đó làm cớ để đàn áp họ thẳng tay. Wilhelm II trả lời rằng ông  không muốn bắt đầu thời đại trị vì của mình bằng một cuộc tắm máu. Sau  câu trả lời của nhà vua, Bismarck nhận ra ông đã sai lầm và cố thỏa hiệp  với Wilhelm II bằng cách đồng ý với các chương trình xã hội nhắm vào  công nhân công nghiệp và thậm chí đề xuất một hội đồng châu Âu cùng xem xét các vấn đề điều kiện lao động do hoàng đế Đức chủ trì.
+
+
+    
+ Bismarck trong sinh nhật lần thứ 80, ngày 1 tháng 4 năm 1895.
+
+
+ 
+ 
+ Bất chấp sự nhượng bộ đó, những sự kiện nối tiếp nhau dần dần khiến  khoảng cách giữa ông và Wilhelm II ngày càng giãn rộng. Bismarck, cảm  thấy bị áp lực và bị hoàng đế coi thường, ngày càng suy yếu bởi những cố  vấn quá tham vọng, từ chối ký một tuyên bố liên quan tới việc bảo vệ  quyền lợi cho người lao động cùng Wilhelm II (theo hiến pháp Đức,  một văn bản chỉ có hiệu lực sau khi được cả vua và thủ tướng ký). Việc  này là nhằm phản đối sự can thiệp của Wilhelm II đối với quyền lực vốn  trước đó không ai dám thách thức của ông. Bismarck còn tiến hành những  vận động hậu trường để phá hoại hội đồng lao động châu Âu lục địa mà  Wilhelm dày công vun đắp.
+
+
+ Quan hệ trở nên tồi tệ hơn khi Bismarck tìm kiếm đa số phiếu ở nghị  viện hòng áp đảo nhà vua trong đạo luật chống chủ nghĩa xã hội. Ngoài bộ  phận “Kartell” ủng hộ Bismarck trong nghị viện, các thế lực khác bao  gồm Đảng trung dung Thiên Chúa giáo và Đảng bảo thủ. Bismarck muốn thành  lập một liên minh với Đảng trung dung và đã mời Ludwig Windthorst,  người đứng đầu nghị viện, tới để thảo luận. Đó là âm mưu chính trị cuối  cùng của ông. Wilhelm II nổi giận khi được tin về cuộc gặp gỡ đó. Ở một  nhà nước nghị viện cộng hòa, đó là việc bình thường khi thủ tướng phải  dựa vào đa số cũng như sự tín nhiệm ở nghị viện để vận hành chính phủ  của ông và giúp các quyết định được thông qua. Tuy nhiên, ở nhà nước  quân chủ nghị viện Đức, thủ tướng chỉ phụ thuộc vào sự tín nhiệm của  hoàng đế và Wilhelm II tin rằng ông phải được thông báo trước khi những  cuộc gặp gỡ như thế diễn ra. Sau một cuộc gặp căng thẳng trong văn phòng  của Bismarck, Wilhelm II nổi điên và ra lệnh hủy bỏ điều luật tổ chức  nội các có hiệu lực suốt từ năm 1851. Điều luật đó quy định các bộ  trưởng trong nội các Phổ  không được báo cáo trực tiếp lên nhà vua, mà phải báo cáo cho thủ tướng  trước. Bismarck, bị đẩy vào tình thế không thể làm gì khác, viết một lá  thư từ nhiệm đầy căm phẫn trong đó ông chỉ trích sự can thiệp của  Wilhelm II vào chính sách đối ngoại và đối nội. Lá thư đó chỉ được công  khai sau khi Bismarck đã chết. Rốt cuộc, Bismarck trở thành nạn nhân của  chính những gì mà ông tạo ra. Bismarck thậm chí đã nhờ tới ảnh hưởng  của hoàng thái hậu Friedrich, nhưng ông vẫn không thể thay đổi được  quyết định của nhà vua.
+
+
+    
+ Bức biếm họa nổi tiếng Dropping the Pilot của họa sĩ Anh John Tenniel vẽ năm 1890 mô tả sự kiện Bismarck từ chức
+
+
+ 
+ 
+ Bismarck từ chức ở tuổi 75. Người kế nhiệm ông ở cương vị thủ tước Đức và thủ tướng Phổ là Leo von Caprivi.  Để an ủi, ông được phong hàm đại tướng và quyền tư lệnh chiến trường  (vì trong thời bình nước Đức không có tư lệnh chiến trường) và một danh  hiệu quý tộc mới, công tước xứ Lauenburg. Ông còn được bầu làm đại biểu  của Hamburg  ở nghị viện, nhưng trong lần bầu cử thứ hai, ông bị thua một đối thủ  dân chủ xã hội và trên thực tế không bao giờ ngồi ở nghị viện. Sau đó,  Bismarck thực sự nghỉ hưu hoàn toàn tại điền trang Varzin (nay thuộc lãnh thổ Ba Lan) của mình. Một tháng sau khi vợ ông qua đời vào ngày 27 tháng 11 năm 1894, Bismarck chuyển tới Friedrichsruh, gần Hamburg và chờ đợi trong tuyệt vọng việc được gọi lại làm cố vấn cho chính phủ mới.
+ Ngay khi Bismarck phải rời vị trí của mình, dân Đức đã bắt đầu ca  ngợi ông, gom góp tiền để xây những tượng đài như đài tưởng niệm  Bismarck hoặc tòa tháp Bismarck-Denkmal để tưởng nhớ ông. Bismarck rất  được trọng vọng ở Đức, nhiều tòa nhà được đặt theo tên ông. Nhiều quyển  sách viết về ông thuộc loại bán chạy nhất. Ông cũng là đề tài ưa thích  của các họa sĩ nổi tiếng.
+ Bismarck qua đời năm 1898 ở tuổi 83 tại Friedrichsruh, cũng là nơi  ông được chôn cất. Trên bia mộ của ông là dòng chữ “Bầy tôi Đức trung  thành của hoàng đế Wilhelm I”.
+
+(Nguồn Wikipedia)

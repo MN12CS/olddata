@@ -1,0 +1,66 @@
+---
+title: "Tớ... quyết định...sẽ...không thích cậu nữa"
+date: 2025-06-12T09:33:11Z
+slug: to-quyet-dinhsekhong-thich-cau-nua
+draft: false
+---
+
+## Tớ... quyết định...sẽ...không thích cậu nữa
+
+## CziosCerny
+
+... Vì tớ không muốn hy vọng...
+
+Để rồi thất vọng...
+
+Vì tớ không muốn chạy theo ảo tưởng...như một đứa ngốc...
+
+Tớ...có cảm giác...chưa bao giờ...cậu để ý một chút nào tới người khác...
+
+Tớ có thể gửi cả chục tin nhắn...còn cậu thì giới hạn trong mấy tin T . T...
+
+Tớ có thể hỏi thăm khi cậu ốm...còn cậu thì không...
+
+Tớ nhắn một tin dài 2,3 trang...còn cậu thì chỉ đáp uk hoặc là không rep lại = . =" ...
+
+Vì tớ luôn băn khoăn rằng:tớ thích cậu thật hay đó chỉ là cảm xúc thoáng qua đơn thuần khi cô đơn mà thôi?
+
+Vì tớ không muốn dành nước mắt cho cậu nữa...
+
+Bởi...những giọt nước ấy tớ chỉ muốn dành cho người khiến tớ vui chứ không cho người khiến tớ phải khóc...
+
+Bởi tớ không cần tự làm mình đau nữa...
+
+Vì sự vô tâm,thờ ơ mà tớ nhận được đã quá đủ rồi...
+
+Vì tớ nhận ra khi đứng trước cậu:mình tệ hại đến mức thương hại....
+
+Vì tớ đã quá mệt rồi,không muốn đuổi theo cậu nữa.
+
+Cậu đi nhanh quá nên tớ không theo kịp được...
+
+Tại sao tớ lại khóc chứ?
+
+Tại sao tớ lại ngộ nhận chứ?
+
+Tại sao tớ cứ thuyết phục mình rằng hình như cậu cũng biết rằng cậu đặc biệt với tớ mặc dù ngay từ đầu tớ đã cố phủ định rằng cậu chẳng tin đâu...
+
+Tại sao tớ cứ trao yêu thương về nơi vô vọng thế ? dù đã biết trước?
+
+Tại sao ?
+
+Tớ ngố hay cậu ngố đây?Ai nhỉ?
+
+Tớ ước giá như tớ đừng gặp cậu...
+
+Tớ ước tớ đừng nhìn cậu như nhìn một thiên thần...
+
+Tớ ước...tớ khóc...
+
+Tớ sẽ cố gắng quên cậu
+
+Tớ sẽ cố...
+
+Dù biết rất khó...
+
+P/s:cậu sẽ chẳng bao giờ đọc được đâu,tớ biết thế...

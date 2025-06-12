@@ -1,0 +1,26 @@
+---
+title: "Ma Kết vs tình online..."
+date: 2025-06-12T10:32:44Z
+slug: ma-ket-vs-tinh-online
+draft: false
+---
+
+## Ma Kết vs tình online...
+
+## google
+
+Mình là CG nhé, người iu mình (tạm gọi thế đã) là MK.
+Bọn mình bjk nhau đc 4 năm, nhưng chỉ yêu nhau đc gần 2 năm thôi. Tất cả đều diễn ra trên nét nhé.
+Đầu tiên hắn nhảy vào njk mình bla bla bla j đấy (h chả nhớ nổi =.=") chỉ bjk lúc ấy bực vô cùng. Mấy ngày sau vẫn thế, cứ onl là thấy hắn hi ho rùi bla bla tía lia, nhìu phen mình tỏ ra thô lỗ để hắn đừng pm nữa nhưng mà... bạn bjk thế nào là một MK đấy, hắn dai vô cùng... 
+Khoảng 1 năm sau thì hắn bỗng dưng biến mất, ko tăm hơi.
+Và...
+Như 1 đứa con gái bt` khác..
+Mình...bắt đầu ...NHỚ hắn....
+Bắt đầu send offline và email cho hắn.....
+Rất nhìu thứ gửi đi nhưng hắn vẫn biệt tăm...
+Gần 1 năm trôi qua........Cho đến khi mình bắt đầu tưởng như quên đi thì hắn lại xuất hiện và thanh minh vì bị tai nạn xe cộ nên ko onl đc...
+Ko hiểu sao lúc ấy mình lại hẹn hắn mai chat tiếp nhé. Và ko bjk ma quỷ dẫn đg ntn mà mình đã nói vs hắn là mình thik hắn, còn bonus thêm là thik hắn là chuyện của mình, thik lại mình hay ko là chuyện của hắn.
+Off
+1 ngày, 2 ngày, ....n ngày trôi qua.... hắn vẫn ko thèm cho mình bjk là ý hắn ntn dù hai đứa vẫn chat chit bt`, tối nào cũng 3, 4 tiếng.
+Cho đến cả tháng sau hắn mới nói sẽ chấp nhận ty của mình....
+Đến giờ là gần 2 năm rôi. Tụi mình vẫn chưa gặp nhau ngoài đời, nhưng ngày nào cũng video chat 3, 4 giờ, sms, fone và cả quà cáp, thư từ vào lễ này nọ. Nhưng vẫn chưa gặp mặt vì khoảng cách quá xa.... (2 nước khác nhau mà). Bởi vậy mình vẫn ko chắc chắn về t/c của MK đối vs mình là thật hay ảo nữa nên mới vào đây hỏi xem mấy bạn MK: Liệu 1 Mk có hay lừa tình online ko? mình bjk Mk ko thik mất thời gian vào nhừng j ko đâu, nhưng bjk đâu, mình gặp trúng 1 Sun MK, Moon Song Tử =.="
