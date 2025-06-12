@@ -1,0 +1,30 @@
+---
+title: "[SOng Tử] Angelina Jolie - Nữ diễn viên điện ảnh nổi tiếng"
+date: 2025-06-12T10:40:11Z
+slug: song-tu-angelina-jolie-nu-dien-vien-dien-anh-noi-tieng
+draft: false
+---
+
+## [SOng Tử] Angelina Jolie - Nữ diễn viên điện ảnh nổi tiếng
+
+## KanonInD
+
+Angelina Jolie (phát âm /dʒoʊˈliː/joh-LEE-', tên khai sinh: Angelina Jolie Voight; 4 tháng 6, 1975) là một nữ diễn viên điện ảnh và đạo diễn người Mỹ. Trong sự nghiệp điện ảnh của mình, Jolie đã nhận được nhiều giải thưởng danh tiếng, trong đó các giải lớn nhất gồm một Giải Oscar, hai Giải thưởng của Hội Diễn viên Điện ảnh và ba Giải Quả cầu vàng; bên cạnh đó, cô được tạp chí Forbes công nhận là nữ diễn viên Hollywood có thu nhập cao nhất năm 2009 và 2011. Ngoài công việc của một diễn viên, Jolie còn tham gia nhiều hoạt động nhân đạo, đáng chú ý là công việc của cô với người tị nạn với tư cách là Đại sứ thiện chí của Cao ủy Liên Hiệp Quốc về người tị nạn. Cô được mô tả là một trong những người có sức quyến rũ nhất thế giới, người phụ nữ "hấp dẫn nhất" và "đẹp nhất" thế giới.
+
+
+
+Khi Jolie 6 tuổi, cô tham gia bộ phim đầu tiên của mình, Lookin' to Get Out (1982) cùng với cha cô. Tuy vậy, hơn một thập kỷ sau, cô mới bắt đầu sự nghiệp diễn viên với bộ phim kinh phí thấp Cyborg 2 (1993). Vai chính đầu tiên của Jolie trong một phim lớn là vai Kate Libby trong Hackers (1995). Cô tham gia các phim được đánh giá cao như George Wallace (1997), Gia (1998), và nhận được Giải Oscar cho nữ diễn viên phụ xuất sắc nhất với bộ phimGirl, Interrupted (1999). Jolie được biết đến nhiều hơn với vai nữ anh hùng Lara Croft trong dòng trò chơi cùng tên, Lara Croft: Tomb Raider (2001). Từ đó, Jolie trở thành một trong những diễn viên nổi tiếng nhất và được trả thù lao cao nhất Hollywood.[SUP][9][/SUP] Cô tiếp tục nhận được các nhận xét tích cực qua diễn xuất trong các phim chính kịch A Mighty Heart (2007) và Changeling, phim mà cô nhận được một đề cử cho Giải Oscar cho nữ diễn viên chính xuất sắc nhất. Jolie tiếp tục tham gia vào vai nữ chính của phim chuyển thể từ truyện tranh Wanted (2008) và phim hành động trinh thám Salt (2010).[SUP][10][/SUP] Jolie đạt thành công thương mại lớn nhất với phim hài kịch hành động Ông bà Smith (2005) và phim hoạt hình Kung Fu Panda (2008).[SUP][11][/SUP] Năm 2011, Jolie mở đầu sự nghiệp đạo diễn bằng phim đầu tay In the Land of Blood and Honey. Sau khi li dị với Jonny Lee Miller và Billy Bob Thornton, Jolie sống với diễn viênBrad Pitt. Mối quan hệ này rất được chú ý bởi giới truyền thông quốc tế. Jolie và Pitt có ba con nuôi là Maddox, Pax, Zahara, và ba con ruột là Shiloh, Knox và Vivienne.
+
+
+Thân thế và gia đình
+
+Sinh ra tại Los Angeles, California, Jolie là con gái của các diễn viên Jon Voight và Marcheline Bertrand. Jolie có anh trai James Haven là diễn viên, chú Chip Taylor là ca sĩ-nhạc sĩ, và cha mẹ đỡ đầu của cô, Jacqueline Bissetvà Maximilian Schell, cũng là diễn viên. Về phía cha, Jolie có gốc Đức và Slovakia. Về phía mẹ, cô làngười Canada gốc Pháp, người Hà Lan và Đức. Jolie mang dòng máu Iroquois từ mẹ.
+
+Khi bố mẹ li dị vào năm 1976, Jolie và anh trai sống với mẹ, người đã từ bỏ ước mơ làm diễn viên của chính mình để chuyển đến Palisades, New York cùng hai con. Là một đứa trẻ, Jolie thường xuyên xem các phim cùng mẹ và sau này, cô cho biết rằng chính những buổi xem phim ấy đã đánh thức niềm đam mê làm diễn viên trong cô; và cô không chịu ảnh hưởng từ cha. Khi Jolie sáu tuổi, mẹ và bố dượng cô, nhà làm phim Bill Day, chuyển gia đình đến sống tại Palisades, New York. Năm năm sau, gia đình Jolie chuyển về lại Los Angeles. Khi đó, Jolie quyết định rằng cô muốn trở thành diễn viên và theo học tại Học viện Điện ảnh và Sân khấu Lee Strasberg. Tại đây, cô được đào tạo trong hai năm và xuất hiện trong vài vở kịch.
+Mười bốn tuổi, cô bỏ lớp diễn xuất và mong muốn trở thành một giám đốc tang lễ. Vào thời gian này, cô mặc áo quần màu đen và bắt đầu chơi dao. Hai năm sau, cô thuê một căn hộ nằm trên một ga-ra, cách nhà mẹ cô vài khu phố. Khi mong ước trở thành giám đốc tang lễ không còn, cô quay trở lại Học viện để tiếp tục theo học và tốt nghiệp trước một năm, tuy nhiên gần đây cô nhắc lại về khoảng thời gian này rằng "Tận trong tim, tôi vẫn luôn luôn là một đứa trẻ xấu với các hình xăm".
+
+Khi còn là học sinh của Trường trung học Beverly Hills, cô thường có cảm giác bị cô lập vì những đứa trẻ khác là con của những gia đình giàu có trong vùng. Mẹ của Jolie lúc này có thu nhập thấp hơn trước và Jolie thường phải mặc những quần áo đã qua sử dụng. Cô thường bị các học sinh khác trêu chọc vì có những nét khác người, vì quá gầy, vì mang kính và niềng răng. Sự tự tin của cô lại giảm xuống khi những nỗ lực đầu tiên để trở thành một người mẫu thời trang không thành công. Cô bắt đầu tự cắt vào người mình; sau này cô cho biết: "Tôi có nhiều dao và luôn có những thứ như vậy xung quanh. Vì vài lý do, nghi lễ tự cắt vào người và cảm nhận nỗi đau, có khi là cảm nhận sự sống, cảm nhận điều gì đó như sự giải thoát, là một cách chữa trị đối với tôi."
+
+Jolie bị cha ghẻ lạnh trong nhiều năm. Họ cố gắng hòa giải và cả hai đã cùng xuất hiện trong Lara Croft: Tomb Raider (2001). Tháng 7 năm 2002, Jolie đệ đơn yêu cầu đổi tên hợp pháp của mình thành "Angelina Jolie", bỏ họ Voight trong tên và chính thức mang tên mới từ ngày 12 tháng 9, 2002.[SUP][[/SUP]Tháng 8 cùng năm, Voight tuyên bố rằng con gái ông "có vấn đề nghiêm trọng về thần kinh" trong chương trình Access Hollywood. Sau đó, Jolie nói rằng cô không còn muốn giữ quan hệ với cha cô nữa. Jolie cũng nói rằng cô không muốn nêu lý do bị cha ghẻ lạnh, nhưng vì cô đã nhận nuôi con trai Maddox, cô không cho rằng sẽ tốt cho bản thân nếu vẫn có mối quan hệ với Voight. Bị thức tỉnh sau cái chết của người mẹ mà cô thương yêu do căn bệnh ung thư buồng trứng vào ngày 27 tháng 1 năm 2007, Jolie một lần nữa giảng hoà với cha sau 6 năm bất hoà.Tháng 2 năm 2010, Jolie và cha cô đoàn tụ khi ông đến thăm Jolie trong trường quay của phim The Tourist (2010) tại Venezia.
+
+Theo Wikipedia Tiếng Việt
