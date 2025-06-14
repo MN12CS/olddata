@@ -1,0 +1,19 @@
+---
+title: "Song tử à, Nhân Mã nói nghe nè! ^^"
+date: 2025-06-13T00:49:32Z
+slug: song-tu-a-nhan-ma-noi-nghe-ne
+draft: false
+---
+
+## Song tử à, Nhân Mã nói nghe nè! ^^
+
+## hong nguyen
+
+Song Tử à, cậu làm một cơn gió tuyệt vời cho cuộc hành trình không ngừng nghỉ của tên Nhân Mã như tớ. Hằng ngày ngắm cậu là đủ để mình cười thật tươi, thật đấy. Nhưng mọi thứ mình dám làm chỉ là lén nhìn cậu một chút thôi, mình sợ cậu sẽ nhận ra tình cảm mà mình luôn cố che đậy thật kĩ, nhưng tên thông minh như cậu đã nhận ra từ lâu rồi phải không??  
+Môt Nhân mã tự do, tự tại không lo nghĩ chuyện đời như tớ nay phải vò đầu bứt tai suy nghĩ về một tên đáng ghét như cậu. Làm sao để nhìn cậu mà cậu không nhận ra,làm sao đứng trước cậu mà vẫn giữ mình thật bình tĩnh, làm sao chọc cậu cười nhưng không ai nhận ra. Tớ cũng không hiển tại sao mình lại làm vậy? Môt tên máu liều bậc nhất như mình mà hôm nay lại sợ mất đi ai đó. Cậu có biết cảm giác giữ trong lòng mọi thứ như vậy khó chịu như thế nào không? Tớ là mạng lửa đó Song Tử đáng ghét à, tớ không thể bình tĩnh chư cơn gió của cậu đâu. Đôi lúc tớ nghẹn lại muốn phát khóc.
+Đừng nhìn tớ phá phách, nói nhiều, la hét quậy phá lại tưởng tớ mạnh mẽ chả biết gì, thật ra tớ suy nghĩ nhiều lắm. Khi tớ thích một ai đó tớ lại càng nhát, mỗi lần bắt gặp mắt cậu,tớ cứng đờ lại không nói nên lời, mà mắt cậu đẹp tuyệt! ^^ Tớ chỉ có thể đóng vai đứa con gái đanh đá bất cần, cậu-chỉ-là-những-đứa-con-trai-khác thôi. Tớ không thể dịu dàng hay tự nhiên như ai đó, khi cậu đau, buồn, giận tớ chỉ đứng một góc mà không dám lại hỏi, mong rằng ai ai kia của cậu nhận ra sẽ làm phần việc quan tâm ấy phụ tớ. Đôi lúc muốn lấy hết can đảm để đứng trước mặt cậu,để được quan tâm, nhưng tớ không thể,tớ không dám. Đôi mắt cậu rất đẹp nhưng một khi không vui,nó thật đáng sợ.
+Và tớ thu hết can đảm của tớ, một lần chỉ một lần để nói với cậu tất cả và... không thành công. Nhưng điều làm tớ ngạc nhiên nhất chính là cảm xúc của bản thân,tớ không buồn, không khóc, không hụt hẫng,không thất vọng.. chỉ đơn giản là không một chút cảm xúc. Đôilúc tớ ghét cái tính lạc quan của Nhân Mã, tớ muốn rớt 1 giọt nước mắt,muốn hét lên... nhưng rồi cuối cùng lại cười,mà cười rất tươi, trước mặt cậu là cười tươi nhất. Đôi khi tớ thấy mình giả tạo đến đáng sợ. Tớ ghét được xin lỗi vì giống như một dạng nhắc lại nỗi đâu mà ai đó gây cho mình,và tớ không cho phép cậu xin lỗi, không cho, cậu nói rằng " T biết tình cảm mày cho t lâu rồi, nhưng t là thằng ngốc nên sẽ phớt lờ cơ hội này" Tớ ko hiểu, ko hiểu một chút nào hết, tớ muốn cậu giải thích nhưng tất cả đã quá tầm với của tớ rồi. Cho dù nó có ý nghĩa gì nữa thì cậu vẫn luôn "và" Thiên Bình. Còn tớ chỉ là một tên "Nhân Mã hoang tưởng" .
+Kim Ngưu hỏi tớ rằng có bao giờ tớ nghĩ là cậu thích tớ không? Tớ trả lời "có" ko phải tớ dối lòng đâu, tớ đã từng thật sự nghĩ vậy. Có thật Song Tử chỉ nói "buồn" với người mà Song Tử yêu nhất? Cậu đã từng nói với tớ, cậu nhớ không? Vài lần. Điều đó làm tớ suy nghĩ rất nhiều. Bây giờ tớ ngồi cách cậu 1 người nhưng chưa bao giờ tớ có thể trở lại như trước, dù đã rất cố gắng nhưng dường như chỉ đẩy cậu ra xa thêm,không, rất xa... Kim Ngưu nói rằng khi nhìn tớ, ánh mắt cậu rất khác, có cảm tình.. Thật không? Cho tớ hoang tưởng một chút và tin vậy nhé, tin rằng cậu có tình cảm với tớ nhưng cố che giấu như tớ, cho tớ lạc quan một chút, cho tớ lừa bản thân mình một chút vậy nhé Song Tử! ^^
+Tớ thật sự rất nhớ khoảng thời gian chúng ta là những người bạn, khi ấy với một chút mơ mộng tớ đã rất vui. Tuy bây giờ không thể như vậy nhưng cũng không hồi tiếc. Tớ ghét sự mập mờ làm rõ nó làm tớ thoải mái rất nhiều. Tớ sẽ luôn ghi nhớ đôi mắt và nụ cười không lẫn vào đâu được của tên Song Tử đáng yêu này! 
+Nếu cho tớ một cơ hội, tớ tin mình có thể làm cậu hạnh phúc đấy Song Tử à, thật đấy!
+P/s: không cười với tớ cũng được, nhưng hứa phai3luo6n hạnh phúc nhé!

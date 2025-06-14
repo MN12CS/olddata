@@ -1,0 +1,19 @@
+---
+title: "(Carnation V3)Nghệ thuật \"lừa dối\"tuyệt đỉnh của nhiếp ảnh"
+date: 2025-06-13T11:52:28Z
+slug: carnation-v3nghe-thuat-lua-doituyet-dinh-cua-nhiep-anh
+draft: false
+---
+
+## (Carnation V3)Nghệ thuật "lừa dối"tuyệt đỉnh của nhiếp ảnh
+
+## Saphire
+
+Cứ ngỡ là cảnh tuyệt mĩ nhưng sự thật chỉ là bóng đèn và bông len...
+
+Trái đất luôn đẹp và đầy bất ngờ. Không ai nghĩ rằng, hình ảnh tuyệt đẹp, thơ mộng của cánh đồng bát ngát, núi non, sông nước, cảnh dữ dội như núi lửa phun trào, cơn lốc xoáy hay hình ảnh thú vị về Sao Hỏa... dưới đây lại được tạo ra từ những mô hình lắp ghép bằng lông, bông len và vữa...
+Nghệ sĩ Matthew Albanese đến từ New York đã tỉ mỉ ghép từng mô hình vào với nhau, bằng sự thông minh, sáng tạo trong nghệ thuật nhiếp ảnh, anh đã tạo ra những bức ảnh “đẹp như mơ” và sống động đến chân thực. 
+Albanese đặt tên cho dự án của mình là “Worlds Strange” bởi anh đã sử dụng các vật liệu bình thường như quả óc chó, quế, ớt bột, len, vải… để tạo ra những tác phẩm phi thường. 
+​Để có ảnh bão tố đẹp như trên, mô hình đã được tạo nên từ một tấm thép, bông, rau mùi tây và rêu.​​​​Hoàng hôn buông trên cánh đồng: Mô hình này bao gồm các vật liệu như da giả (đồng lúa), bông (mây) và vữa (núi). Bí quyết ở đây là là cách thiết lập hệ thống ánh sáng rất ảo diệu, hoàng hôn được tạo ra bởi việc chỉnh cân bằng trắng, gel màu, bông, vải và ánh sáng.​​​​Chiều rủ bóng liễu: Từ giấy nến được sơn màu, lông đà điểu nhuộm bằng tay, sợi, chocolate, băng keo, dây, cọ, cà phê, rêu và bông, Matthew Albanese đã làm nên mô hình sống động như hình trên. Nó tốn của anh 2 tháng kỳ công xây dựng cũng như căn chỉnh ánh sáng.​​​​Cực quang: Hiệu ứng này được tạo ra bằng cách chụp ảnh một chùm ánh sáng màu trên bức màn đen. Các ngôi sao được tạo ra đơn giản bằng cách để ánh sáng xuyên qua các lỗ trên nút chai.​​​​Hòn đảo thiên đường: Thiên đường với nắng vàng biển xanh được tạo ra từ đường nấu chín, bông, muối, lá thiếc, lông vải. Những đường sóng gợn trên biển chính là từ đường, thật kỳ diệu phải không?​​​Sao Hỏa: Để có được những cảnh quan trên Sao Hỏa, Albanese sử dụng ớt bột, quế, húng tây, hạt nhục đậu khấu, ớt bột và than.​​​Cảnh Cánh rừng bốc cháy ấn tượng trên được tạo ra từ các nguyên liệu như: gỗ, rêu, kim tuyến vàng, túi rác, đường nấu cứng, máy lọc khí, cây cọ chai, một bụi hoa hái trộm, cát, vữa, dây điện, giấy và các bóng đèn màu. Cây được treo ở các độ cao khác nhau để tăng độ phá hủy của đám cháy.​​​Thác nước mờ sương: Mô hình được thực hiện trên tấm mica, thủy tinh, gạch vữa, rêu, cành cây, muối, vải bạt đã sơn vẽ và đá khô. Thác nước được tạo ra từ dòng muối trắng tinh đang chảy từ trên cao xuống. ​​​Với cảm hứng từ Apollo 11, Albanese đã mất 2 tháng để tích cóp... tro lò sưởi nhằm tạo ra khung cảnh trên Mặt trăng. Bên cạnh đó còn có đá tối màu, hỗn hợp vữa, cờ làm bằng giấy màu, dây điện.​​​Kỷ Băng hà: Những tảng băng tan vở được thực hiện từ đường nấu ở các nhiệt độ khác nhau. Gần giống như làm kẹo, nó còn có kẹo, muối, lòng trắng trứng, siro bắp, cream of tartar (thường dùng trong làm bánh cookies), đường bột, màu thực phẩm, mực Ấn Độ và bột mì. Anh đã phải dành ra 3 ngày nấu hỗn hợp và 2 tuần xây dựng cũng như chạm khắc để tạo ra hiệu ứng băng tan vỡ.​​​​Đại dương sâu thẳm: Cảnh dưới biển được tạo thành từ quả óc chó, sáp nến, dây, kim tuyến, vỏ đậu, thạch cao, dây điện, sao biển nhuộm màu, kem đánh răng, đất sét, kẹo dẻo, rêu, bọt biển, vỏ sò phủ sáp, đất sét... 
+Bề mặt nước được tạo ra bằng các chất hóa học. Hiệu ứng mặt trời được tạo ra từ máy chiếu video qua lớp sương mù giảm, kết hợp với các kỹ thuật chụp ảnh. Ống kính được phủ bằng miếng wrap màu xanh, tổng cộng có 11 nguồn ánh sáng được sử dụng.​​
+​Núi lửa phun trào: Núi lửa phun trào được làm từ vữa, bông, mực phốt-pho. Mô hình núi lửa được chiếu sáng bởi những bóng đèn từ 6 - 60 watt. Trong khi đó, sự phun trào nham thạch được lấy từ một hình pháo hoa anh từng chụp.​​

@@ -1,0 +1,13 @@
+---
+title: "[Tuyển tập truyện ngắn] Vang bóng một thời"
+date: 2025-06-13T13:51:27Z
+slug: tuyen-tap-truyen-ngan-vang-bong-mot-thoi
+draft: false
+---
+
+## [Tuyển tập truyện ngắn] Vang bóng một thời
+
+## Canceria
+
+Vang bóng một thời ​ ​Tác giả : Nguyễn Tuân​ ​ ​Nguyễn Tuân (10 tháng 7 năm 1910 – 28 tháng 7 năm 1987) là một nhà văn nổi tiếng của Việt Nam. Sách giáo khoa hiện hành xếp ông vào một trong 9 tác gia tiêu biểu của văn học Việt Nam hiện đại. Ông viết văn với một phong cách tài hoa uyên bác và được xem là bậc thầy trong việc sáng tạo và sử dụng tiếng Việt. Hà Nội có một con đường mang tên ông.​ ​Nguyễn Tuân là một Cự Giải ưa xê dịch​ ​​ ​Nội dung :​ 
+Chất thơ bao quanh tác phẩm văn chương và cuộc đời nghệ sĩ Nguyễn Tuân như một “huyền sử”. Có thể cảm nhận Vang bóng một thời như một bài thơ, – một bài thơ với những nhịp mạnh xen lẫn những nhịp nhẹ, với những trùng điệp day dứt, những rung động mãnh liệt hay nhẹ nhàng, toả lan thành những đợt sóng dữ và những làn sương mờ. Vang bóng…, mang chất thơ của một thời kỳ lịch sử quyết liệt, được biểu hiện bằng những nhịp mạnh, – những buổi chiều máu lửa, những va chạm dữ dội; của những giấc mơ trong sáng, thanh khiết được diễn đạt bằng những nhịp nhẹ, – sương khói mờ ảo của chén trà sương, nắng chiều tàn; của những cảnh tưởng tượng thần tiên hay ma quái, – những oan hồn xõa tóc, những màu vàng ghê sợ, đỉnh non cao huyền bí.​ ​Có thể thấy ở Vang bóng một thời ba mô týp nghệ thuật, tạm gọi là “mô týp buổi chiều máu”, “mô týp sương mờ” và “mô týp Liêu Trai”. “Vang bóng” là chất thơ bao trùm ba mô týp trên; “một thời” chỉ rõ một thời kỳ lịch sử cụ thể, “lúc giao thời”. Nguyễn Tuân, con người lãng tử, khí phách, độc lập ấy, đã nhìn sâu vào lịch sử bằng con mắt nghệ sĩ, tìm thấy một phương diện cái đẹp, cái hào hùng và cái thuần bóng một thời.​ ​Mười hai truyện trong Vang bóng một thời biểu hiện tài năng nhiều dạng của Nguyễn Tuân – Làm sống lại “một thời” đầy bạo lực của lịch sử, mà ông phủ nhận quyết liệt, ông sáng tạo những “vang bóng” của chính “thời” đó diễn đạt một phương diện sức sống của cái đẹp lúc bấy giờ, – tâm hồn thanh cao của những trí thức trong sáng như nước đọng trên lá sen thơm lành, tức là giấc mơ đẹp của chính nghệ sĩ Nguyễn Tuân.​___​ ​Mục Lục​ ​( Hoàn )​ ​1. Bữa rượu máu​2. Những chiếc ấm đất​3. Thả thơ​4. Đánh thơ​5. Hương cuội​6. Ngôi mả cũ​7. Chữ người tử tù​8. Ném bút chì​9. Chén trà sương​10. Một cảnh thu muộn​11. Trên đỉnh non Tản​12. Khoa thi cuối cùng​ ​___​ ​Link Download Ebook :​Vang bóng một thời - Nguyễn Tuân​ ​___​

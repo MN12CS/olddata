@@ -1,0 +1,168 @@
+---
+title: "Song Ngư - Chòm sao sinh ra từ nước...."
+date: 2025-06-13T01:53:44Z
+slug: song-ngu-chom-sao-sinh-ra-tu-nuoc
+draft: false
+---
+
+## Song Ngư - Chòm sao sinh ra từ nước....
+
+## please be mine
+
+♥ Cung Song Ngư 20/2 - 20/3 ♥
+ 
+CHÒM SAO SONG NGƯ LINH THÔNG, MƠ HỒ TỈNH MÀ NHƯ MƠ, MƠ MỚI LÀ THẬT
+ 
+Rất giàu trí tưởng tượng và khả năng sáng tạo nghệ thuật, hòa đồng, khoan dung. Không ổn định, dễ thay đổi, không giỏi chịu đựng gian khổ
+Chòm sao Song Ngư: Chòm sao âm tính, cung mệnh cuối cùng trong số 12 cung hoàng đạo
+Nguyên tố: Nước
+Định vị: Biến đổi (dễ thích nghi nhưng hay thay đổi, không ổn định)
+Mùa: Mùa đông
+Ngôi sao hộ mệnh: Sao Hải Vương
+ 
+
+ 
+ 
+♥ Lý giải về chòm sao Song Ngư
+ 
+ Song Ngư nằm ở phần đuôi cụt cuối cùng trong 12 cung hoàng đạo, nó phức tạp giống như phần cuối xòe ra của chiếc đuôi cá. Đó là chòm sao khó định nghĩa và mơ hồ, không rõ ràng nhất trong số 12 chòm sao 
+Nếu như Bạch Dương, cung mở đầu, biểu trưng cho sự sống, thì Song Ngư biểu trưng cho cái chết và hành trình đi và cõi vĩnh hằng. 
+ 
+ Là cung hoàng đạo cuối cùng, Song Ngư thu nhận phần nào tính cách của tất cả 11 cung trước. Không ngạc nhiên nếu ta nhận thấy ở Song Ngư có sự phúc hậu và thẳng thắn của Nhân Mã, sự tận tụy công tâm của Ma Kết, lòng kiêu hãnh và tươi vui của Sư Tử, nhanh nhẹn hoạt bát của Song Tử, sự khoan thai chậm chạp của Kim Ngưu, và chủ nghĩa lý tưởng của Bạch Dương. Trong con người Song Ngư còn hội tụ cả sở thích tranh cãi đặc trưng cảu các cung mệnh khí, cả tình yêu thiên nhiên của các cung mệnh thổ, và sự hào hứng sôi nổi của các cung mệnh hỏa. Tuy mang tính cách của tất cả các cung, Song Ngư vẫn là một bản chất riêng mình. Nó có khả năng xem xét bản thân một cách toàn diện giống như đứng từ ngoài nhìn vào, cùng lúc thấy được hôm qua, hôm nay và cả ngày mai. 
+ 
+
+ 
+ Biểu tượng của Song Ngư là hai chú cá bơi ngược phương hướng, nó có thể bơi ở chiều sâu theo hai hướng ngược dòng tốt hơn bất cứ chòm sao nào - có thể thăng hoa đến cảnh giới tối cao để rôi hy sinh bản thân, đồng thời cũng có thể suy thoái mà rơi xuống và chìm nghỉm dưới đáy đại dương. Hai chú cá bơi ngược hướng tượng trưng cho tính cách do dự không vững vàng, biến đổi khôn lường, không có định hình của Song Ngư.
+ 
+Song Ngư là chòm sao mẫn cảm và có trực giác nhạy bén nhấ trong số 12 chòm sao. Đường chân trời tâm linh nhạy cảm cao độ đã khiến Song Ngư có thể cảm nhận mọi biến thiên tình cảm, lý giải và hấp thu mọi tư tưởng từ người khác một cách vô thức. Chính vì vậy, Song Ngư thường không có mô thức cố định của riêng mình, mà thay đổi tùy thuộc vào những nhân tố tồn tại xung quanh như con rồng đổi màu theo sự biến đổi của ánh sáng và màu sắc cầu vồng. Đây cũng là chòm sao dễ chịu ảnh hưởng từ thế giới bên ngoài nhất trong số 12 chòm sao 
+ 
+Chịu sự quản chiếu của sao Hải Vương - ngôi sao tượng trưng cho thần biển Neptune - Poseidon,  những con người sinh ở cung Song Ngư có khả năng tưởng tượng vô cùng phong phú, phi phàm, mơ mộng. Họ nổi tiếng với tên gọi : Kẻ hoang tưởng sống trong giấc mơ ban ngày. Tìm kiếm sự giải thoát từ những giấc mộng là hệ quả của tâm lý thất vọng khi nhận thấy lý tưởng hoàn nhau như nước với lửa. Họ chấp nhận thiết lập một vương quốc mộng tưởng tượng tự với thế giới thần thoại, đồng thời sống trong cõi hư ảo mê hoặc và mật đạo tình cảm của chình mình. Song Ngư thường đi lừa người rồi tự lừa mình, nhìn nhận cuộc sống dưới lăng kính màu hồng. Do lý tưởng của họ quá đỗi xa vời và tươi đẹp, trong khi thực tại không thể thỏa mãn tiêu chuẩn hư cấu của họ, nên Song Ngư dùng phương thức mộng ảo để trốn tránh sự lạnh lùng tàn khốc và xấu xa của cuộc sống thực tế. Chính bởi thế, đa số họ không muốn sống trong hiện thực, mà họ thông qua vô sô phương thức như nghệ thuật, hoang tưởng, vũ đạo, âm nhạc, suy ngẫm.......để vượt qua hiện thực khắc nghiệt 
+ 
+ Đặc trưng của "kẻ hoang tưởng" Song Ngư cũng đồng nghĩa vói đặc tính mơ hồ không thể thoát khỏi lưới nhện. Thông thường, họ giải quyết vấn đề không dựa vào tư duy logic nghiêm ngặt, mà nhờ vào sự dẫn lối chỉ đường của cảm giác nhạy bén cao đọ. Họ không phán đoán sự việc căn cứ theo số liệu, sự thực, mà dường như mọi quyết định của họ đều phảng phất hơi hướng của năng lực cảm ứng tâm linh và giác quan thứ sáu thần bí khó lý giải, để rồi họ có khả năng cảm thụ những hiện tượng hoặc khuynh hướng mà người thường không thể nhận thấy. 
+ 
+
+ 
+ Họ hấp thụ tinh hoa và tư tưởng của người khác một cách hoàn toàn vô thức, thậm chí có thể phát giác ra những triết lý cao siêu thâm thúy từ những suy nghĩ không đầu không cuối, không có logic, mục đích rõ ràng, mà chỉ lảm nhảm không ngừng một cách vô định. 
+ 
+ Song Ngư là động vật chịu sự quản thúc của tình cảm, thế giới tình cảm bập bềnh lên xuống, lắc lư trái phải như mực nước thủy triều. Sự mẫn cảm và biên độ giao động tình cảm khá lớn đã giúp con người Song Ngư cảm nhận sâu sắc và chính xác niềm vui cũng như nỗi khổ của những người xung quanh để rồi đồng cảm với cảm xúc của họ giống như nỗi đau và niềm vui của chình mình. Chính vì vậy, Song Ngư có tầm lòng vô cùng nhân hậu, từ bi và hướng thiện, có lòng nhân ái bao la, có sự quan tâm chu đáo. Nhưng sự yếu đuối và hoang tưởng bẩm sinh cũng khiến Song Ngư dễ bị mê hoặc và lừa dối. Không chỉ thế, họ lại rất giỏi đánh lừa bản thân để chạy trốn khỏi thực tại. Thông thường, khuynh hướng tự mê hoặc, tự làm mình tê liệt say mềm rồi chạy trốn đã khiến Song Ngư không có ý chí kiên cường, sự nhẫn nại và sức chịu đựng. 
+ 
+Một Song Ngư mềm yếu, nhu nhược dễ dàng bị người khác chém chặt tùy ý, thái độ sẵn sàng hy sinh bản thân để cứu rỗi nhân loại, giống như cuộc sống Cơ Đốc, cùng đức tính nhu mì,dịu dàng, lương thiện thiên bẩm đã khiến cánh cửa cơ hội của cuộc sống luôn sẵn sàng rộng mở chờ đón họ. Họ là đứa con yêu của thần may mắn, đồng thòi cũng chính sự lương thiện, dịu dàng, chủ nghĩa không thích đấu tranh, giành giật, dễ dàng từ bỏ và chạy trốn, đã vô hình chung trở thành vũ khí chiến đấu lợi hại nhất. Thứ vũ khí siêu nhiên ấy sẽ khiến mọi người coi nhẹ và bỏ qua năng lực thực sự của họ. 
+ 
+ Cá tính hòa đồng, rộng lượng, dễ dãi cũng giúp Song Ngư dễ dàng kết bạn ở bất cứ nơi đâu. Họ không có ý chí kiên cường sắt đá, trong cơn sóng gió biến đổi của môi trường hoàn cảnh, mà giống như chú cá linh hoạt lưới mình theo chiều sóng. Đặc tính này khiến Song Ngư rất khó bơi ngược dòng thời đại và xu hướng chung. Họ không thích đấu tranh, giành đoạt, trong hoàn cảnh khó khăn thường áp dụng chiêu thức chạy trốn, không chạy trốn thì cũng đầu hàng. Một khi xuất hiện xung đột, họ dễ dàng thỏa hiệp hoặc tự mình chịu đựng đau khổ. Tính cách này khiến họ không thể theo đuổi các ngành nghề hoặc các hoạt động đòi hỏi sự mạnh mẽ, quyết liệt, cũng không muốn tranh đấu với kẻ khác. Đây cũng là lý do vì sao chúng ta khó tìm thấy bóng dáng của Song Ngư trong các lĩnh vực tàn khốc như chính trị hoặc kinh doanh. Có điều, một khi Song Ngư đã quyết định đi vào con đường nào, họ sẽ bơi nổi trên mặt nước giống như biểu tượng của chính mình. Sự nhạy cảm cao độ cùng trí tuệ uyên thâm sẽ đưa đường dẫn lối cho họ đi tới cảnh giới kiệt xuất phi phàm. 
+ 
+ Trí tuệ thiên bẩm đối với cuộc sống khiến Song Ngư dễ dàng nhìn xuyên thấu mọi hỉ nộ ái ố của nhân sinh, và mục đích cuối cùng của con người, vì vậy mà họ không có khát vọng chiếm hữu tình cảm cũng như vật chất một cách mãnh liệt, ước muốn tham vọng cũng không cao. Có lẽ trong cuộc sống thời ấu thơ, họ có vẻ chú trọng vật chất, nhưng tư chất thiên bẩm của loài động vật bơi lội trong nước lại khiến họ không thích xử lý những công việc của thế giới vật chất. 
+ 
+ Song Ngư không có ý thức về cái tôi cá nhân mạnh mẽ, lòng nhân ái, tính cách khoan dung, dịu dàng khiến họ nhanh chóng và dễ dàng quen biết cũng như kết thân với mọi tầng lớp con người. Trong tâm hồn và trí óc họ không tồn tại sự miệt thị, họ đối đãi với mọi người công bằng bình đẳng như nhau, không tính đếm, câu nệ tiểu tiết, có khả năng thay đổi bản thân để thích ứng với nhu cầu và đòi hỏi của người khác. Nhưng trong từ điển của Song Ngư lại không có hai từ " giới hạn", nên họ thiếu khả năng phân biệt, không có nguyên tắc đối nhân xử thế rõ ràng, cũng không chịu sự ràng buộc và quy phạm của hiện thực cũng như đạo đức. Họ thường không thể kiên trì với một lập trường và nguyên tắc nhất định, không kháng cự được mọi sự mê hoặc mà biến hóa khôn lường. Tính cách mơ mơ hồ hồ, hay thay đổi khiến Song Ngư trở thành một trong những chòm sao không đáng tin cậy nhất, khó nắm bắt nhất trong số 12 chòm sao. Bởi vậy, nó còn có một biệt danh khác là " Song Ngư giảo hoạt" 
+ 
+Thái độ "từ bỏ tất cả" đối với cuộc sống, tính cách khoan dung giống như "chuộc lỗi" có lẽ đã khiến những người sinh cung này sớm nhìn rõ mục đích thực chất của cuộc sống và chốn về bình yên thực sự cho cả đời người. Linh tính bẩm sinh tồn tại trong "con rồng đổi màu" giống như chiếc la bàn định vị trong sương khói mịt mờ huyễn hoặc, chỉ cần đi theo cảm giác của mình là có thể tránh khỏi mọi tai ương, hiểm họa một cách tài tình và kỳ diệu. Trong trạng thái mơ mơ hồ hồ, họ đi theo quy luật mặc định của vũ trụ, mà mọi thay đổi thường tình của cõi nhân gian không có ý nghĩa gì nhiều. Điều này đã lý giải khá dễ dàng kết quả điều tra của các nhà chiêm tinh người Thụy Sỹ, khi họ phát hiện trong hồ sơ thụ lý vụ án của cảnh sát, những người sinh cung Song Ngư có tỷ lệ vi phạm luật giao thông, do không mang bằng lái đạt con số cao nhất. Một Song Ngư hồ đồ thường xuyên buông quăng bỏ , luộm thuộm lôi thôi là một việc bình thường đến không thể bình thường hơn. Nhưng đồng thời, trong cùng bảng điều tra đó, người ta cũng phát hiện những người sinh cung Song Ngư có tỷ lệ bồi thường thiệt hại sau khi gây tai nạn giao thông là ít nhất.  
+ 
+ Trong cuộc sống hiện thực, khuynh hướng thất vọng, chán chường, đau khổ và bắt đầu mộng tưởng khi bản thân không thể thực hiện giấc mơ, đã khiến Song Ngư thường theo đuổi các ngành nghệ thuật và tìm quên trong tình yêu để chạy trốn sự thất vọng đối với thực tại. Thế giới tình cảm của họ vô cùng phong phú, rộng lớn. Trước khi tìm thấy bạn đời đích thực của mình, không biết bao lần Song Ngư ngụp lặn, nhảy ra nhảy vào đại dương ái tình. Họ cần một người bạn đời chín chắn, kiên định, đồng thời người đó phải thích ứng với thái độ và tinh thần thường xuyên thay đổi đa đoan, thậm chí phải chịu đựng phản ứng nhạy cảm thái quá của họ đối với mọi sự vật. Nếu bạn muốn tìm một người sinh cung Song Ngư, có lẽ bạn cần phải tiêu mất một số tiền nho nhỏ để mua hai chú cá. 
+ 
+ *Ưu điểm 
+Nhạy cảm, hòa đồng, dịu dàng, thích ứng với mọi sự thay đổi, có trí tưởng tượng cũng như hoang tưởng phong phú, có lòng đồng cảm, hiểu tình cảm và tâm lý của người khác, khoan dung, tình cảm phong phú, háo phóng, thân thiện, khiêm tốn, chủ nghĩa lý tưởng, có đức tính hy sinh, có khả năng tạo nghệ thuật cao, vui vẻ giúp đỡ người khác, vô cùng lãng mạn. 
+ 
+ *Nhược điểm 
+Con rồng đổi màu, trơn tru, không có lập trường, tính hai mặt, dễ bị rơi vào trạng thái hỗn loạn, dễ bị lừa gạt, trốn tránh đấu tranh , lười nhác, không rõ ràng, ý chí yếu đuối, không tích cực, phản ứng thái quá, không có logic, không trung thành, không đáng tin cậy, chủ quan chạy trốn. 
+ 
+ *Sở thích 
+ Khi Song Ngư quyết định đầu tư toàn bộ tình cảm và tinh lực của mình vào công việc, họ có thể đạt tới trạng thái làm việc tốt nhất. Do sự mẫn cảm và tâm địa lương thiện, hiền lành, họ rất giỏi trong việc chăm sóc, giúp đỡ mọi người, lý giải thấu đáo mọi công việc thuộc lĩnh vực của người khác, ví dụ như chữa trị các vết thương trong tâm hồn và linh hồn con người. 
+ 
+ Họ không thích hợp với những công việc đòi hỏi năng lực tổ chức, tư duy logic chặt chẽ. Do ý chí của họ tương đối yếu đuối, nên mọi công việc có tính chất cạnh tranh quyết liệt, hoặc phải chịu áp lực và nguy hiểm lớn đều không phù hợp với Song Ngư 
+ 
+Một Song Ngư với chủ nghĩa"ấn tượng" thường không nhạy bén với những con số, không thích các công việc phải thao tác máy móc, kế toán, thư ký, nên tốt nhất là họ không nên tham gia vào các ngành nghề như cổ phiếu, tiền tệ, phân tích khoa học. Họ quá hòa đồng, dễ thay đổi, sống ngày nào hay ngày đó, nên những công việc mang tính chất khô cứng, nghiêm ngặt đối với họ mà nói giống như cá trên mặt đất. 
+ 
+ Do chịu sự quản chiếu của sao Hải Vương - " kẻ sáng tạo hoang tưởng" nên Song Ngư có trí tưởng tượng vô cùng kiệt xuất, khả năng phản ứng nhanh nhạy, cảm giác tiết tấu rất tốt....những đặc điểm này giúp họ có khả năng trở thành thiên tài âm nhạc, nhà thơ, nhà soạn nhạc xuất chúng. Họ có khả năng sáng tạo và biểu đạt tuyệt vời nếu tham gia vào giới nghệ thuật . Bản lĩnh thay đổi giống "con rồng đổi màu" giúp họ trở thành diễn viên với phong cách diễn tự nhiên, có thể nhập bất kỳ vai nào một cách nhuần nhuyễn.Trong thực tế, rất nhiều ngôi sao điện ảnh nổi tiếng đều được sinh ra bởi Song Ngư.  
+ 
+
+ 
+♥ Tình yêu của Song Ngư
+ 
+*Khi Song Ngư đang yêu
+ Song Ngư đích thị là "đứa con cưng của tình yêu" bẩm sinh. Đối với Song Ngư mà nói, tình yêu là nguồn lương thực của cuộc sống. Họ chỉ có thể tồn tại trong biển cả của ái tình. Cuộc sống không có tình yêu, đối với họ mà nói, giống như chú cá nhỏ rời xa đại dương. Tình yêu ban tặng cho họ sinh lực cuộc sống tràn trề 
+ 
+Song Ngư dường như được sinh ra để làm người tình hoàn hảo, họ vô cùng lãng mạn, luôn khiến đối phương vui vẻ, có khả năng điều chỉnh theo nhu cầu của mối quan hệ. Mặc dù nhìn bề ngoài, họ có vẻ yếu đuối, tội nghiệp nhưng sức mạnh tình yêu sẽ giúp họ vươt mọi khó khăn, khắc phục và xử lý mọi vấn đề nan giải. 
+ 
+Trong tình yêu, đôi mắt hồn hậu và tính cách dịu dàng là vũ khí tuyệt mật và có sức công phá ghê gớm, nhờ đó Song Ngư dễ dàng khiến đối phương tự tay tháo bỏ mọi vũ trang kín đáo nhất của mình mà can tâm tình nguyện trở thành người tình nhỏ đáng thương như kẻ bị trúng tà. 
+Song Ngư ký thác mơ ước và lý tưởng của mình lên người mình yêu, nội tâm yếu mềm của họ không đủ sức chịu đựng mọi lời phê bình, chỉ trích nghiêm khắc. Họ mong muốn mãi mãi được sống trong sự lãng mạn và vô cùng phụ thuộc dựa dẫm vào đối phương về mặt tình cảm.Tính cách tự hoài nghi, nghiêng ngả, không vững vàng cũng khiến Song Ngư luôn đòi hỏi đối phương phải không ngừng khẳng định tình yêu với mình. Trong tình yêu, mọi đau khổ của Song Ngư cũng đều xuất phát từ mộng tưởng quá tươi đẹp, hoàn hảo. Trong thế giới diệu kỳ giống như ảo ảnh, họ dùng lăng kính màu hồng hoàn mỹ để nhìn nhận người yêu, nhưng hiện thực nhanh chóng phá hủy thế giới mộng tưởng của họ tiêu tan như bong bóng xà phòng. 
+ 
+
+ 
+*Song Ngư khi chia tay Nghề nghiệp của Song Ngư chính là tình yêu. Họ thường đi đến một mối quan hệ một cách vô thức. "chung thủy" là hai chữ khó tìm thấy trong từ điển của họ. Niềm đam mê đối với sự lãng mạn và đặc tính của " con rồng đổi màu" khiến họ không thể lý giải được ý nghĩa hiện thực của chữ :"chung thủy", " chân thành". Một khi cảm thấy cuộc sống quá thực tế, Song Ngư sẽ đánh mất ước mơ, bong bóng tình yêu vỡ òa và thế là họ liền từ giã người yêu một cách bất ngờ mà không thể lý giải, giống như chú cá giảo hoạt bơi theo dòng nước đại dương chuồn mất.Nhưng đồng thời, Song Ngư lại cũng là kẻ có lòng đồng cảm sâu sắc và biết nghĩ cho người khác nên họ thường ảo tượng dùng tình bạn thay thế tình yêu, nhưng kết quả thu được chỉ là sự việc thêm rắc rối và tồi tệ.
+Đối phương nếu muốn chủ động chia tay Song Ngư cũng không hề dễ dàng, một khi Song Ngư vẫn yêu thương đối phương, vì sự yếu đuối, dịu dàng và tội nghiệp của họ sẽ khiến "trời thương người cảm". Họ sẽ làm đối phương tin rằng, chỉ cần họ chịu cải thiện mối quan hệ, tình cảm sẽ lại nồng thắm như ban đầu. Có những lúc, đối phương đành phải dùng biện pháp mạnh cực đoan làm tổn thương họ để giải phóng cho chính mình. Một Song Ngư đang bị tổn thương sâu sắc lại có khả năng tự chữa trị và bình phục nhanh đến không ngờ, sự khoan dung cùng lòng bác ái đã khiến họ mau chóng tha thứ cho đối phương, để rồi lại vùng vẫy bơi lội tiến vào dòng sông tình yêu khác một cách khỏe mạnh như chưa từng bị thương 
+ 
+  Song Ngư vào nhà nè!!! 
+ 
+    
+ 
+ Song Ngư và tính cách của 11 sao Trong cung hoàng đạo, Song Ngư là cung xếp cuối cùng, biểu trưng cho cái chết và sự vĩnh hằng. Có lẽ vì thế nên Song Ngư thu nhận phần nào một chút tính cách của tất cả các cung trước. (một chút thôi nhé, Song Ngư vẫn là Song Ngư  )
+ 
+Không ngạc nhiên nếu ta nhận thấy ở Song Ngư sự phúc hậu và thẳng thắn của Nhân Mã 
+ 
+Sự tận tuỵ công tâm của Ma Kết
+ 
+Lòng kiêu hãnh và tươi vui của Sư Tử
+ 
+Sự nhanh nhẹn hoạt bát của Song Tử
+ 
+Thoáng lạnh lùng của Xử Nữ
+ 
+Sự khoan thai chậm chạp của Kim Ngưu
+ 
+Chủ nghĩa lý tưởng của Bạch Dương.
+ 
+Nét trong sáng của Thủy Bình
+ 
+Một chút mưu trí ma quái của Thiên Yết
+ 
+Đôi khi lại thể hiện sự công bằng của Thiên Bình
+ 
+Và sự chu đáo của Cự Giải...
+ 
+Trong con người Song Ngư hội tụ cả sở thích tranh cãi đặc trưng của các cung mệnh Khí, cả tình yêu thiên nhiên của các cung mệnh Thổ, và sự hào hứng sôi nổi của các cung mệnh Hoả. Tuy mang tính cách của tất cả các cung, Song Ngư vẫn là một bản chất riêng mình. Người cung này có khả năng xem xét bản thân dường như đứng từ ngoài nhìn vào, cùng lúc thấy được hôm qua, hôm nay và cả ngày mai.
+ 
+
+ 
+Tất tần tật về con gái Song Ngư 
+ 
+ 
+_ Nữ song ngư hướng nội, nhạy cảm, dễ cảm thông với người khác nhưng ít biểu lộ cảm xúc của mình.
+ 
+_Nữ Song Ngư không phải là những người chi tiền vô thức  
+ 
+_ Nữ Song Ngư trong sự nghiệp khó tiến xa vì thiếu tính thực tế
+ 
+_ Nữ song ngư không giỏi cạnh tranh vì sống tình cảm
+ 
+_ Nữ Song Ngư cũng không thích bị quản lí cho dù họ có yêu bạn hơn trời đất
+ 
+_ Chỉ số duyên ngầm của nữ Song Ngư là khá cao  
+ 
+_ Nữ Song Ngư không phải mẫu người cam chịu
+ 
+_ Không hề có chuyện nam giới đàn áp được họ như kiểu phân biệt nam nữ, chỉ là họ cố tình nhường thôi
+ 
+_ Nữ Song Ngư là những người thích ăn vặt nếu gặp stress
+ 
+_ Để yêu một nữ song Ngư hãy học tính kiên nhẫn
+ 
+_ Nữ Song Ngư thường hay tự biến mình thành nạn nhân
+ 
+_ Không nên quá tin nữ Song Ngư một cách mù quáng, họ rất hay giả ngốc thôi chứ rất khôn ngoan ~.~
+ 
+_ Nữ Song Ngư sẽ rất quí những ai nhớ ngày sinh của họ, hoặc những ngày quan trọng liên quan
+ 
+_Nữ Song Ngư có nụ cười “rất thật”
+ 
+_ Có thể dễ nắm bắt một nữ Song Ngư nếu bạn biết một bí mật sâu thẳm của họ
+ 
+_ Giống như đại dương, nữ Song Ngư cho người ta cả giác bao la, thoải mái nhưng khó hiểu (tâm tư sâu như biển)
+ 
+_ Nữ Song Ngư đa sầu đa cảm
+ 
+_ Nữ Song Ngư không giỏi về vấn đề tiền bạc
+ 
+_ Khi ai đó phản bội niềm tin của họ, nữ Song Ngư có thể biến thành một người vô cảm trước kẻ đó
+ 
+_ Nhược điểm: khá tinh vi 
+ 
+Nguồn: Sưu tầm

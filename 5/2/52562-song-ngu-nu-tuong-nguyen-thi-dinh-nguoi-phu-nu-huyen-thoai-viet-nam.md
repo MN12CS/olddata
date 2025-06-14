@@ -1,0 +1,31 @@
+---
+title: "[Song Ngư] Nữ tướng Nguyễn Thị Định - Người phụ nữ huyền thoại Việt Nam"
+date: 2025-06-13T13:47:25Z
+slug: song-ngu-nu-tuong-nguyen-thi-dinh-nguoi-phu-nu-huyen-thoai-viet-nam
+draft: false
+---
+
+## [Song Ngư] Nữ tướng Nguyễn Thị Định - Người phụ nữ huyền thoại Việt Nam
+
+## lonelygirl
+
+​Nữ tướng NGUYỄN THỊ ĐỊNH​Người phụ nữ huyền thoại Việt Nam​ ​ Bà Nguyễn Thị Định sinh ngày 15-3-1920 trong một gia đình nông dân giàu lòng yêu nước tại xã Lương Hòa, huyện Giồng Trôm, tỉnh Bến Tre.
+ 
+Năm 1936, mới 16 tuổi, bà đã được anh ruột giác ngộ cách mạng, đảm nhận nhiệm vụ giao liên, rải truyền đơn và tham gia vận động quần chúng đấu tranh. Năm 1938, bà lấy chồng là Tỉnh ủy viên Bến Tre. Lúc bà sinh con được 3 ngày, chưa kịp đặt tên thì chồng bà bị bắt đày ra Côn Đảo. Vài tháng sau, vào ngày 19-7-1940, sau khi bế con đi thăm chồng về, do mật thám chỉ điểm, bà bị địch bắt giam ở Khám Bến Tre, chúng buộc bà gửi con về quê, rồi bắt đi đày ở nhà tù Ba Giá, một nơi rừng sâu nước độc, giáp giới Campuchia. Nhà tù này có tiếng là “có đi không về” vì muỗi độc, vắt, voi, cọp, nhất là cọp người là bọn Tây râu xồm, cai đội người Việt. Chúng tìm mọi cớ tra tấn tù nhân, khiến thân thể họ lúc nào cũng bầm tím. Cuối năm 1943, do bị đau tim nặng bà mới được phóng thích. Trở về nhà chưa kịp lành vết thương tù tội, bà được tin chồng bị tra tấn khốc liệt đã chết ngoài Côn Đảo. Sau khởi nghĩa năm 1945, bà cùng Tư lệnh LK8 ra báo cáo với Bác Hồ và Chính phủ về tình hình Nam Bộ sau Hiệp định sơ bộ và xin viện trợ vũ khí. Trở về Nam một mình cùng với vũ khí, đánh lừa giặc bằng ghe thuyền nước mắm, bà đã vượt biết bao sóng gió biển khơi và mạng lưới dày đặc của kẻ thù chăng vây. Cuối cùng cuộc vận chuyển vũ khí đã về đến nơi an toàn. Cũng nhờ đó mà chiến tranh du kích ở Nam Bộ có những bước chuyển biến rõ rệt.
+ 
+​Nữ tướng Nguyễn Thị Định và Chủ tịch Cuba Fidel Castro.​ 
+Sau năm 1954, bà nhận lệnh ở lại miền Nam và được chỉ định vào Thường vụ Tỉnh ủy bí mật Bến Tre nên đành phải dứt ruột gửi con trai duy nhất của mình ra Bắc học tập. Lúc này bản Hiệp định Giơnevơ chưa ráo mực, Mỹ đã thúc ép Pháp phải chấp nhận chế độ Ngô Đình Diệm lập ra chính quyền tay sai phản động ở Sài Gòn. Nhà tù mọc lên như nấm. Những người kháng chiến đều bị bắt bớ đàn áp, giam cầm. Trong thời kỳ khó khăn ác liệt ấy, bà đã phải cải trang, đóng nhiều vai, khôn khéo tìm cách hòa nhập vào dân để lãnh đạo phong trào, chờ thời cơ nổi dậy. Lúc này cũng là lúc Nghị quyết Hội nghị Trung ương 15 gửi vào, soi sáng cho con đường tiến lên của Cách mạng miền Nam, phong trào Đồng khởi nổ ra như tiếng sét dội xuống đầu kẻ thù. Cuộc Đồng khởi đầu tiên diễn ra ở 3 xã Định Thắng, Bình Khánh, Phước Hiệp (Bến Tre) rồi nhanh chóng lan ra các nơi khác ở Nam Bộ. Trong lúc bà đang hăng hái phấn khởi lao vào nhiệm vụ thì một nỗi đau khác lại ập đến: cháu On (tên khác là Nguyễn Ngọc Minh), con trai bà, bị bệnh mất ngày 4-5-1960. Phong trào Đồng Khởi đang bước vào đợt hai, nên bà lại phải nén nỗi đau để lãnh đạo phong trào đang sôi sục khí thế. Tính đến cuối năm 1960, trong số 1.296 xã toàn Nam Bộ thì có đến 800 xã do nhân dân làm chủ với mức độ khác nhau. Văn kiện “50 năm thành lập Đảng Cộng sản Việt Nam” đã nhận định sự kiện này: “Thắng lợi của phong trào Đồng khởi đã tạo một bước ngoặt có ý nghĩa chiến lược, làm thay đổi cục diện, làm một đòn bất ngờ giáng vào chiến lược Aixenhao, làm thất bại một hình thức điển hình của Chủ nghĩa thực dân mới của Mỹ…”. Đội quân làm nên phong trào Đồng khởi chính là những phụ nữ miền Nam kiên cường, trung hậu, đảm đang do bà Nguyễn Thị Định lãnh đạo.
+ 
+Thượng tướng Trần Văn Trà lúc ấy đã đánh giá vai trò của bà Nguyễn Thị Định như sau: "Chị Ba Định là người trực tiếp nhận nhiệm vụ của cấp trên, trực tiếp chỉ đạo triển khai tiến hành cuộc Đồng khởi ở Bến Tre. Khi nghiên cứu cụ thể và có hệ thống về cuộc Đồng khởi nổi tiếng này, tôi không khỏi ngạc nhiên về tài tổ chức, huy động lực lượng, về trình độ vạch kế hoạch và triển khai thực hiện, về nghệ thuật lãnh đạo và ứng phó với tình hình…"."Rõ ràng qua phong trào này nổi bật lên tài thao lược, ý chí cao, nghệ thuật điều hành của người chỉ huy đội quân tóc dài: Vừa hình thành tổ chức, vừa tác chiến ngay tại chiến trường vô cùng phức tạp…"
+ 
+Chính nhờ thắng lợi này mà ngày 20-12-1960, Mặt trận Dân tộc giải phóng miền Nam ra đời, góp phần không nhỏ vào sự nghiệp cách mạng giải phóng miền Nam.
+ 
+Trước tình hình này, Đại tướng Nguyễn Chí Thanh, Ủy viên Bộ Chính trị TW Đảng được phái vào làm Chính ủy Bộ chỉ huy Miền. Ông mang theo Quyết định của Bác Hồ và Bộ Chính trị, rút bà lên làm Phó Tổng tư lệnh các lực lượng vũ trang giải phóng miền Nam. Có một trung tướng kể lại một chi tiết khá thú vị: "Ở Bộ Tư lệnh Miền, chị vừa đảm nhận chức trách của một Phó Tổng tư lệnh, vừa là một nữ chủ nhân của một gia đình gồm cả các tướng lĩnh, các sĩ quan và các cô, các chú binh nhất, binh nhì. Chị lo cho mọi người từ miếng ăn, manh áo, liều thuốc. Các cô y tá cấp dưỡng thường tíu tít quanh chị nhận những lời khuyên nhủ, dạy bảo của một bà mẹ hiền…"
+ 
+Trong cuộc Tổng tiến công và nổi dậy mùa xuân 1968, với tư cách là Hội trưởng Hội Liên hiệp phụ nữ giải phóng miền Nam, bà Nguyễn Thị Định đã lãnh đạo đội quân tóc dài làm nên những chiến công lừng lẫy.
+ 
+Với những đóng góp lớn lao trên, tháng 4-1974, bà được phong Thiếu tướng. Sau ngày giải phóng miền Nam, bà được Đảng, Nhà nước và các tổ chức quốc tế trao tặng nhiều phần thưởng cao quý: Huân chương Hồ Chí Minh, Huy hiệu Hồ Chí Minh, Huân chương Quyết thắng hạng Nhất, Giải thưởng Hòa bình quốc tế Lê-nin, Huân chương Liên đoàn phụ nữ dân chủ thế giới, Huân chương của Nhà nước Lào, Huân chương BLQYQ Giron Far Solidaridal và Mariam Graj als của Nhà nước Cuba.
+Ngày 30-5-1995 bà Nguyễn Thị Định được Chủ tịch nước Cộng hòa xã hội chủ nghĩa Việt Nam tặng danh hiệu Anh hùng Lực lượng vũ trang nhân dân. Bà thật xứng đáng trở thành nhân vật huyền thoại như lời của Bác Hồ: "Phó Tổng tư lệnh quân giải phóng miền Nam là cô Nguyễn Thị Định. Cả thế giới chỉ có nước ta có vị tướng quân gái như vậy. Thật là vẻ vang cho cả miền Nam, cho cả dân tộc."
+ 
+Nguồn: Báo Ninh Thuận
+ ​Trung thu vui vẻ. ​

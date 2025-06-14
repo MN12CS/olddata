@@ -1,0 +1,12 @@
+---
+title: "vâng tôi là 1 thiên bình"
+date: 2025-06-12T23:46:41Z
+slug: vang-toi-la-1-thien-binh
+draft: false
+---
+
+## vâng tôi là 1 thiên bình
+
+## kiaconheo
+
+Kính chào toàn thể quý zị thân mến , tui 1 cung thien bình nhỏ nhắn xinh xắn , tính tình thẳng thắn , hay nói thẳng zo mặt dối phương , thik cãi lý , lại rất nhiều chuyện , cười nói như cái máy , nhưng tâm tư thì lại muôn vàn suy nghĩ , dắn do , nhưng dc cái luôn hết mình vì ng khác .. nên dâm ra bị ngu , tính tui rất thích dông zui , hay di lung tung , lại ít khi nào nhận mình sai , ai nói tui sai tui sẽ cãi lại liền , trừ khi tui cảm thấy tui sai thì tui sẽ xl nhé , diều tui thích nhất là dc vui vẻ cùng nhưng ng tui iu mến , ghét nhất phải dính tới những ng mà tui ko ưa , tuy tui hay nói nhưng tui sẽ ko làm phiền những ai dã di ngang dời tui ... vì di wa rùi thì ko gặp lại dc nên thôi trả lại bầu trời cho quý vị , có lẽ 1 thiên bình như tui chưa phải là 1 ng tốt vì tui hay lo xa , do dự và chả bao giờ quyết doán dc việc gì nên khiến cho quý vị bị ức chế dâm ra diên với tui , nhưng quý vị hãy hiểu cho rằng chì vì tui suốt ngày phải suy nghĩ làm gì dể ko tổn thương quý vị nên tui mới như thế , nhiều ng nói tui lăng nhăng , xin thưa vâng tôi lăng nhăng nhưng quý vị nên nhìn lại cho kỹ nhé và xem thế nào gọi là lăng nhăng , bản tính tui ko thjk làm phiền lòng ai lun vui vẻ thân thiết với mọi ng thì quý vị lại kiu tui lăng nhăng , nhưng quý vị cũng dâu thua gì tui zậy sao nghĩ tui như thế ... tui tuy nhiều chuyện nhưng quý vị nên bik tui ko bao giờ dâm sau lưng quy vị và chả bao giờ làm gì hãm hại quý vị , tui luôn sẵn sàng bên quý vị khi quý vị cần , nhiều khi tui dở hơi ôm lun chuyện của quý vị vào ng dể rùi tự mình hại mình , nhưng dâu phải ai cũng bik dc diều dó dúng ko ....khj ở bên thien bình tui , quý vị sẽ thấy dc 2 con ng của tui , mỗi lần gặp tui quý vị luôn cười suốt , bỗng 1 lúc nào dó quý vị thấy tui im lặng thì xin thưa lúc dó là lúc tui cảm thấy suy sụp và khổ tâm nhất , diều tui cần ở quý vị là 1 chỗ dựa dể tui có thể ngả vào trút mọi nỗi bùn và cần quý vị lắng nghe và nói với tui rằng tui sẽ ko sao .......... tui 1 cô gái thiên bình luôn nở nụ cười chào dón mọi ng dù mọi ng có làm tổn thương tui dến dau , tui cũng sẽ tha thứ , dối với tui , tui cần thêm 1 ng bạn chứ ko muốn mất di 1 ai dó , nên xin thưa nếu có ai từng di ngang dời tui thì hãy trở về bên tui như 1 ng bạn nhé ......vì tui trân trọng tất cả mọi ng ........ thiên bình là thế ngu ngốc và rất khờ , nên xin quý vị dừng bao giờ làm tổn thương tui vì trái tim tui dễ bị tổn thương lắm....

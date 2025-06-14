@@ -1,0 +1,12 @@
+---
+title: "Bạch Dương muôn phần khó hiểu"
+date: 2025-06-13T13:13:09Z
+slug: bach-duong-muon-phan-kho-hieu
+draft: false
+---
+
+## Bạch Dương muôn phần khó hiểu
+
+## Asa Rihanna Colyun
+
+Bạch Dương muôn phần khó hiểu​ ​Tâm lý của Bạch Dương thường chênh vênh, khó hiểu, không ổn định và cho dù có cố tỏ ra là “không cần ai ta cũng làm tốt” nhưng chính Bạch Dương lại cần rất nhiều bạn bè hoặc người thân xung quanh để giúp họ cân bằng.​ ​ Nói điều này thực sự lạ nhỉ, khi mà rõ ràng Bạch Dương là đứa có thể tự-mình-làm-mọi-việc. ​ ​ Nhưng Bạch Dương là thế. Có bao giờ người tiếp xúc với họ tự hỏi, sao Bạch Dương lại có thể tự-mình mà vẫn sống tốt như vậy hay chưa ?.​ ​ Trong cách suy nghĩ, lẫn trong cách hành động, lúc nào Bạch Dương cũng trái ngược và mâu thuẫn với nhau hết, khiến bản thân họ, lẫn người tiếp xúc đôi khi cũng vô phương mà cảm thấy khó hiểu đến khó chịu. ​ ​ Bạch Dương vốn chỉ là một đứa trẻ, từ suy nghĩ đến mọi hành động.Như một đứa nhỏ bị đói, hay muốn được thứ gì đó, nó sẽ khóc òa lên muốn người ta chú ý đến mình, cho mình được ăn, được chơi cùng....​ Nhưng đứa trẻ này cũng rất lạ, nếu nó được quan tâm, thì thật thích, nhưng nếu nó bị bỏ mặc, bị lơ đi, thì một lần, hai lần, ba lần, nó dần trở nên "tự ta mò đi kiếm đồ ăn, tự ta làm cho xong..." một cách giận - dỗi. Giận dỗi vì ta không thèm nhờ ai nữa, ta có tay có chân, tự ta làm được mà. ​ ​ Thật ra, Bạch Dương chưa bao giờ cảm thấy oán trách ai cả. Một đứa-trẻ-có-suy-nghĩ-khá-trưởng-thành. ​ ​Bạch Dương ít ghét, và ít hận một người nào đó. Thật ra, là vì nó lười phải lưu tâm đến người nó không muốn lưu tâm mà thôi, đối với nó, dù sao, bản thân an nhàn vẫn là nhất, vì cớ gì ta phải nhét một người khiến ta phải vận dụng đầu óc để mà nghĩ xấu về họ quá nhiều cơ chứ. ​ ​Khi Bạch Dương buồn hoặc bị tổn thương, Bạch Dương sẽ tự lập, sẽ tự một mình. Chỉ là, Bạch Dương nhận ra bản thân đã không đủ tốt (mặc dù nó vẫn nghĩ muôn phần là nó quá tốt rồi). Nhưng vì sĩ diện và cái tôi to lớn, chẳng thể hiện ra, lại càng khiến người tiếp xúc cảm thấy nó cao ngạo rồi dần xa lánh nó. Như vậy lại càng khiến nó tự mình yêu thương chính mình hơn gấp bội... ​ ​ Vì Bạch Dương luôn có suy nghĩ "Bản thân ta không biết tự yêu thương ta, thì thật có lỗi với chính ta mà".​ ​Nguồn : #‎Ynna - Giải mã Bạch Dương Aries ​ ​

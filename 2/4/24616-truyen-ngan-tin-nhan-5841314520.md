@@ -1,0 +1,37 @@
+---
+title: "[Truyện ngắn] Tin nhắn \"5841314520\""
+date: 2025-06-12T23:07:33Z
+slug: truyen-ngan-tin-nhan-5841314520
+draft: false
+---
+
+## [Truyện ngắn] Tin nhắn "5841314520"
+
+## LibraRachel
+
+"Anh nhắn cho em một tin nhắn, trong đó chỉ vỏn vẹn một dãy số 5841314520. Em thắc mắc không hiểu anh muốn nhắn nhủ gì. Câu truyện này sẽ thay cho lời giải thích..."
+
+
+Mùa đông năm đó, có một người tìm tới một trường mỹ thuật ở Thượng Hải để tham gia một khoá bồi dưỡng về kỹ thuật làm tranh sơn dầu. Đi tìm sự lãng mạn ở một thành phố lãng mạn – dó chính là động lực thôi thúc tôi đến Thượng Hải.
+
+Để có thêm tiền chi phí cho cuộc sống và học tập, tôi tìm được việc làm thêm ở một công ty kinh doanh dịch vụ internet. Ban đầu thì chỉ làm những việc lặt vặt, dần dần nhờ vào vốn kiến thức sẵn có và trình độ của mình, tôi cũng trở thành một biên tập viên. Trước đây, tôi sống trong ký túc xá – một căn phòng vừa đông vừa chật. Sau khi có việc làm, có chút dư dả, thế là không đơi phải đuổi, tôi liền thuê một căn phòng ở rất xa trường, mỗi sáng ngủ dậy có thể hoan hỉ tự do hít thở không khí trong lành.
+
+Thế nhưng, tự do bao giờ cũng có cái giá của nó, buổi tối mất ngủ vì công việc ở công ty, sáng dậy lại vội vàng đi học trên chuyến xe buýt đầu tiên. Mất ngủ nghiêm trọng đã làm cho tôi mất hẳn nét tươi tắn của tuổi thanh xuân. Dần dần, việc hoan hỉ sau mỗi sáng thức dậy được thay thế bằng việc ngủ gật trên xe buýt, cũng vì ngủ gật mà tôi thường xuyên bị đi quá bến. Tôi còn nhớ dạo đó ở lớp có một cô gái rất xinh, duyên dáng đến làm người mẫu vẽ, mỗi lần tôi đến muộn, mở cửa vào phòng, mang theo những luồng gió lạnh làm cho cô ta rét run lên. Nhìn ánh mắt giận dữ của cô ta, tôi cũng tự giận mình làm sao trên xe buýt lại có thể say đến như vậy.
+
+Tôi cũng không nhớ từ bao giờ, cái ghế vẫn thường để trống cạnh chỗ tôi ngồi nay đã có một nam thanh niên ngồi vào đó, hình như anh ta lên sau tôi mấy bến, và ngày nào cũng đi chuyến đầu tiên. Cũng không biết từ bao giờ, anh ta trở thành người đảm nhận trách nhiệm đánh thức tôi. “Cô gái, tỉnh dậy đi, đến bến rồi đó”. Cứ như vậy, anh ta nhẹ nhàng thì thầm bên tai tôi, còn tôi thì toàn là trong mơ màng gà gật nên cũng quên mất là nhìn kỹ xem dung nhan anh ta ra sao.
+
+Có một hôm, trước khi lên xe tôi mua một tờ “Tân dân buổi tối”, định là xem rồi đợi anh ta đến, trong trạng thái tỉnh táo sẽ nói lời cảm ơn anh ta. Thế nhưng cứ vừa cầm tờ báo định đọc là hai mắt tôi cứ muốn díp vào khong cưỡng lại được, thế là tôi lại ngủ. Lúc anh ta lên xe thì tờ báo đang che trên mặt tôi, tôi lơ mơ thấy anh ta nhẹ nhàng lấy tờ báo ra rồi khe khẽ giở xem. Bất giác một làn gió nhẹ thoảng qua, mùi mực in và tiếng sột soạt giở báo như bao trùm quanh tôi, trong trạng thái mơ màng, tôi có cảm giác vô cùng dễ chịu, tưởng như mình đã ngủ được mấy trăm năm vậy. Sắp tới bến, anh ta quen lệ cúi xuống khẽ gọi tôi tỉnh dậy, tôi mở mắt thấy anh ta đang nhìn tôi, rất gần, ánh mắt trong veo nhấp nháy như đang cười. Tự dưng trong đầu tôi chợt nhớ đến câu chuyện “Người đẹp ngủ”, nghĩ mình là nàng công chúa đang ngủ, còn anh ta…, thế là tôi đỏ bừng mặt tự mắng mình một câu: “Thần kinh!”, rồi cầm tờ báo xuống xe. Lúc ra đến cửa xe, bất giác tôi ngoái đầu lại, hay là mình nhầm? Trong đôi mắt đó dường như đang ẩn chứa một điều gì đó, nét thân thiện, tươi cười như toát ra một niềm hy vọng đang trào dâng.
+Cuộc sống cứ bình yên trôi qua như vậy. Cho đến một hôm, công ty giao cho tôi chịu trách nhiệm biên tập phần văn học trên mạng. Tôi hăm hở tìm, tham khảo những bài viết của cộng tác viên gửi đến. Bất ngờ, tôi bị thu hút bởi một bài viết vừa thoáng xem qua có tên “Người đẹp ngủ của tôi”, một chút tò mò đã thôi thúc tôi đọc bài viết đó, từng chữ, từng chữ...
+
+“Ngắm nhìn cô ấy hơn một giờ đồng hồ, đó là những giây phút hạnh phúc nhất trong ngày của tôi. Tôi nghĩ tôi đã yêu cô ấy… Hàng ngày chúng tôi đều gặp nhau trên xe buýt, mỗi ngày tôi đều được. Trên xe cô ấy luôn luôn ngủ, vì vậy tôi nghĩ cô ấy sẽ không nhớ dung mạo của tôi, còn tôi, trong những cơ hội gặp mặt đó tôi đều nhớ rõ hình dáng, từng cử chỉ của cô ấy. Ấn tượng của tôi về cô ấy vô cùng thanh khiết, trong trắng, trong trắng đến nỗi không thể diễn tả bằng ngôn ngữ, tôi chỉ có thể nói: trong lúc cô ấy ngủ, cô ấy là Người đẹp ngủ của tôi… Có một lần, trong lúc ngủ say, cô ấy đã dựa đầu vào vai tôi, những sợi tóc của cô ấy vương vào mặt tôi và tôi sẽ nhớ mãi cái cảm giác ngọt ngào ấy. Những câu chuyện như vậy giữa chúng tôi thì nhiều, nhưng tôi lai không dám nói với cô ấy một câu nào khác ngoài những câu gọi đánh thức cô ấy tỉnh dậy, sau đó cô ấy đi và tôi lại chờ đợi một cuộc gặp gỡ ngày hôm sau… Tôi không biết làm thế nào để được gần cô ấy hơn, bởi tôi sợ cô ấy sẽ coi thường tôi là một người nhạt nhẽo, mất lịch sự, nhưng tôi lại không có cách nào ngăn được mong muốn có được mối quan hệ tốt đẹp với cô ấy. Còn nhớ cô ấy đã từng đọc “Tân dân buổi tối”, lại nghe nói lần này sẽ tuyển chọn một số bài viết hay để đưa lên mạng và đăng trên “Tân dân buổi tối”, vì vậy với một chút hy vọng cô ấy có thể đọc được điều tôi muốn nói với cô ấy, như thế là đã có hy vọng, đã có lý do”. Khi đọc đến hai câu đó, tôi thật sự bị sốc bởi ngạc nhiên, dường như không thể tin được, tôi tự hỏi chính mình: Phải chăng là anh ta, là anh ta thật sao? Đây có phải là linh ứng chăng, anh ấy cũng nói tôi là Người đẹp ngủ của anh ấy. Thế nhưng câu cuối cùng chỉ vẻn vẹn có mấy chữ, anh ta kêu lên một cách hạnh phúc thì lại dập tắt niềm hạnh phúc vừa nhen nhóm trong tôi. Anh ta viết “Tình yêu trên xe buýt của tôi, 520”, mà tôi hàng ngày lại đi chuyến xe 47. 47 trừ 520 đáp số là một số âm, tại sao từ những tình tiết nhỏ lại đúng như thế, nhưng kết quả lại khác xa như vậy?
+
+Khoá bồi dưỡng đã sắp kết thúc, tác phẩm tốt nghiệp của tôi là bức tranh “Người đẹp ngủ không muốn thức dậy”. Cô gái ngủ với nét buồn man mác không muốn tỉnh dậy, vĩnh viễn như vậy để trong giấc mơ có thể thấy được tất cả những gì đẹp đẽ nhất, không bao giờ mở mắt để không phải đối mặt với sự thất vọng. Tôi đã dùng bức tranh để minh hoạ cho bài viết đó đăng trên “Tân dân buổi tối”. Sau đó thu dọn đồ đạc, rời Thượng Hải, rời xa giấc mơ ảo tưởng.
+
+Tôi cũng không nhớ sau đó bao lâu thì tôi quen bạn trai của tôi bây giờ, anh ấy là một người mạnh mẽ. Tôi cần ở anh đức tính dám làm, dám chịu và tôi cảm động bởi tình cảm chân thành, thẳng thắn ở anh.
+
+Hôm đó là ngày lễ Tình yêu, anh nhắn vào máy nhắn tin của tôi một dãy số kỳ lạ: 5841314520. Đây không phải là số máy nhắn, cũng không phải là số di động, tôi nghĩ nửa ngày vẫn không hiểu những số đó có ý nghĩa gì bèn cầm đi hỏi đồng nghiệp trong công ty. Cuối cùng, cũng có một cô gái trẻ tìm ra đáp án: “ Đây là một câu nói lái rất hay mà: 584 là “anh xin thề”, 1314 là “suốt đời”, 520 là “anh yêu em”!.
+
+520… 520… Tự dưng tôi có cảm giác những chữ số này rất quen, đã từng nhìn thấy ở đâu đó, ở đâu vậy nhỉ? Kí ức chợt hiện về và tất cả đã rõ ràng, chỉ có điều đã quá muộn.
+Thực ra, có thể vẫn chưa muộn, trong trái tim của “Người đẹp ngủ” cuối cùng cũng có hy vọng, cuối cùng cô gái đó cũng thức dậy và chỉ cần cô ấy thức dậy, nhất định cô ấy sẽ không còn thấy thất vọng.
+
+P/S: Cách nói lái của dãy số 5841314520 có nghĩa: Trong tiếng Hán cách phát âm của 584 (wu ba si)gần với cách phát âm của câu “anh xin thề” (wo fa shi )tương tự như vậy 1314 (yi san yi si) phát âm giống “suốt đời” (yi sheng yi shi); 520 (wu er ling) phátâm gần giống câu “anh yêu em” (wo ai ni).

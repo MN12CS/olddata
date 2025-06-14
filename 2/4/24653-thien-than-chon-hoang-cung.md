@@ -1,0 +1,17 @@
+---
+title: "Thiên thần chốn hoàng cung"
+date: 2025-06-12T23:08:25Z
+slug: thien-than-chon-hoang-cung
+draft: false
+---
+
+## Thiên thần chốn hoàng cung
+
+## Kaz tjhngjch ng0zngech
+
+Tác giả: o0o Babymelody o0o và Kaz tjhngjch ng0zngech 
+Thể loại: cổ đại
+Rating: 15+
+ 0o0~0o0Nhân vật0o0~0o0 Xử Nữ- Đại công chúaLà đại tỷ nên khá nghiêm khắc và mẫu mực, rất tốt bụng và thông minh. Hơi cầu kì về những chuyện như vệ sinh, ăn uống, v.v. Xinh đẹp, cầm kì thư hạo đều giỏi. Riêng, không có võ(công chúa mà) Song Tử- dân “đen”Là 1 cô gái khá bướng bỉnh và ngang tàn, chơi thân với Bảo Bình từ nhỏ tới lớn. Cầm kì thư họa thì không giỏi mấy(nhưng có biết), võ công thì điêu luyện vô cùng. Là 1 nữ hiệp trên giang hồ Bảo Bình- dân “đen”Bướng bỉnh và ngang tàn không kém Song Tử(bạn thân mà). Tính tình khá dễ chịu nhưng cũng rất dễ “điên”. Cầm kì thư họa thì chả biết tí gì nhưng vô cùng tinh thông võ nghệ- nữ hiệp đó. Hai nàng thù dai vô cùng Thiên Yết- Tứ công chúaNói sao nhỉ, à, nàng Thiên Yết này rất khác với những Thiên Yết mọi người thường đọc. Nàng này lại khá vui tính và trẻ con. Cầm kì thư họa hơi đoãng, võ công cũng không thua kém ai(học trộm) Song Ngư- Ngũ công chúaHơi đỏng đảnh và rất hay làm nũng. Nhẹ dạ và hơi tin người quá đáng. Võ công thì chẳng biết gì nhưng cầm kì thư họa khó ai qua nổi(kể cả Xử Nữ). Hơi hiền và đối xử tốt với mọi người Thiên Bình- Quan y dược Là người con gái đầu tiên làm quan. Rất tinh thông các loại thuốc, nhớ dai nên tìm và phân loại thuốc chính là tài năng của nàng. Hơi chăm chút vẻ bề ngoài nhưng rất “hiền” Nhân Mã- Quan tam phẩmĐúng như cái tên của mình- Nhân Mã, chàng là 1 người rất yêu thích ngựa. Loại ngựa quý nào chàng cũng có. Tính tình thì hơi khác với các Nhân Mã kia, chàng thì trầm lặng và ít nói hơn, võ công khó ai sánh được Bạch Dương- Tam vương giaLà 1 chàng trai khá nóng nảy và gan dạ. Đã gặp và yêu quý 1 cô nương rất tuyệt vời. Tốt bụng và thông minh, võ công cái thế, cũng có tiếng trên giag hồ nhờ cái máu gan dạ và “anh hùng cứu mỹ nhân” Ma Kết- Hoàng thượng(Nhị thái tử)Điềm đạm và vô cùng sắc bén từ lời nói đến cử chỉ. Ai nói Hoàng thượng thì ham vui và háo sắc chứ? Đây, chàng đây vẫn chưa có nàng nào nâng khăn sửa túi đấy! Võ công không thua kém Tam đệ mình Kim Ngưu- dân “đen”Đây, nghĩa hiệp vô cùng và rất thương dân lành. Cướp của nhà giàu và quan tham ô để chia cho dân nghèo cực khổ. Võ công khỏi chê, rất được mến mộ(trừ bọn nhà giàu và gian thần) Sư Tử- Quan tam phẩmLà bằng hữu đánh cờ của Hoàng thượng và cưỡi ngựa với Nhân Mã. Rất có hào khí anh hùng, lúc nào cũng bột chột và nóng nảy. Chả nghe lời ai trừ 1 người và võ công thì trên cả tuyệt Cự Giải- dân thường
+Là 1 nông dân nghèo, có quan hệ hằng hữu với Hoàng thượng (chuyện này sẽ nói trong truyện). Rất hiền lành và tốt bụng nhưng không dể bị ăn hiếp đâu nhé. Võ công cực kì thâm hậu
+  eiadfgCouple`hcb^_eiadfgChap1`hcb^_eiadfgChap2`hcb^_

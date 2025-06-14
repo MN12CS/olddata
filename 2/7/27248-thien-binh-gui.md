@@ -1,0 +1,17 @@
+---
+title: "thiên bình gửi ...."
+date: 2025-06-12T23:53:21Z
+slug: thien-binh-gui
+draft: false
+---
+
+## thiên bình gửi ....
+
+## lybrabtob
+
+tại sao anh hay khen người con gái khác trước mặt em nhỉ? e bik a của e vô tư lắm, chắc ko cố ý làm em bùn đâu. nhưng a có hiểu cảm giác của e lúc ấy ko? vừa tức giận vừa thấy ghét a vô cùng. e từng nói vs a nếu a làm j sai sau một đêm ngủ dậy e sẽ quên hết, e ít khi để tâm tới những điều nhỏ nhặt, nhưng ko phải e vô tâm tới ngốc nghếch đâu. nếu như e kể lể về một hotboy trường e a sẽ cảm thấy thế nào? chắc cảm giác của a ko giống e, nhưng cả hai trong hoàn cảnh đó đều cảm thấy khó chịu phải hok?
+a yêu cái đẹp e có thể hiểu, đó là thiên hướng chung của con người mak. e ko hề để bụng nếu a khen một cô gái đẹp chỉ vì ở cô ấy có những đường nét nghệ thuật mà tạo hóa đã ban tặng khiến cho tất cả những ng con trai (có cả a) phải trầm trồ ao ước. nhưng a à...những lúc như thế e cảm thấy bất an lắm, điều đó khiến e muốn buông tay vs a. có phải e đã xé chuyện bé ra to hay o? nhưng lúc đó trong đầu e chỉ hiện lên câu nói:"chia tay đi a". a nói e xóa 2 tứ đó ra khỏi tứ điển rồi phải ko? nhưng e thì ko xóa hẳn dk, nó chỉ tạm thời mất đi thôi. cho đến một lúc nào đó a làm e nghi ngờ, lúc lòng tin của e vs a cạn kiệt, E SẼ RA ĐI!
+e hi vọng a ko cố ý làm e buồn, a biết e ghét nhất điều j nhất trong con người a ko? a yêu sự hoàn hảo, yêu đến mãnh liệt phải ko? vậy thì e tự hỏi, cho đến một ngày nào đó, tuổi xuân qua đi, e trở nên già nua xấu xí thì a có còn yêu e nữa ko? h đây e nghi ngở cả những j a đã nói vs e trk đây:"a yêu e". tình yêu là như thế hả a?
+a hơn e chỉ một tuổi, e sợ cảnh phải giành giật a vs những ng con gái kh trẻ đẹp hơn e, những người đó có thể nói chuyện ngọt ngào dịu dàng vs a hơn e. nếu chỉ như vậy mak a rời xa e, thì a cũng sẽ bị out ra khỏi trái tim e ngay lập tức, e ko thích phải đau khổ vì một kẻ đã lùa dối mình. rất may là a chưa làm như thế vs e.
+e muốn hỏi a là : a yêu e ở điểm nào, ngoại hình bình thường, tính cách đa chiều, lúc nắng lúc mưa. quan điểm sống của e hơi khác người. e đã từng muốn sống độc thân dành hết thới gian công sức cho người nghèo khổ, những con người bất hạnh ấy còn cần hơn những vòng tay cứu giúp. e đã từng nghĩ như thế này, nếu như có chồng con sẽ ko có nhiều thới gian để làm việc thiện nữa,lại ko phải nhọc công lo mấy vụ ghen tuông nữa. e ghét bị bó buộc, bị mất tự do. nếu muốn có con thì sẽ xin con nuôi, còn bao nhiêu nữa những đứa bé ko cha ko mẹ cơ mà. e sẽ nuôi dưỡng và yêu thương nó như con ruột. bố mẹ phản đối suy nghĩ này của e, nhưng cuộc sống của e, e có quyền lựa chọn. e sợ một ông chồng hay quản thúc và ưa sự hoàn hảo lắm a à, đối vs e mọi thứ chỉ mang tính tương đối, ko quá hào nhoáng cũng ko cẩu thả tuềnh toàng, vật chất sinh ra để cho con người sử dụng  chứ ko phải sinh ra để cho con người phải chăm chút tu sửa nó. như thế thật buồn cười a nhỉ?
+nếu e rới xa a, e sẽ ko nhớ a wa lâu đâu, đừng trách e vì điều đó, vì e còn nhiều việc phải làm hơn là ngồi trông mong một người vốn dĩ ko thuộc về mình. còn a cũng thế thoy. có thể a sẽ buồn một chút có thể khóc một chút, nhưng tấ cả rối cũng qua thôi. còn thiếu j những cô gái hoàn hảo để a lựa chọn. a ko thể nói sẽ chờ đợi e suốt  đời được. e sẽ chỉ là cơn gió thoảng lướt wa cuộc đời a thôi.

@@ -1,0 +1,12 @@
+---
+title: "Bản quyền cảm biến vân tay của iPhone được chính thức phê duyệt"
+date: 2025-06-13T11:45:56Z
+slug: ban-quyen-cam-bien-van-tay-cua-iphone-duoc-chinh-thuc-phe-duyet
+draft: false
+---
+
+## Bản quyền cảm biến vân tay của iPhone được chính thức phê duyệt
+
+## sittarius1412
+
+Thông tin này là sự khẳng định của "táo cắn dở" cho công nghệ mở khóa an ninh tân tiến sẽ có mặt trên thế hệ iPhone tiếp theo?Như thường lệ, khoảng thời gian này trong năm luôn là lúc các hãng công nghệ liên tục đánh tiếng về những sản phẩm bom tấn mình sắp giới thiệu để chuẩn bị cho kì mua sắm cuối năm. Apple không phải là kẻ ngoài cuộc, nhất là sau khi ông lớn này đã tạo ra được rất nhiều tiếng vang cùng sự chú ý với nền tảng mới iOS 7 tại sự kiện WWDC năm nay.Bản quyền này được USPTO phê duyệt với mã số 20130154031.Mới đây, hồ sơ đăng kí bản quyền cảm biến vân tay của Apple với tên gọi “Khuôn và gờ đúc tích hợp cho cảm biến vân tay hoặc linh kiện tương tự” đã được Văn Phòng bản quyền và nhãn hiệu Hoa Kỳ USPTO phê duyệt. Theo đó, Apple tạm gọi bộ cảm biến vân tay của mình với cái tên chung chung là “cảm biến sinh trắc học thông thường” và được sử dụng cho mục đích an ninh:“Những bộ linh kiện cảm biến này có tác dụng kiểm soát quyền truy xuất thiết bị điện tử như máy tính và điện thoại, hoặc thậm chí cả các tòa nhà hay phương tiện đi lại bằng cách quét dấu vân tay của người dùng và so sánh với các mẫu dấu vân tay được sao lưu trước đó. Nếu dấu vân tay được quét và dấu vân tay được lưu trùng nhau, người dùng sẽ được cấp quyền truy cập.”Phần mô tả chi tiết hơn vị trí bản đăng kí bản quyền của Apple.Phần lớn bản hồ sơ chi tiết bản quyền được Apple dùng để mô tả các bộ phận của cảm biến và cách thức bộ cảm biến được xây dựng. Bên cạnh iPhone, nhiều khả năng Apple cũng sẽ tích hợp cảm biến dấu vân tay vào các iDevide khác.Rất nhiều chuyên gia phân tích thị trường cũng đã đưa ra dự đoán của mình về triển vọng của cách thức mở khóa mới trên iPhone thông qua cảm biến vân tay.Như vậy, với bản quyền vừa mới được chính thức công nhận và công bố này, chúng ta đã gần như đã có đủ bằng chứng để khẳng định sự tồn tại của một bộ cảm biến vân tay trên thế hệ iPhone tiếp theo. Trước đây, hãng Reuters cũng đưa tin sở dĩ iPhone 5S chậm ra mắt là do Apple chưa tìm được các nguyên vật liệu thích hợp để đưa công nghệ khá tân tiến này vào sản xuất đại trà.Nguồn: Kênh 14

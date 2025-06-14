@@ -1,0 +1,27 @@
+---
+title: "[Sư Tử] Rosalind Franklin-Khám phá cấu trúc ADN"
+date: 2025-06-13T12:34:55Z
+slug: su-tu-rosalind-franklin-kham-pha-cau-truc-adn
+draft: false
+---
+
+## [Sư Tử] Rosalind Franklin-Khám phá cấu trúc ADN
+
+## rubytran547
+
+Rosalind Franklin sinh ngày 25 tháng 7 năm 1920 trong gia đình người trung lưu người Anh gốc Do Thái. Là con thứ hai trong gia đình có hai gái ba trai. Là giáo sư Do Thái đầu tiên của đại học London. Mặc dù sức khoẻ yếu, Rosalind có một thời thơ ấu hạnh phúc và anh em nhà Frankin được hưởng sự giáo dục tân thời nên đã phát triển được các tính của họ. Rosalind có tham vọng rất sớm là làm tất cả những gì mà các ba anh em của cô làm được.
+​
+Rosalind Franklin (Ảnh: physicsweb)​Rosalind Franklin là một đứa trẻ có ý tứ nhưng quả quyết và có nhiều nghi lực, sau này sẽ trở thành người thiện nguyện và có được trời phú cho một cá tính mạnh mẽ làm rạng rỡ sức vui sống. Cô học tại trường nữ trung học Saint Paul, nơi chuyên dạy Vật lý và Hóa học. Từ lúc 15 tuổi, Rosalind đã quyết định đi chọn khoa học, điều rất hiếm hoi vào thời 1935, và cho đến sau này cô giữ nguyên ý định đó mặc dù cha cô muốn cô theo những hoạt động từ thiện.
+Năm 1938, Rosalind được đậu vào trường đại học cho sinh viên nữ, trường Newnham College. Lúc bấy giờ các trường đại học nữ không thuộc trường Đại học Cambridge. Chỉ có cao nhất là 300 nữ sinh viên trong số 5300 nam sinh viên. Cho tới 1949, những nữ sinh viên ra trường cũng vẫn chưa được xem là thành phần của trường Đại học này, nhưng Rosalind đã đậu bằng Vật lý hạng cao tại trường Đại học Cambridge .
+Trong những năm 1930, nữ sinh viên nào đang nhận học bổng trường Cambridge đều bị bó buộc phải bỏ học bổng nếu họ lập gia đình. Rosalind đã chọn việc học
+​
+Ảnh ADN được chụp bởi sự nhiễu xạ của tia X -quang, năm 1953 (Ảnh: genome.jgi-psf.org)​Cô được một học bổng để làm việc với R. G. W. Norrish, người được giải Nobel Hóa học năm 1967 Cô không hợp với Norrish, vì tính cả quyết, cô chỉ có thể làm việc với một sự tương đối độc lập. Cô kết bạn với một nữ khoa học gia người Pháp, tị nạn tại Cambridge, cô Adrienne Will, sau này là một nhà luyện kim nổi tiếng. Sau lần khởi sự thất bại đó, Rosalind Franklin được một chỗ nghiên cứu tại British Coal Research Association (CURA, Hội Nghiên cứu Than đá Anh quốc ). Năm 22 tuổi, được làm việc với những nhà vật lý trẻ của Đại học Cambridge, và với việc làm thích hợp: khảo cứu tính chất của các vi cấu trúc (microtructure) của than, Rosalind rất vui mừng.
+Năm 1945 cô được đậu bằng Tiến sĩ tại trường Đại học Cambridge và năm 1946 đã được công nhận là một khoa học gia có năng khiếu.
+Sau chiến tranh, cô muốn thay đổi việc làm. Nhờ Adienne Weill và quá trình làm việc khoa học, cô được một việc làm ở CNRS (Trung tâm Nghiên cứu Khoa học Quốc gia) tại Paris.
+Năm 1947, cô về làm việc tại Phòng thí nghiệm Trung ương về Hóa học của nhà nước. Jacques Méring dạy cho cô về kỹ thuật phát xạ tia X và tinh thể đồ (cristallographie) tia X. Thời gian sống ở Paris, từ 1947 đến 1950 có lẽ là thời kỳ hạnh phúc nhất của Rosalind. Tại đây, cô kết bạn với vợ chồng Vittorio Luzzati. Nơi này, cô cho in ra nhiều bài báo khoa học trên pha vô định hình của carbone (phases amorphes du carbone)
+Năm 1951 Rosalind trở về Anh quốc, làm việc tại King’s college, London, nơi đó J. T. Randall, giám đốc ngành Lý sinh học (Biophysique) đề nghị cô khảo cứu trên cấu trúc của ADN.
+King’s College là nơi mà các nhà khoa học nữ không được vô quán cơm của câu lạc bộ mà phải dùng quán cà phê sinh viên. Rosalind Franklin bị cô lập trong suốt ba năm trong khi làm việc ở King’s College. Cô chỉ liên hệ duy nhất với một sinh viên tiến sĩ R. Gosling, người sẽ là cộng tác viên của cô trong mọi bài báo về ADN. Cô bất đồng ý kiến với Maurice Wilkins, một nhà lý sinh học cũng nghiên cứu ADN như cô, sau này được giải Nobel. Tuy vậy, cô vẫn đạt được những kết quả khoa học đáng kể trong ba năm ở đó. Sau khi xây dựng máy tia X tân tiến, cô có được những phim ảnh của ADN dưới dạng B. Cô trình bày những kết quả đầu tiên vào tháng 10 năm 1951 tại một cuộc hội thảo ở King’s College, trong số người dự, có J. Watson – làm việc tại Cavendish Lab. trường Đại học Cambridge với Francis Crick, trên cùng một chủ đề. Hình cô chụp được gọi là “Photo 51″.
+Tiến trình những sự kiện xảy ra sau đó thật đáng tranh cãi: M. Wilkins đưa cho J. Watson tháng 2 năm 1953 những bản kẽm tuyệt đẹp do Rosalind chụp chụp bằng tia X. Những hình ảnh này là yếu tố quan trọng giúp Watson và Crick xây dựng cấu trúc ADN vào tháng 3 năm 1953. Hình như lúc đó Rosalind gần như sắp giải đáp cấu trúc này. Tháng 4/1953 báo Nature đăng bài cấu trúc ADN của Watson và Crick. Bởi vậy, Rosalind quyết định rời ngay môi trường làm việc đáng ghét của King’s college để qua Birkbeck College. Tại đây, cô làm việc cho đến cuối đời trên tinh thể đồ ( cristallographie) các virus cùng với cộng sự viên Nam Mỹ, Aaron Klug, và trở thành nhà khoa học nổi tiếng thế giới trong 3 lãnh vực: than, ADN và virus.
+Năm 1956, Rosalind vị ung thư buồng trứng và mất năm 1958, lúc chỉ mới 37 tuổi, 4 năm trước khi Watson, Crick và Wilkins đoạt giải Nobel . Chua chát thay, trong bài diễn văn lãnh giải, họ không một lời tôn vinh cô, người lẽ ra phải được giải thay M. Wilkins nếu cô còn sống đến năm 1962!
+ 
+Theo VietSciences.free.fr

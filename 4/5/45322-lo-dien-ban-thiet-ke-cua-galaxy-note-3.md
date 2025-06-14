@@ -1,0 +1,12 @@
+---
+title: "Lộ diện bản thiết kế của Galaxy Note 3"
+date: 2025-06-13T11:45:54Z
+slug: lo-dien-ban-thiet-ke-cua-galaxy-note-3
+draft: false
+---
+
+## Lộ diện bản thiết kế của Galaxy Note 3
+
+## sittarius1412
+
+Smartphone Galaxy Note 3 mới của Samsung sẽ mang thiết kế hoàn toàn khác so với những sản phẩm trước đó.Mới đây, một bằng sáng chế về thiết kế mới của Samsung đã được tiết lộ, theo đó, các smartphone tiếp theo của hãng, rất có thể bắt đầu bằng Galaxy Note 3, sẽ mang trên mình một ngôn ngữ thiết kế hoàn toàn mới.Bằng sáng chế này đã được Samsung đăng kí trên hai thị trường là Mỹ và Hàn Quốc.Theo bản thiết kế mô tả, những chiếc smartphone tiếp theo của Samsung sẽ có phần viền màn hình được tối giản siêu mỏng theo phong cách đang thịnh hành trên thị trường. Máy cũng sẽ được chau chuốt khá mảnh mai và nhiều khả năng sẽ có trọng lượng nhẹ cùng các linh kiện mạnh mẽ tích hợp bên trong.Hình ảnh được cho là của chiếc Note 3 mới xuất hiện trên Internet gần đây vẫn có sự hiện diện của phím Home vật lý.Một điểm đáng chú ý khác có thể dễ dàng nhận ra trong bản vẽ là sự biến mất của phím Home vật lý quen thuộc, thay vào đó là toàn bộ phím bấm cảm ứng điện dung chỉ có thể nhìn thấy khi nút nguồn được mở. Thêm vào đó, bên cạnh 3 phím bấm thường thấy trên các điện thoại Android là Home, Menu và Back, Samsung sẽ bổ sung phím thứ 4 có tên gọi Search để phục vụ nhu cầu tìm kiếm thông tin nhanh chóng của người dùng.Nhìn chung, các hình ảnh rò rỉ gần đây của Note 3 đều khẳng định ngôn ngữ thiết kế của siêu phẩm này sẽ tương tự với Galaxy S4 cùng viền màn hình mỏng.Ở mặt sau, khu vực Camera và loa lần lượt được đặt ở phần đầu và cuối máy, có một điểm khá bất ngờ đó là ở bản vẽ này không hề mô tả bộ phận đèn Flash cho camera, một tính năng được mong chờ sẽ có mặt trên Note 3.Galaxy Note 3 sẽ là sản phẩm bom tấn tiếp theo của Samsung trong năm nay sau Galaxy S4. Theo một số thông tin đã rò rỉ, Note 3 sẽ tận dụng sức mạnh của vi xử lý 8 lõi Exynos Octa 5 (hoặc chip lõi tứ Snapdragon 800) cùng màn hình 5,99 inch Full HD Super AMOLED. Máy sẽ chạy trên nền tảng Android 4.3 hoặc thậm chí là Key Lime Pie. Nhiều khả năng Samsung sẽ giới thiệu Samsung Galaxy Note 3 vào tháng Chín năm nay.Nguồn: Kênh 14

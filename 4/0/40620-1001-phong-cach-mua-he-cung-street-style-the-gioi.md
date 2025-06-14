@@ -1,0 +1,24 @@
+---
+title: "1001 phong cách mùa hè cùng street style thế giới"
+date: 2025-06-13T02:13:12Z
+slug: 1001-phong-cach-mua-he-cung-street-style-the-gioi
+draft: false
+---
+
+## 1001 phong cách mùa hè cùng street style thế giới
+
+## teddyhangvu
+
+Từ muôn vàn các cá tính thời trang, giới trẻ thế giới đã đem đến cho chúng ta những cách phối đồ khác biệt.
+
+​Tưởng chừng như trang phục này chỉ mang phong cách ngọt ngào nữ tính nhưng thực ra, nó đã được cô bạn nhấn nhá bằng những chi tiết nhỏ nhưng lại vô cùng "đắt giá": chi tiết đinh tán xinh xắn ở cổ áo và chất liệu da của chân váy đã biến set đồ trở nên rất cá tính, không bị bó buộc trong phong cách nhẹ nhàng đơn thuần.​​​Mùa hè quả thực là mùa lên ngôi của những gam màu pastel dịu mắt. Chiếc áo sơmi khoét tay vải chiffon với những chi tiết cut-out hay ho ở phần lưng được mix hài hòa cùng quần shorts họa tiết hoa nhí đáng yêu.​​​Phong cách mix đồ white-on-white vẫn chứng tỏ độ "hot" của mình với những cô nàng ưa thích phong cách tối giản. Ở set đồ này, cô bạn đã nhấn nhá thêm những chi tiết màu nude từ chiếc túi và đôi sandal để tạo thêm các điểm nhấn nhẹ nhàng, ăn ý​​​Trong khi đó, denim-on-denim chính là sự lựa chọn cho những cô nàng ưa thích style khỏe khoắn, năng động. Biến tấu đôi chút với cách mix đồ quen thuộc, cô nàng này lựa chọn áo khoác denim có tông màu ombre cực hay ho để mix cùng quần shorts denim. Bên cạnh đó, một lần nữa chúng ta lại bắt gặp sự xuất hiện của crop top - một trong những item được ưa chuộng nhất trong mùa hè năm nay.​​​Sự đối nghịch và tương phản giữa hai phong cách của chiếc áo sweatshirt và chiếc chân váy ánh kim quitted chính là điểm tạo nên sự thu hút cho set đồ này. Chỉ với hai tông màu vàng và đen, không quá nhiều phụ kiện, đây chính là cách phối đồ khá thông minh của cô nàng này.​​​Với phong cách casual hàng ngày thì sơmi denim khoác ngoài T-shirt chính là một trong những cách mix đơn giản nhất. Tuy nhiên, thay vì mix cùng quần shorts denim hay skinny jeans quen thuộc, cô bạn này lại mix cùng quần shorts họa tiết siêu hay ho để tạo nên điểm nhấn thú vị. Sự kết hợp với đồng hồ to bản cùng kính mắt và sandal càng khiến cô bạn trở nên thu hút hơn.​​​Nữ tính nhưng lại mang đậm phong cách cá nhân chính là những từ ngữ chính xác nhất để miêu tả set đồ này. Nhẹ nhàng cùng crop top ren, chân váy ren chìm và lita boots màu hồng pastel nhưng lại có điểm nhấn là cardigan oversized vàng rực rỡ. Bờm hoa cài đầu hoàn thiện set đồ của cô bạn và cũng là một chi tiết tạo sự bất ngờ.​​​Mùa hè oi bức vốn không phải là mùa cho cách mix layering nhiều tầng lớp nên áo họa tiết và quần shorts chính là cách dễ nhất để bạn trở nên nổi bật. Tuy nhiên, mùa hè năm nay hãy thử làm quen với những đôi giày creepers siêu cá tính bởi đôi giày chính là item statement hay ho nhằm tạo điểm nhấn cho bất kì một bộ trang phục nào.​​​Nhìn thoáng qua chúng ta có thể thấy cô bạn này có phong cách khá preppy với chân váy chữ A, mũ bowl, áo cổ peterpan hai tông màu đỏ-trắng và balo cùng tông đỏ. Tuy nhiên, đôi giày với chi tiết mũi ánh kim đã tạo nên một chi tiết nhấn nhá hay ho khác biệt cho set đồ của bạn ấy.​​​Cô nàng này đã chứng tỏ những đôi sandal cao gót tối giản có khả năng biến bất kì set đồ và chất liệu nào trở nên thanh thoát và nữ tính hơn. Ở đây, chiếc váy mang chất liệu cotton mỏng, nhẹ và mũ bóng chày bỗng mang lại phong cách khác lạ siêu hay ho. Vào mùa hè thì thật khó để mặc áo khoác da nên bạn ấy chỉ khoác hờ hững trên vai, trở thành một chi tiết nhấn nhá mang phong cách mạnh mẽ cho set đồ.​​​Vòng cổ statement sẽ góp phần giúp cho bất kì một chiếc váy hay item cơ bản nào trở nên hấp dẫn và khác biệt. Cô bạn này đã kết hợp chiếc váy đơn giản tông màu hồng đào pastel cùng giày cao gót Mary jane với chiếc vòng cổ statement lộng lẫy.​
+
+Anh bạn này lại có phong cách grunge của những năm 90; với T-shirt in slogan, quần jeans  rách và giày Docs. Chiếc áo sơmi caro buộc ngang hông trở thành chi tiết nhấn nhá, tạo sự khác biệt cho set đồ.
+
+
+Những chiếc áo gile chính là sự lựa chọn cho những bạn nam ưa thích layering trong mùa hè. Không quá cầu kì, anh bạn này layering áo hoodie gile cùng áo phông họa tiết, quần jeans rách và giày sneakers trắng tinh tế.
+
+
+Lịch lãm và nam tính chính là hai tính từ để miêu tả set đồ của anh bạn này. Chọn cho mình tông màu navy làm chủ đạo, anh ta đã có được một phong cách vô cùng tinh tế. Chiếc khăn cài ngực áo tông màu đỏ đun chính là chi tiết nhấn nhá "đắt giá" mà ít chàng trai có khả năng để ý đến.
+
+​Trong khi đó, anh chàng này cũng có phong cách rất nam tính nhưng lại khỏe khoắn với áo hoodie, T-shirt trắng, giày Converse. Đây chính là set đồ hoàn hảo cho các anh chàng khi đến những buổi tập thể chất.​Kim Nguyen - Theo Màn Ảnh Sân Khấu​​

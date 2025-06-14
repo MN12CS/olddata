@@ -1,0 +1,50 @@
+---
+title: "[Thiên Bình] Đàm Vĩnh Hưng"
+date: 2025-06-13T00:44:39Z
+slug: thien-binh-dam-vinh-hung
+draft: false
+---
+
+## [Thiên Bình] Đàm Vĩnh Hưng
+
+## Jennyfer Dora
+
+Đàm Vĩnh Hưng, tên thật Huỳnh Minh Hưng (sinh 2 tháng 10 năm 1971), quê gốc ởĐiện Bàn, Quảng Nam; là một ca sĩ Việt Nam. Bên cạnh thể loại pop, anh còn hát rất nhiều các ca khúc nhạc tiền chiến mang tính chất trữ tình cũng như nhạc Trịnh Công Sơnvà nhạc vàng. Anh được báo chí đặt cho biệt danh "ông Hoàng Nhạc Việt".[1][2][3] Đàm Vĩnh Hưng rất lấy làm tự hào về danh xưng này.[4]
+Mục lục
+
+  [ẩn] 1 Tiểu sử1.1 Tính cách2 Những vụ rắc rối2.1 "Nhầm" ca khúc2.2 Mâu thuẫn với Phương Thanh2.3 Bị Lý Tống xịt hơi cay vào mặt2.4 Sự cố với nhà sư năm 20123 Một số đĩa nhạc4 Live Show5 Thành tích6 Chú thích
+[sửa]Tiểu sử
+
+Ông nội của Đàm Vĩnh Hưng là người có nguồn gốc Việt-Pháp, bà nội của anh có nguồn gốc Phúc Kiến (Hoa), mẹ của anh là một người Quảng Nam.[5]
+Thời còn là học trò, Đàm Vĩnh Hưng từng theo học tại trường trung học cơ sở Ngô Quyền và trường Trung học phổ thông Nguyễn Thượng Hiền tại quận Tân Bình, Thành phố Hồ Chí Minh. Với thời tuổi trẻ cơ cực và khó khăn, anh đã làm nhiều nghề để sinh sống như hớt tóc và làm tóc cũng như hát phụ trong những chương trình ca nhạc.[6]
+Đàm Vĩnh Hưng tham gia sinh hoạt văn nghệ từ Câu lạc bộ Ca Sĩ Trẻ tại Trung tâm Văn hóa quận 10 từ năm 1991. Sau khi đoạt giải nhất cuộc thi tuyển chọn giọng ca trẻ do Công ty Văn hoá quận 10 tổ chức tại công viên Hồ Kỳ Hòa năm 1992, Đàm Vĩnh Hưng chính thức đi vào con đường ca hát chuyên nghiệp. Anh đã tự học đàn, tự nghiên cứu tài liệu để được làm quen với ký xướng âm và cả phong cách biểu diễn. Năm 1998, sau 8 lần đi thi, Đàm Vĩnh Hưng đoạt Giải tư Tiếng hát truyền hình Thành phố Hồ Chí Minh, lúc đó là một cuộc thi ca nhạc uy tín và chất lượng.[7] Năm 1999, Đàm Vĩnh Hưng đã vượt qua 300 thí sinh để lọt vào danh sách 10 giọng ca có triển vọng của Trung tâm ca nhạc nhẹ Sài Gòn.
+Đàm Vĩnh Hưng đoạt giải nhất trong cuộc bình chọn những giọng ca xuất sắc do Câu lạc bộ bạn trẻ nhạc chiều thứ 5 của Nhà hát Bến Thành tổ chức từ tháng 9/2000 - 9/2001. Đây là cột mốc đầu tiên cho sự nghiệp của Đàm Vĩnh Hưng. Cùng với hai ca khúc "Tình ơi xin ngủ yên" và "Bình minh sẽ mang em đi" đã được dư luận yêu thích và chú ý, trở thành cột mốc đáng nhớ khởi đầu sự nghiệp ca hát.[6] Thời kỳ đầu, anh được cho là có giọng hát khàn như ca sĩ hải ngoại Don Hồ đã nổi tiếng trước đó và hát nhạc trẻ với cách hát gằn giọng cuối câu.[8] Thời gian sau, anh chọn nhạc tiền chiến, trữ tình và nhạc vàng để thể hiện.
+Có thể xem Giọt nước mắt cho đời (Vol.05) là album đưa Đàm Vĩnh Hưng thật sự bật thành sao trong làng nhạc Việt.[7]
+Hiện nay, Đàm Vĩnh Hưng có một công ty giải trí, một quán ăn và làm giám khảo trong chương trình Giọng hát Việt (mùa 1) năm 2012.
+[sửa]Tính cách
+
+Theo Đàm Vĩnh Hưng, trong một chương trình, anh thường hát nhiều dòng nhạc khác nhau, đôi khi là sở đoản, để tránh nhàm chán cho khán giả và vì "nếu mình không thử các dòng nhạc khác nhau, mình không thể nào có nhiều khán giả, không thể show nào cũng có mặt. Một điều nữa là để chứng minh mình đa năng, mình hát được nhiều dòng nhạc".[9]
+Đàm Vĩnh Hưng là một trong những ca sĩ nhạc Việt hiện nay sống được liên tục với nghề lâu nhất và âm nhạc vẫn là nghề chính không ngưng nghỉ của anh trong hơn 15 năm qua, cũng như đã được rất nhiều người ái mộ. Tuy nhiên cách "sống thẳng thắn, thích chơi ngông" của Đàm Vĩnh Hưng cũng gây cho nhiều người ác cảm, như Đàm Vĩnh Hưng tự nhận:"Tôi biết và tôi nói thẳng, rất nhiều người muốn chờ cái chết của Đàm Vĩnh Hưng..."[9]
+[sửa]Những vụ rắc rối
+
+[sửa]"Nhầm" ca khúc
+
+Trong album Vol.8, Tình ca hoài niệm (hay còn gọi là Tình ca 50) gồm những tình khúc 1954-1975, Đàm Vĩnh Hưng đã chọn thể hiện ca khúc Phố đêm, ghi trên vỏ bìa là của tác giả Nguyễn Tuấn Kiệt, nhưng lại hát ca khúc cùng tên của tác giả Tâm Anh, một ca khúc bị cấm lưu hành vì Sở Văn hóa Thông tin TPHCM cho là "liên quan đến lính chế độ cũ". Đàm Vĩnh Hưng cho biết là mình nhầm lẫn, nhưng vẫn bị xử lý phạt 30 triệu đồng, công ty sản xuất bị phạt 23 triệu đồng và đĩa nhạc bị thu hồi.[10][11]
+Trong album Mr.Đàm phát hành năm 2005, Đàm Vĩnh Hưng đã chọn thể hiện ca khúc "Em đã quên một dòng sông", ghi trên vỏ bìa là của tác giả Hải Triều, nhưng thật ra đây là một ca khúc của nhạc sĩ hải ngoại Trúc Hồ mà lúc đó chưa xin phép tác giả.[12] Album này cũng được Trung tâm Thúy Nga đại diện phát hành tại Mỹ, nhưng rút ca khúc "Em đã quên một dòng sông" ra. Cũng trong album Mr.Đàm, ca khúc "Bạc tình" của nhạc sĩ hải ngoại Huỳnh Nhật Tân, lại bị ghi là của Nhật Đăng Khoa.[13]
+[sửa]Mâu thuẫn với Phương Thanh
+
+Trước khi xảy ra sự kiện Phương Thanh bị "khủng bố tin nhắn", Đàm Vĩnh Hưng có mối quan hệ thân thiết trong đời sống và công việc với cô. Sau khi xảy ra sự kiện này, Phương Thanh đã đến gặp Đàm Vĩnh Hưng và nói: "Trong chuyện này, Thanh chỉ nghi ngờ Ngọc và Hưng". Đàm Vĩnh Hưng cũng xác nhận thông tin này tuy nhiên anh cho rằng Phương Thanh đang nói về Hồng Ngọc và Tuấn Hưng.[14]
+Năm 2007, khi chuyện xích mích giữa Phương Thanh và nhà báo Hương Trà được đưa ra tòa án, Đàm Vĩnh Hưng cũng được cho là đã đưa luật sư của mình để hỗ trợ Hương Trà trong việc phản biện những cáo buộc của Phương Thanh.
+Năm 2008, Phương Thanh và Đàm Vĩnh Hưng đều thừa nhận cả hai đã không nói chuyện với nhau hơn một năm[15]. Thời gian này, Phương Thanh cho rằng đã có một người ở cạnh mình bán thông tin để báo chí viết một bài xuyên tạc đời tư của cô. Bên cạnh đó việc các bài báo của Đàm Vĩnh Hưng trùng hợp với những phát biểu của Phương Thanh khiến mối quan hệ của cả hai thêm căng thẳng.
+Trả lời về mối quan hệ này, Đàm Vĩnh Hưng cho rằng những mâu thuẫn đã xảy ra chỉ là hiểu lầm và mong rằng có một ngày mọi chuyện sẽ sáng tỏ[14]. Riêng Phương Thanh khẳng định mối quan hệ này đã "hết thuốc chữa".[16]. Gần đây, trong đêm trao giải Làn sóng xanh vào ngày 20 tháng 12 năm 2012, cả hai người đã chính thức làm hòa[17].
+[sửa]Bị Lý Tống xịt hơi cay vào mặt
+
+Đàm Vĩnh Hưng thường xuyên đi diễn show tại nước ngoài, cho các cộng đồng người Việt. Nhân dịp Đàm Vĩnh Hưng biểu diễn ở San Jose ngày 18/07/2010, một người phản đối chế độ cộng sản ở Việt Nam là Lý Tống đã giả dạng một người phụ nữ và mua vé đến buổi diễn của Đàm Vĩnh Hưng. Lý Tống sau đó vẫy tay xin tặng hoa Đàm Vĩnh Hưng và trong lúc anh cúi xuống nhận hoa đã bị Lý Tống xịt hơi cay vào mặt. Đoạn video clip này sau đó đã được lưu truyền rộng rãi trên mạng và gây ra rất nhiều bình luận xung quanh thân thế, đời tư cũng như mục đích của hai nhân vật chính.[cần dẫn nguồn]
+[sửa]Sự cố với nhà sư năm 2012
+
+Trong buổi đấu giá gây quỹ từ thiện cho ca sĩ Wanbi Tuấn Anh chữa bệnh tại phòng trà Không Tên ngày 4 tháng 11 năm 2012, Đàm Vĩnh Hưng đã mang chai rượu của một khán giả tặng cho anh để đấu giá và tuyên bố rằng "Ai là người thắng cuộc thì sẽ nhận được chai rượu và… hai nụ hôn của Đàm Vĩnh Hưng".[18] Kết quả, người chiến thắng trong cuộc đấu giá là hai nhà sư với giá thắng là 55 triệu đồng. Sau đó, Đàm Vĩnh Hưng đã hôn vào môi nhà sư trẻ và hôn tay cho nhà sư lớn tuổi hơn. Hai nhà sư này sau đó nhận áp phạt "biệt chúng" từ các chư tăng trong thời gian 3 tháng.[19] Nhà sư trẻ tuổi hôn môi với Đàm Vĩnh Hưng sau đó đã xin hoàn tục vì hoàn cảnh gia đình và được chấp thuận.[20] Trong bức thư gửi đến báo chí vào ngày 9 tháng 11, Đàm Vĩnh Hưng đã gửi lời xin lỗi đến khán giả, các tăng ni, phật tử.[18] Ngày 14 tháng 11 năm 2012, Thanh tra của Bộ Văn hóa, Thể thao và Du lịch Việt Nam đã mời Đàm Vĩnh Hưng ra Hà Nội để giải trình, sau đó xử phạt hành chính anh 5 triệu VND vì hành vi hôn môi nhà sư bị đánh giá là phản cảm.[21]Sau đó, trong một bức thư khác được cho là của Đàm Vĩnh Hưng, anh đã tiết lộ rằng chính nhà sư trẻ đã chủ động đưa môi và yêu cầu thực hiện và một số chi tiết tiêu cực về cá nhân của nhà sư trẻ này.[22] Tuy nhiên, sau khi hoàn tục, người hôn môi với Đàm Vĩnh Hưng lại cho rằng chính Đàm Vĩnh Hưng là người chủ động hôn và bác bỏ các chi tiết tiêu cực về mình do Đàm Vĩnh Hưng đưa ra.[23]
+[sửa]Một số đĩa nhạc
+Tình ơi xin ngủ yên (Vol.1) [24]Bình minh sẽ mang em đi (Vol. 2) - 2001Một trái tim tình si (Vol. 3)Bao giờ người trở lại... Hãy đến đây đêm nay (Vol.4) - 2002Giọt nước mắt cho đời (Vol.5) - 2003Hưng (Vol.6) - 2004Mr. Đàm (Vol.7) - 2005Tình ca hoài niệm (Vol.8) - 2006 với 12 tình khúc 1954-1975 nổi tiếng[24]Giải thoát (Vol.9)Dạ khúc cho tình nhân 1 - Lạc mất em (Vol.10) - 2007Hạnh phúc cuối (Vol.11) - 2008Khoảng cách - 2012[sửa]Live Show
+Trái tim hát (2003)Giờ H (17,18,19/12/2004)Thương hoài ngàn năm (2007)Dạ tiệc trắng(2008)Người tình (2009)Vũ khúc mùa đông (2010)Mr.Đàm by night (2011)Số phận (7/2012), kỷ niệm 15 năm ca hát.[sửa]Thành tích
+
+Mr. Đàm cuối năm 20081996: Giải Khuyến Khích trong cuộc thi "Bài ca tháng 4" do khu du lịch Đầm Sen tổ chức.1997: Giải nhất cuộc thi "Liên hoan các giọng hát hay bán chuyên nghiệp".1998: Giải tư Ngôi sao Tiếng hát truyền hình TP HCM.1999: Trở thành 1 trong 10 giọng ca có triển vọng của Trung tâm ca nhạc nhẹ Sài Gòn.2001: Giải nhất giọng ca và gương mặt ca sĩ trẻ được yêu thích do chương trình Chiều thứ 5 dành cho các sinh viên bình chọn[25]2002: Giải thưởng Làn Sóng Xanh của Đài tiếng nói Thành phố Hồ Chí Minh.[26]2003: Giải nhất Ngôi sao bạch kim - "Giọng ca nam xuất sắc nhất".[27]2004: Giải thưởng Làn Sóng Xanh: "Ca sĩ được yêu thích nhất" trong năm 2004.[28]2005: Giải thưởng Lá Phong của Tổng lãnh sự Canada.[29]2005: Hai giải thưởng Làn Sóng Xanh: "Ca sĩ được yêu thích nhất" và Ca sĩ của năm 2005.[30]2006: Giải thưởng Ngôi Sao Bạch Kim - Ca sĩ có phong cách ấn tượng nhất.[31]2007: Giải thưởng Âm nhạc Cống hiến 2007 - Ca sĩ xuất sắc nhất 2007.[32]2008: Hai giải thưởng Làn Sóng Xanh: "10 ca sĩ được yêu thích nhất" và "Ca sĩ của năm"[33]. Huy chương bạc thể loại nhạc nhẹ và nhạc dân gian trong cuộc thi Liên hoan giọng hát vàng Asean 2008.[34]2010: 5 giải thưởng Zing Music Awards 2010 và Ca sĩ được yêu thích nhất giải thưởngHTV Awards2011: Giải thưởng HTV Awards : Ca sĩ được yêu thích nhất lần thứ hai.[35]

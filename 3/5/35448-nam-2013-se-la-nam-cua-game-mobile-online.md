@@ -1,0 +1,24 @@
+---
+title: "Năm 2013 sẽ là năm của game Mobile Online?"
+date: 2025-06-13T00:39:36Z
+slug: nam-2013-se-la-nam-cua-game-mobile-online
+draft: false
+---
+
+## Năm 2013 sẽ là năm của game Mobile Online?
+
+## teddyhangvu
+
+Saga - Theo MASK
+Web game đã chiếm lĩnh thị trường game Việt trong năm 2012, liệu năm nay thể loại “mỳ ăn liền” này có bị game Mobile soán ngôi?
+
+Trước tiên xin phải nói rằng, chắc chắn dù game Mobile Online (gMO) có thực sự bùng nổ thì điều đó cũng không ảnh hưởng nhiều đến doanh thu và tương lai của game online trên PC (bao gồm cả Web game và game Client). Bởi đơn giản, đó là hai thị trường tách biệt, hai phân khúc khác nhau và rất có thể, đối tượng khách hàng cũng chẳng giống nhau. Tuy nhiên, điều được đề cập ở đây là: liệu năm nay, thay vì nhập về một núi Web game, liệu các Nhà phát hành trong nước có chuyển sang cạnh tranh trong một môi trường mới: game Mobile Online.
+ Tình Kiếm – một trong các gMO kiếm hiệp đẹp nhất hiện nay.
+Thời điểm hiện tại, có thể nói gMO đang hội tụ đủ các yếu tố: “thiên thời, địa lợi, nhân hòa” để bùng nổ. Cái duy nhất còn thiếu chính là “gió đông” – sự tự tin và một chút liều lĩnh của các Nhà phát hành.
+Trước tiên, phải khẳng định game Mobile là miếng bánh ngọt cực lớn cho các Nhà làm game và cả các Nhà phát hành. Rất nhiều tựa game Console, game PC nổi tiếng như Assassins Creed, Call of Duty: Black Ops, Final Fantasy III... đã được convert lại cho Mobile. Đồng thời, không chỉ những “ông lớn” như EA, Gameloft mà rất nhiều Studio độc lập đã thành công với thể loại này. Điển hình như năm ngoái, Supercell từng kiếm về 500.000 USD mỗi ngày từ hai game cho iOS: Clash of Clans và Hay Day. Mới đây Nowcom và các Công ty game khác của Hàn Quốc đã chính thức bắt tay thực hiện 7 dự án gMO lấy cảm hứng từ bộ truyện tranh Hiệp Khách Giang Hồ. Không lâu nữa, gMO sẽ có cuộc đổ bộ về cả “chất” và “lượng” vào làng game thế giới nói chung và game online Việt Nam nói riêng. Đây chính là yếu tố “thiên thời” cho sự phát triển mạnh mẽ của thị trường gMO trong nước.
+ Hiệp Khách Giang Hồ online sẽ nhanh chóng xuất hiện trên mobile.
+Để có sự phát triển nhanh chóng đặc biệt về “chất” của gMO, không thể không nhắc đến sự ảnh hưởng của những tiến bộ công nghệ. Các thiết bị di động ngày một rẻ hơn trong khi cuộc đua cấu hình chưa bao giờ dừng lại. Nhờ đó Smart Phone dần trở thành mặt hàng bình dân mà bất cứ ai cũng có thể sở hữu. Với tầm giá khoảng 2 triệu (100 USD) chúng ta đã có thể sở hữu một Smart Phone “không tồi” chạy Android. Trong năm nay, Smart Phone sẽ vượt qua các dòng điện thoại phổ thông về số lượng. Với hơn 3 tỷ dân tại các quốc gia đang phát triển như Trung Quốc, Ấn Độ, Đông Nam Á, không chỉ Smart Phone giá rẻ mà cả các game Mobile, đặc biệt là các game Mobile Online đang có cơ hội rất lớn để chiếm lĩnh phân khúc này. Có thể thấy, “thiên thời” của gMO đã đến.
+ Thiên Địa Quyết – một gMO sắp về Việt Nam.
+Ở Việt Nam, hiện có khá nhiều Nhà phát hành đang chen chân vào thị trường game Mobile Online như Minh Châu, VNG, VTC, SohaGame, MEcorp, MVcorp, Gameloft VN... và thậm chí cả nhà mạng Mobifone với một số game trên mạng xã hội Zoota. Đặc điểm chung của hầu hết các gMO tại thị trường Việt Nam là thường có độ “phủ” rất rộng, từ những hệ máy Symbian già cỗi đến những máy chạy Android cao cấp. Tuy nhiên vì thế mà các gMO trong nước không được “nuột nà” cho lắm. Trong số này, Soha Game có thể coi như một khác biệt với hai game duy nhất nhưng cũng có đồ họa đẹp nhất thị trường gMO trong nước: Tình Kiếm và iGà. Điều này là dễ hiểu khi đối tượng Soha Game hướng tới không phải số đông mà là cộng đồng iOS giàu có nhưng khó tính. Với thế mạnh phần cứng của các thiết bị iOS, Tình Kiếm và iGà có thể dễ dàng phát huy đồ họa đỉnh cao của mình, đây là điều các gMO đa nền tảng (hỗ trợ cả iOS, Android lẫn Symbian) khác không làm được. Đổi lại, đối tượng khách hàng của Soha Game chỉ chiếm chưa tới 10% thị trường trong nước. Hơn nữa, không dễ dàng gì để chinh phục người dùng iOS, nhất là khi AppStore ngập tràn các game đỉnh tầm cỡ thế giới. Rõ ràng, việc tiên phong phát triển game dành riêng cho iOS là một bước đi khá mạo hiểm của Soha Game, nhất là khi phần đông người dân Việt Nam chưa có điều kiện dùng đồ của Apple. Tuy nhiên, chung quy lại các Nhà phát hành đã phủ khắp mọi phân khúc của thị trường gMO ở Việt Nam, đồng thời, game thủ cũng đang tỏ ra rất hứng thú với thể loại mới mẻ này, đó chính là yếu tố cuối: “nhân hòa”.
+ iGà – gMO bắn súng tọa độ đang dẫn đầu AppStore hiện nay.
+Thiên thời, địa lợi, nhân hòa đã có đủ, chỉ cần các Nhà phát hành đủ tự tin vào tiềm năng của thị trường gMO trong nước, năm nay game Mobile Online chắc chắn sẽ có một năm bùng nổ cả về chất và lượng. Cùng chờ xem liệu 2013 có thực sự là năm của gMO hay không.

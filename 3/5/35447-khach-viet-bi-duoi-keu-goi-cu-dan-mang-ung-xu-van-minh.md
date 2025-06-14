@@ -1,0 +1,23 @@
+---
+title: "Khách Việt bị đuổi kêu gọi cư dân mạng ứng xử văn minh"
+date: 2025-06-13T00:39:35Z
+slug: khach-viet-bi-duoi-keu-goi-cu-dan-mang-ung-xu-van-minh
+draft: false
+---
+
+## Khách Việt bị đuổi kêu gọi cư dân mạng ứng xử văn minh
+
+## teddyhangvu
+
+Trước những comment kích động ném gạch đá, khủng bố, chủ nhân câu chuyện "bị đuổi khỏi cửa hàng ở Hà Nội" gây "sốt" trên mạng đã kêu gọi bạn bè ứng xử lịch sự.
+
+Sau khi câu chuyện về cửa hàng kỳ thị khách Việt tại ngã tư giao cắt Hàng Bè và Hàng Bạc (Hà Nội) làm "nóng" các mạng xã hội, những thông tin phản hồi mới nhất từ phía ông chủ cửa hàng Phương Thảo đã kéo theo hàng loạt comment trái chiều của cư dân mạng. Không ít bạn trẻ cho rằng, chuyện tuy nhỏ nhưng không phải là duy nhất, và nó phản ánh một thái độ văn hóa cần phải chỉnh sửa, chứ không đơn giản vì không mua được cái áo. Bên cạnh những người lên án, tẩy chay, thậm chí quá khích đòi ném đá vỡ kính cửa hàng, không ít comment cho rằng có lý do chính đáng khiến ông chủ cửa hàng làm thế, và "bán cho ai là quyền của họ".
+Thành viên Nguyễn Minh Kiên cho rằng, không nên chỉ trách người bán, mà khách hàng Việt cũng phải tự nhìn lại mình. "Chắc chắn phải có lý do họ mới không bán cho người Việt, là người kinh doanh ai mà chẳng muốn bán được nhiều hàng. Tiên trách kỷ, hậu trách nhân", thành viên này chia sẻ.
+Tuy đồng tình với ý kiến trên, nhưng đa số các comment khác nhận định rằng, không phải tất cả các khách hàng đều xử sự thiếu văn minh, nên không thể đánh đồng để từ chối phục vụ. "Người bán hàng có quyền chọn khách, nếu khách bất nhã hoặc khả nghi, họ có thể từ chối phục vụ. Nhưng tạo sự phân biệt đối xử với tất cả các khách hàng là thiếu văn hóa, thể hiện sự thiển cận, không khéo léo của ông chủ".
+Số lượng comment cũng như chia sẻ về câu chuyện này đã lên tới con số hàng ngàn chỉ trong 3 ngày.Một cựu sinh viên của Học viện Hành chính cho rằng, nhiều công ty nổi tiếng nước ngoài, như KFC, Starbucks vẫn tìm đến để phục vụ khách Việt, trong khi nhiều cửa hàng Việt, đặc biệt là ở những điểm thu hút khách du lịch, lại từ chối phục vụ người trong nước. "Người ta đánh giá sự văn minh bằng chất lượng dịch vụ. Ở Nhật, người ta coi khách là thượng đế, coi khách là Kami sama (thần linh). Mua hàng xong họ cúi chào đến lúc mình khuất tầm mắt thì thôi, mà càng ở những chỗ sang trọng họ lại càng lịch sự", thành viên này chia sẻ.
+Bức xúc trước những sự việc kỳ thị liên tục diễn ra trong thời gian ngắn, và ông chủ cửa hàng Phương Thảo tuy biết chuyện tương tự tại Đà Nẵng, Trung Quốc, nhưng quả quyết không thay đổi cách thức bán hàng của mình, không ít comment quá khích còn kích động: "Ai ném đá bể cửa kính nhà nó tớ tặng cho một chiếc áo thêu tay", hay hùa nhau "mỗi ngày cho một cục gạch vào kính cho vui". Trước đó, ông chủ cửa hàng Phương Thảo cũng cho biết, nữ khách hàng "tố cáo" mình trên mạng xã hội từng gọi điện đe dọa sẽ khủng bố bằng gạch đá, mắm tôm, khiến cửa hàng phải đóng cửa.
+Trước thông tin trên, không ít bạn trẻ cho rằng người Việt hành xử như vậy sẽ khiến càng nhiều nơi cư xử giống cửa hàng Phương Thảo. "Người ta buôn bán hợp pháp, bán như thế nào là quyền của người ta chứ, mà tẩy chay thì cũng làm gì? Người ta có cần khách hàng như cô đâu? Đã bảo không bán rồi mà như thế khó mà không bực mình, còn đòi ném mắm tôm!? Bảo sao người ta không thích bán cho người Việt? Nói đi cũng phải nói lại thôi", thành viên Master Lady viết.
+Tuy nhiên, trái ngược với thông tin từ phía ông chủ cửa hàng Phương Thảo, chủ nhân của câu chuyện kêu gọi cư dân mạng và bạn bè của mình có ứng xử lịch sự. "Mình nghĩ, xử lý bằng bạo lực như ném gạch đá hay gọi điện đến chửi mắng quấy rầy... chỉ càng khẳng định thêm rằng họ không muốn bán cho người Việt là đúng thôi. Nếu có gọi điện, mong các bạn hãy nói chuyện một cách thẳng thắn, văn minh và có lý lẽ. Cửa hàng này chỉ là một ví dụ điển hình, còn rất nhiều những cửa hàng như thế để các bạn tìm hiểu và phản đối", nữ khách hàng này kêu gọi.
+Ngày 18/3, chia sẻ trên mạng xã hội, một nữ khách hàng cho biết vào khoảng 18h30, khi vào cửa hàng Phương Thảo tại ngã tư Hàng Bè giao cắt Hàng Bạc, người này đã bị chủ quán mời ra ngoài mà không nói rõ lý do. Vì quá bức xúc, người phụ nữ đã xin card visit của chủ cửa hàng nhưng bị từ chối. Khi chị lấy điện thoại ra chụp lại mặt card thì người bán hàng lao ra hùng hổ quát: "Làm gì đấy? Đã bảo ở đây không bán hàng, ai cho chụp card…" rồi tuôn thêm một tràng những từ ngữ thô thiển.
+Ông chủ cửa hàng Phương Thảo cho biết, 3 năm trước vẫn bán hàng cho khách Việt, nhưng sau hàng loạt sự việc không hay, mà mới đây nhất là bị khách hàng Việt lấy cắp đồ, cửa hàng này chỉ còn phục vụ người nước ngoài. Vị này cũng cho biết, nữ khách hàng "tố cáo" mình từng gọi điện đe dọa khủng bố bằng gạch đá, mắm tôm.
+Theo Infonet

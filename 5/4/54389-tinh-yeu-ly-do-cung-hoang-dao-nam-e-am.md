@@ -1,0 +1,51 @@
+---
+title: "Tình yêu Lý do cung hoàng đạo nam 'ế ẩm'"
+date: 2025-06-13T14:53:06Z
+slug: tinh-yeu-ly-do-cung-hoang-dao-nam-e-am
+draft: false
+---
+
+## Tình yêu Lý do cung hoàng đạo nam 'ế ẩm'
+
+## thien su cua hung dong
+
+Bạch Dương (21/03-20/04): Quá nóng
+
+Bạch Dương vốn thẳng tính, nghĩ gì nói đấy, lại chững chạc hơn so với tuổi. Nhưng khi nảy sinh chút chuyện không hay, cho dù có rất can đảm đi nữa, cũng khó lấy được sự cân bằng cảm xúc. Thậm chí, còn dễ nổi bùng lên ngọn lửa tức giận nữa.
+Kim Ngưu (21/04-20/05): Tham công tiếc việc
+
+Tinh thần làm việc hăng say đúng chất "trâu" của Kim Ngưu chắc không ai địch nổi, nhưng dù sao bạn cũng nên bớt chút thời gian dành cho "người ấy". Mặc dù biết bạn làm việc là vì tương lai của hai người sau này, vì không muốn "người ấy" của bạn phải khổ, nhưng có nhất thiết phải làm đến mức quên luôn cả người yêu không, lại còn rất dễ sinh bệnh vì "lao lực" nữa đấy, Kim Ngưu ạ.
+ Song Tử (21/05-21/06): Ham "vác tù và hàng tổng"
+ 
+Quan tâm thái quá, tốt một cách vô điều kiện với người khác, đặc biệt phái nữ là "mác" không thể tách rời những người thuộc cung Song Tử. Lời khuyên chân thành dành cho chàng cung Song Tử đó là khi đã tìm thấy tình yêu thực sự của mình rồi thì không nên mất công mất sức quá vì những người "râu ria" khác, để tránh bị hiểu lầm không đâu.
+ Cự Giải (22/06-22/07): Quá khép mình
+ 
+ Thực chất, con trai Cự Giải là người chồng rất tốt, nhưng lại sống quá khép mình. Cự Giải à, cuộc sống gia đình vẫn biết rất quan trọng, nhưng không nên vì thế mà bỏ qua thế giới rộng lớn bên ngoài vốn cũng rất thú vị và nhiều điều mới lạ. Thỉnh thoảng, bạn nên bớt chút thời gian đưa "người ấy" đi dạo phố, thăm thú bên ngoài, gặp gỡ bạn bè... Như vậy, khi về nhà chẳng phải sẽ có nhiều chuyện hơn để nói, tăng thêm sự lãng mạn, vui vẻ sao
+ Sư Tử (23/07-23/0: Nam tử hán quá mức cần thiết
+ 
+ Con trai cung Sư Tử vốn rất hấp dẫn, nam tính, nhưng đôi khi thích áp dụng những chế tài độc đoán quá mức cần thiết, đặc biệt là trong chuyện tình cảm. Sự kiêu ngạo của Sư Tử đôi khi cần phải "nới lỏng" để thoáng một chút cho cả hai "dễ thở".
+ Xử Nữ (23/08-22/09): Quá yêu thể diện
+ 
+ Cung Xử Nữ luôn thích theo đuổi sự hoàn mỹ, có yêu cầu rất cao với bản thân cũng như với người khác. Nhưng nhân vô thập toàn, bạn không nên nghiêm khắc quá! Xử Nữ nên biết thể diện mặc dù quan trọng, nhưng quan trọng hơn vẫn là cảm nhận bản thân, đừng để đến lúc phải "chết" vì sĩ diện.
+ Thiên Bình (23/09-22/10): Quá mâu thuẫn
+ 
+ Đến việc ăn uống cậu ấy cũng bị mâu thuẫn thì sao "đối phương" không thể chịu đựng nổi.
+ Thần Nông (23/10-21/11): Quá thần bí
+ 
+ Thần Nông ngoài lạnh, trong nóng, thực chất là người chồng tốt sẵn sàng làm tất cả vì tình yêu, nhưng cái tôi quá lớn, lại không muốn nói hết tất cả mọi điều cho "người ấy" biết, nên nhiều khi bị "đối phương" nghi ngờ sự chân thành.
+ Nhân Mã (22/11-21/12): Ham chơi vô đối
+ 
+Haizzz, không thấy cung nào có tư tưởng ham chơi hơn cung Nhân Mã. Lời khuyên dành cho cung Nhân Mã nè, khi nhân duyên đến, Nhân Mã nên biết, bất luận cô bạn ấy ít hay nhiều tuổi hơn, bạn cũng nên tỏ ra là nam tử hán đích thực, chứ không phải một người con trai ham chơi tối này, không có dáng dấp của một người làm chủ gia đình thì đến bao giờ mới lấy được vợ, hix.
+ Ma Kết (22/12-19/01): Quá quan trọng hóa vấn đề
+ 
+Trưởng thành, ổn định, an toàn khiến Ma Kết trở thành lựa chọn lý tưởng trong mắt các nàng, nhưng khi tiếp xúc một thời gian dài, những ưu điểm này sẽ dần chuyển hóa thành sự cứng đầu, bảo thủ, "nhạt nhẽo". 
+ Bảo Bình (20/01-18/02): Quá dư thừa tình yêu
+ 
+ Bảo Bình rất hứng thú với những cảm giác mới lạ, bạn khác giới cứ gọi là nhiều thôi rồi. Xem nào Bảo Bình, nên hạn chế, kìm nén lại cảm xúc đi, đừng "linh tinh" thế chứ! Bạn mà cứ như thế, "người ấy" không nghi ngờ mới lạ đấy.
+ Song Ngư (19/02-20/03): Quá dịu dàng
+ 
+ Song Ngư vốn rất nền nã, là người vô cùng dịu dàng, nhẹ nhàng. Nhưng nhu mì quá thành ra dễ bị bắt nạt, thỉnh thoảng Song Ngư nên tỏ ra tức giận một chút cho mọi người biết tay. Một người con trai đích thực, dịu dàng thôi chưa đủ, đôi khi cần phải tỏ rõ sự mạnh mẽ nữa, đảm bảo sẽ cải thiện "thời gian" lấy vợ của bạn cho mà xem.
+ 
+ 
+ 
+Nguồn: ST

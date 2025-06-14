@@ -1,0 +1,13 @@
+---
+title: "The dominator of the world"
+date: 2025-06-12T23:51:48Z
+slug: the-dominator-of-the-world
+draft: false
+---
+
+## The dominator of the world
+
+## Aries Mar
+
+†††The dominator of the world†††​♥ Bá chủ địa cầu ♥​ ​ ​Chương I​ ​ ​​ ​♥ [Introduce]♥​Author: Aries Mar​Thể loại: Fantasy, Romance, Action,...​Rating: [K]​Tình trạng: on - going​Warning:​1. Giới tính nhân vật hay couple tác giả đã quyết định, sẽ không thay đổi => không xin xỏ hay gây war.​2. Không spam trong fic của tác giả.​Hãy tin rằng tác giả luôn muốn cho các bạn đọc những tác phẩm hay nhất có thể!​Thân!​ ​ ​♥ [Summary]♥​"Trong thần thoại Hy lạp, Typhon (âm Hy Lạp: Τυφῶν, Tuphōn), cũng là Typheus/Typhoeus (Τυφωεύς, Tuphōeus), Typhaon (Τυφάων, Tuphaōn) hay Typhos(Τυφώς, Tuphōs) là người con cuối cùng của Gaia, cha là Tartarus, là thần gió. Typhon âm mưu lật đổ ngôi Zeus để trở thành Vua của các vị thần và loài người. Typhon được cho là một loại sinh vật to lớn nhất và hình dạng kỳ lạ nhất từng được biết đến từ trước đến nay, Typhon có hàng trăm đầu rắn khác nhau. Hắn bị hạ bởi Zeus, và bị ông ta lấy Núi Enta đè lên trên." - [Theo Wikipedia]​ ​100 năm trước, khi tên Titan Typhoon [Τυφῶν] thức tỉnh, hắn đã lén lút nhờ Tartarus - cha mình mua chuộc vị thần của núi Enta và thoát ra khỏi đó. Sau đó, hắn lẻn xuống hạ giới với hình dạng của con người. Rất lâu sau, mười hai vị thần trên đỉnh Olympus mới phát hiện ra rằng Typhoon đã chốn thoát và đang âm mưu làm bá chủ địa cầu. Biết rằng sức mạnh của hắn đã mạnh hơn rất nhiều, mười hai vị thần đã bàn bạc và đi đến quyết định cuối cùng rằng sẽ cho mười hai hậu duệ của họ xuống trần gian để đánh bại kẻ phản loạn ngông cuồng.​Trước khi đi, Zeus và mười hai vị thần đã ban tặng sức mạnh tối cao của mình cho mười hai đứa trẻ, cho chúng cấu tạo cơ thể và hình dạng y hệt con người. Và cẩn thận hơn nữa, họ đã cử Mars - Vị thần bảo hộ cho chiến tranh xuống cai quản lũ trẻ. Khi xuống trần gian làm con người, mười hai đứa trẻ cũng phải đi học như con người, và chúng có một nhiệm vụ quan trọng hơn nữa: tìm ra được tên Titan Typhoon trong hơn 6 tỷ người ở Trái Đất này. ​Sức mạnh của mười hai đứa trẻ được phân ra làm bốn hệ như sau: ​ ​(Lưu ý: Mỗi ảnh tác giả đều chọn rất kĩ lướng và đều có dụng ý của nó)​__________________________________________________________________​Hệ 1:​ ​♥Fire♥​ ​ ​​ ​ ​Cách tấn công chủ yếu: Nhanh và gọn. Thiên về tấn công.​ ​Dấu hiệu: Lửa​ ​Sức mạnh: tích cực​ ​Châm ngôn: "Chúng tôi là riêng, là một, là nhất."​ ​Thủ lĩnh hệ hỏa:​^Bạch Dương - nữ - 17 tuổi​Khi làm con người:​​Khi biến hình:​​ ​ ​Thành viên còn lại:​ ​bHải Sư - nam - 18 tuổi​Khi làm con người:​​Khi biến hình:​​fXạ Thủ - nữ - 17 tuổi​Khi làm con người:​​Khi biến hình:​ ​​GTNV 2: Hệ Thổ - Earth
+GTNV 3: Hệ Khí - Air

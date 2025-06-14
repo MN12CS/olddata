@@ -1,0 +1,21 @@
+---
+title: "[sư tử và bạch dương] khi họ không dành cho nhau"
+date: 2025-06-13T00:20:15Z
+slug: su-tu-va-bach-duong-khi-ho-khong-danh-cho-nhau
+draft: false
+---
+
+## [sư tử và bạch dương] khi họ không dành cho nhau
+
+## baolong2215
+
+dũng cảm trong tình yêu không phải là không ngừng cố gắng để chiếm giữ cô ấy, dũng cảm trong tình yêu là phải  biết dừng lại và chúc cô ấy hạnh phúc. 
+có thể nói bao lâu nay tình cảm của anh dành cho em cũng không đổi, anh lúc nào cũng cố gắng nghĩ xem sẽ gửi gì cho em, viết gì cho em trong sinh nhật thứ 21 này, dù rằng ta chia tay đã lâu, nhưng anh thật sự cũng không ngừng nghĩ về em. từng bộ phim anh xem, từng mẫu chuyện anh đọc, anh đều nhìn thấy em trong đấy. anh thật sự hok hiểu sao anh không thể quen dc em, người ta bảo rằng tình yêu của sư tử khó đến nhưng cũng khó đi, có thể anh là người cổ lỗ sĩ nhất em từng biết, nhưng thật sự mà nói, anh cảm thấy rất khó khăn trong việc bắt đầu 1 quan hệ mới khi chưa thể quên dc em. 
+mấy ngày này anh cố gắng nghĩ xem có nên hay không nên gửi cho em món quà anh hứa. nhưng rồi anh nhận ra rằng là không nên, vì mọi chuyện xảy ra đã lâu, đã hơn 1 năm rưỡi cũng đã trôi qua, mọi chuyện cũng đã khác. là 1 Bạch Dương, em cầm lên được thì cũng có thể bỏ xuống được, anh không biết rằng bây h trong lòng em còn có anh hay không...
+khi nghĩ về em, nghĩ về những chuyện đã qua, anh thường đổ lỗi cho cái cuộc sống của những du học sinh trên đất khách quê người phải gặp. vì sự nghiệp cũng như vì cuộc sống tương lai của chính mình, bây giờ, mỗi con người đó đều phải học cách quên đi những thứ mà đáng lẽ ra, khi còn ở quê hương, mình đã sở hữu. thứ nhất là tình cảm gia đình. khi chọn đi du học, những con người đó phải học được cách tự đứng vững khi không có gia đình ủng hộ. nói tới đây thì gợi cho những ai đọc được dòng này đều cảm thấy rằng những đứa du học như 1 đám con nít khóc đòi mẹ. thật ra thì cuộc sống xa nhà khác hẳn với cuộc sống mình từng có, những con người đó phải cố gắng bương trải, thích nghi và tồn tại với những khó khăn, và cả áp bức, mà nếu không chịu dc, thì sẽ bị đào thải.
+thứ 2 là bạn bè, ai ở đây cũng có những vụ lợi riêng cho chính họ, lợi dụng nhau mà sống, đạp lên nhau để đạt dc mục đích của mình. nhiều lúc sẽ mất cả phương hướng, sẽ không biết ai là bạn mình, ai là người dưng. 
+và cuối cùng là người yêu, với anh, 1 sư tử, anh từ nhỏ đã có 1 ước mơ trở thành 1 bác sĩ, dưới bất cứ lí do gì, hòan cảnh nào, anh đều cố gắng vì 1 mục đích đó. và em, 1 bạch dương, thông minh, sôi động, đã làm cho anh cảm thấy rằng, cuộc sống này không phải như những gì anh nghĩ, em thật sự là 1 mảnh ghép mà lâu nay anh tìm kiếm. chúng ta yêu nhau, 2 con người trẻ tuổi, 2 cung lửa đến bên nhau, đem đến cho nhau hơi ấm, sự động viên khích lệ để vượt qua cái cảm giác cô đơn mà những ai du học xa nhà đều có. nhưng rồi chuyện đến cũng phải đến, anh dc chọn học 1 trường đại học khác, bắt buộc phải rời xa người anh yêu. lúc đầu là 15 phút lái xe, sau này là 1 tiếng 15 phút máy bay. thật ra anh dc lựa chọn để ở lại, nhưng vì cái tôi lớn, uớc muốn chứng tỏ mình của 1 con sư tử, anh đã quyết định rời xa em. 
+xa nhau không lâu, thì anh và em gặp nhau lần nữa và như lời hứa, dù có còn tình cảm hay không, anh cũng sẽ để cho em nói câu chia tay. chắc có thể em sợ cái tôi lớn của anh sẽ làm em bị tổn thương, và anh biết, 1 cô gái bạch dương sợ nhất điều đó. và như thế em nói "mình chia tay anh nhé". anh đã biết trước nhưng cũng không khỏi bàng khòang vi câu nói đó. 
+anh rất buồn nêu vùi đầu vào học tập, vào công việc, vào hoạt động xã hội nhưng mà đi đâu anh cũng đeo trên cổ chiếc nhẫn của em, như 1 vật may mắn, hay 1 kĩ niệm về 1 người vì anh mà làm rất nhiều thứ. người ta cứ bảo anh vô tư, vui vẻ, và cả lạnh lùng khi thẳng thừng từ chối những cô gái bên anh.... nhưng nói thật rằng, anh từ lâu đã coi em là người con gái mà anh yêu nhất.
+xa nhau bao lâu nay nhưng anh không dám tìm gặp lại em, dù anh biết em có bạn trai mới, nhưng đâu đó, anh cũng cố gắng tin rằng em vẫn còn nhớ anh....
+nhưng dù sao anh cũng mong em hạnh phúc, vui vẻ....

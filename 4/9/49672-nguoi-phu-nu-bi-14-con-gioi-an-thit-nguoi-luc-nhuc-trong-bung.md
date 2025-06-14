@@ -1,0 +1,12 @@
+---
+title: "Người phụ nữ bị 14 con giòi \"ăn thịt người\" lúc nhúc trong bụng"
+date: 2025-06-13T12:40:05Z
+slug: nguoi-phu-nu-bi-14-con-gioi-an-thit-nguoi-luc-nhuc-trong-bung
+draft: false
+---
+
+## Người phụ nữ bị 14 con giòi "ăn thịt người" lúc nhúc trong bụng
+
+## Narias
+
+Nếu chẳng may mắc phải trường hợp này, các bác sĩ gợi ý người bệnh nên dùng kem Vaseline bôi quanh vết thương để đàn giòi tự xuất đầu lộ diện, thay vì phải dùng tay nặn bóp chúng ra.​ ​Do không lường trước được mối nguy hiểm do giòi bọ đem lại, chị Catherine Stewart, người Anh đã bị một đàn giòi có kích thước khoảng 1cm mỗi con sống ký sinh trong ổ bụng.​ ​​ ​Những con giòi được lấy trực tiếp từ bụng chị Catherine có kích thước trung bình 1cm.​ ​Theo đó, chị Catherine Stewart, 28 tuổi sống tại thành phố Liverpool, hạt Merseyside, Anh Quốc bị ký sinh trùng ruồi tumbu tấn công sau chuyến ghé thăm Cộng hòa Gambia làm từ thiện mới đây.​ ​​ ​Chị Catherine trong chuyến tới Gambia làm từ thiện mới đây.​ ​Mọi việc tưởng chừng diễn ra thật suôn sẻ khi chị Catherine chỉ phát hiện ra vài nốt đỏ trên cơ thể. Nhưng bất ngờ, một trong số những vết thương nằm ở bụng bỗng chuyển sang sắc vàng, chị mới nhận ra những bất thường đang diễn ra trong cơ thể mình. Khi người phụ nữ dùng tay nặn nốt vàng ra thì phát hiện thứ gì đó đang ngọ nguậy rồi thụt sâu vào trong da.​ ​Dùng một chiếc nhíp gắp, anh Paul - chồng chị Catherine cuối cùng cũng lôi ra một con giòi lớn từ vết thương. Và tiếp đó là một tổ gồm 6 con giòi khác. Điều đáng sợ nhất là khi đã "lôi cổ" được đàn giòi này ra khỏi cơ thể chị Catherine, chúng vẫn còn sống và đang ngọ nguậy.​ ​​ ​Mô tả hình họa cảnh dùng nhíp gắp giòi ra.​ ​Ngay sau đó, chị Catherine đã được đưa tới Bệnh viện Đại học Hoàng gia Liverpool điều trị. Sau 15 phút, Bác sĩ Helen Winslow đã gắp bỏ thêm 8 con giòi nữa ra từ trong bụng chị, nâng tổng số lên tới 14 con.​ ​​ ​Vết thương trên bụng chị Catherine - nơi giòi chui ra ngọ nguậy.​ ​Qua phân tích, Bác sĩ Winslow cho biết, những con giòi làm tổ trong bụng chị Catherine thực chất là ấu trùng ruồi tumbu - một loại giòi "ăn thịt người". Chúng tấn công vào cơ thể vật chủ bằng cách đào hang dưới da rồi "xơi tái" vùng thịt bên dưới.​ ​Ruồi tumbu cái đẻ trứng lên khăn tắm hoặc quần áo ẩm - nơi dễ tiếp xúc với làn da con người nhất. Từ đó, trứng ruồi xuyên qua da, đi vào cơ thể. Vì vậy, các bác sĩ đã đưa ra lời khuyên sấy hoặc là khô quần áo ẩm trong điều kiện nhiệt độ đủ để giết chết trứng côn trùng trước khi mặc vào người.​ ​Nguồn kenh14.vn​ ​

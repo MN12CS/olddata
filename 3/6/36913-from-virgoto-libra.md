@@ -1,0 +1,73 @@
+---
+title: "From: Virgo......To: Libra"
+date: 2025-06-13T00:48:23Z
+slug: from-virgoto-libra
+draft: false
+---
+
+## From: Virgo......To: Libra
+
+## Jul2412
+
+Tháng 9 trời se lạnh làm tớ bỗng nhiên nghĩ tới cậu, chàng trai Thiên Bình kỳ lạ mà tớ ghét lắm, nhưng lại chắng thể quên được! 
+Cậu có một nét gì đó rất đặc biệt, khác với Kim Ngưu, Song ngư hay Sư Tử. Cậu không có vẻ đẹp trai giống như tài tử, không lãng mạn, đôi lúc rất trẻ con, nhưng nhiều khi lại giống như một ông cụ non già trước tuổi.  Chẳng hiểu sao, tớ lại thích cậu, rất thích là đằng khác
+                                                                                                               Ngày...tháng...năm...
+Hôm nay, lớp mình chữa bài Kiểm Tra Văn 1 tiết. Tớ với cậu cùng lên chữa bài. Tớ làm sai mất mấy câu, còn cậu đúng hết. Lúc đó, tớ rất tức tối vì đã bị vượt mặt. Nhưng tối hôm đó, tớ cứ trằn trọc mãi, không sao ngủ được. Tớ nhớ tới cậu, đứa con trai đã chê tớ học kém Tiếng Anh. Tớ đã quyết tâm phải học thật giỏi Tiếng Anh và Văn để tả mối hận này. 15p sau... 20p sau.. Tớ  vẫn thao thao bất tuyêt, Haizz`. Có lẽ tớ thích cậu? Không. Không thể như thế! Tớ cố nhắm mắt lại nhưng vẫn không sao ngủ nổi. Tớ đành chấp nhận sự thật và sẽ theo đuổi cậu đến cùng.
+                                                                                        
+                                                                                                                Ngày... tháng...năm...
+Tớ tặng cho cậu một hộp chocolate nhưng cậu lại nỡ vứt nó một cách phũ phàng. Tớ đau lòng. Con tim tớ như tan vỡ thành ngà mảnh. Cậu đâm một nhát dao rất sâu vào nó. Tớ khóc, khóc rất nhiều, nhưng bạn bè đã lôi tớ dậy. Chưa bao giờ tớ có cảm giác buồn như vậy. Lòng tớ nặng trĩu. Tớ càng quyết tâm phải danh được cậu. Điểm Tiếng Anh của tớ đã khá hơn rất nhiều, cậu vẫn chẳng thèm để ý đến tớ. Cậu thậm chí còn chẳng coi tớ như một đối thủ, mặc dù tớ nhiều lần thách thức cậu.
+                                                                                                               Ngày...tháng...năm...
+ 
+Cô giáo lên danh sách đi thi Tiếng Anh cấp Quận. Mặc dù điểm tổng của tớ bằng với điểm tổng của cậu nhưng cô lại chọn cậu chứ không phải là tớ. Tớ thấy nuổi tiếc một chút, nhưng đã tự nhủ rằng, cậu giỏi hơn tớ. Cậu làm vỡ lọ hoa của lớp khi đi qua bàn cô để tranh cãi với tớ về quyền đi thi. Tớ muốn lắm chứ, tớ học bao nhiêu lâu là để chờ ngày này cậu biết không? Cuối cùng, tớ nói dối về điểm 1 tiết để cô chọn cậu. Còn về vụ cái lọ hoa thì tớ không có cách nên đành ngậm cười đau khổ. Để cậu đền lớp cái lọ hoa cũng coi như cậu đền bù cho tớ nhưng ngày chờ đợi nhỉ?
+                                                                                                                Ngày...tháng...năm...
+Một chuỗi kì nghỉ hè nhàm chán bắt đầu. Tớ nhớ cậu, nhớ lắm. Nhưng chẳng có cách nào gặp được. Tớ biết địa chỉ, số điện thoại cảu cậu đấy, thì làm sao? Tớ không đủ can đảm để gọi hay chỉ là đứng nhìn cậu từ xa. Tớ đành đợi vậy. Tớ đã đợi rất lậu rồi. Cả một năm học dài đằng đẵng tớ còn đợi được, huống chi đây chỉ là hơn 1 tháng cỏn con. Tính cả học hè nữa mà.  
+                                                                                                              Ngày...tháng...năm...
+           
+ 
+'Chỉ muốn yêu một ai đó, yêu đến hết cuộc đời này ! 
+Nhưng... 
+- Sợ cái cảm giác mất đi người mình yêu thương 
+- Sợ phải đối mặt với cái thời khắc chia tay ... ! 
+- Và sợ phải bắt đầu lại từ đầu với một ai đó, khi mà không còn cảm thấy tin tưởng bất cứ ai"                                                                             
+ 
+                                                                                                                 Ngày...tháng...năm...
+ Thời gian trôi nhanh thật. Bỗng chốc đã đến tháng 7, tớ lại được thấy cậu. Nhưng giống như hai kẻ xa lạ vậy. Cậu học nhóm giỏi, còn tớ học nhóm khá. Cuộc đời tớ giống nư một chuỗi bất hạnh vậy. Tớ và cậu đã đi trên hai con đường. cậu Toán, tớ Văn. Cậu học giỏi, là trò cưng cảu cô giáo, còn tớ thì chỉ là một học sinh bình thường, thậm chí kém cỏi. Tớ cũng đã ngĩ đến việc từ bỏ nhưng lại nhớ đến những gì tớ đã bỏ ra lại không nỡ từ bỏ.
+                                                                                                               Ngày...tháng...năm...
+Cô thu bài thi thử Olympic hôm nay. Thật là sung sướng! Cậu đã chịu trao đổi bài với tớ. Cả nhóm chúng mình quây quàn lại cừ nói vui vẻ, Trao đổi, tranh cãi đến tận giờ văn. Tiếc quá!!!!!!!!!! Cô chỉ cho mỗi một bài. Giá như thêm vài bài nữa, vừa như cơ hội ôn luyện, vừa được trao đổi bài. 
+                                                                                                              Ngày..tháng...năm... 
+Cả hai Libra đều quên bài để cô chữa. Mình lại có có hội cho người ta mượn bài rồi chữa bút đỏ vào. lúc chiều xme số báo danh, cậu  còn nói chuyện với tớ nữa chứ. Vui quá! Chắc hôm nay mình làm bài tốt đây!  Trong phòng thi,  tớ ngồi trước cậu. Hết giờ thu bài, mấy đứa lại còn ở lại bàn đáp án và nói chuyện. Tâm trạng tớ rất tốt. Đêm nay chắc mất ngủ đây!
+                                                                                                              Ngày...tháng...năm...
+AAAAAAAAAAAAAAA! Shock. Xem kết quả thi khiến tớ mừng suýt khóc. Tớ được những 14 điểm. Có thể số điểm đó chưa thực sự cao nhưng tớ rất vui vì qua vòng trường, Song song với niềm vui cũng có những nỗi buồn. Cậu cùng người bạn thân của tớ chỉ được 11 điêm. Tớ mong dưới các cậu có đủ 20 người để nhóm mình cùng qua vòng trường và có cơ hội ngồi gần nhau trong phòng thi. ( Cùng A mà ^^ ). Cũng coi như niềm vui của tớ chấm dứt từ nay đi. 
+                                                                                                              Ngày...tháng...năm...
+Hôm nay trả bài kiểm tra Tiếng Anh 1 tiết. Lúc đọc đến tên tớ 9.8, bất chợt cậu " Yeah" một tiếng khiến tớ giật nảy mình vì lo tớ nghe nhầm. Nhưng không phải. May quá! Lại tiếp tục thi Lịch Sử. Tớ ngồi trước cậu. Không tài nào tập trung suy nghĩ được. Run quá. Không biết lúc tớ dãm mạnh chân có vào chân cậu không? Lúc cuối giờ cậu hỏi bài tớ đó. Tuy câu này không ai làm được nhưng vẫn vui. Chúc cậu qua vòng trường. Coi như tớ đền bù vì cao điểm Tiếng Anh hơn cậu. ^^ 
+                                                                                                             Ngày...tháng...năm...
+ Xin lỗi nha Libra! Tớ đã hết tình cảm với cậu rồi. Chỉ còn chút nuối tiếc thôi. Có thể tớ là người Sáng nắng chiều mưa, nhưng tớ thấy không xứng với cậu! Tớ đã làm khổ cậu suốt thời gian qua! Trở thành bạn bè vẫn được đúng không? Tớ sẽ đi tìm một thứ khác làm tớ hạnh phúc ( Tiếng Anh chẳng hạn ).
+ Tất cả chỉ là những giấc mơ không hồi kết... những vòng tuần hoàn giãn ra mà mãi mãi chẳng khi nào co lại được... những vòng tròn đứt mạch và không khép lại được bao giờ... những giọt nước mắt ước một lần không rơi như thế để chẳng bao giờ thấy phí hoài cho người không còn xứng đáng!
+  Cảm giác đầu tiên trong tớ ùa về, tớ nhớ cậu nhiều vô kể... 
+ Đếm từng nhịp bước chân, đi qua từng con đường, ngõ phố thân quen, lòng lắng lại, như khẽ chạm tay vào mùa đông để nói lời tạm biệt. Và một ký ức xưa tưởng đã ngủ yên lại thức dậy trong lòng và rung lên thành cung bậc, những cung bậc xốn xang… giữa khúc giao mùa…Tháng Tư! 
+                                                                                                             
+  Con người: 
+• Ai cũng có lúc.. 
+• Rung động vì một người khác.. 
+♥ Nhưng phải : 
+• Đủ tỉnh táo để nhận ra...  
+• Đâu là thoáng qua.. 
+• Và đâu mới là Thương Yêu thực sự... 
+♥ Và thêm nữa : 
+• Con người... 
+• Dù có mạnh mẽ đến đâu... 
+♥ Thì một lúc nào đó : 
+• Khi đã vượt quá sức chịu đựng... 
+♥ Thì : 
+• Những nỗi đau... 
+• Những tổn thương...
+                                                                                                              Ngày...tháng...năm...
+ Hôm nay trong giờ học, tự nhiên thấy cậu ngồi tự kỉ một mình. Tớ bật cười, nhưng mắt lại rơm rớm nước. Tớ tự hỏi vì sao lại thích cậu để tự tìm lấy đau khổ. Tớ vẫn chưa quên được hình bóng cậu trong lòng tớ, mặc dù đã thích người khác. Rồi gió sẽ mang cậu đi. Liệu có bay về chỗ tớ không nhỉ? Người tớ thích không tuyệt vời như cậu. Cậu ấy sở hữu chiều cao khiêm tốn, không có bàn tay thon dài, mịn màng như cậu ( tớ rất thích điểm đó ), học hành cũng bình thường, không giỏi giang giống cậu. Nhưng tớ với cậu ấy có cùng sở trường đấy. Chúc tớ hạnh phúc và sẽ chinh phục được Leo chứ cậu! Không làm ny nhưng vẫn là bạn được mà! 
+ 
+Qua rồi những ngày tớ bất chấp tất cả chỉ để yêu cậu, tớ từng yêu cậu hơn hết thảy, hết thảy mọi điều. Qua rồi những ngày tớ phủ định chính mình để cho phép tớ mỉm cười trước những đau đớn mà cậu mang lại. Và giờ đây, tớ cũng sẽ can đảm mà tạm biệt anh cậu một nụ cười như thế
+
+
+.
+                                                                                                                   Ngày...tháng...năm...
+ Tớ quyết định rồi. Tớ sẽ không rung động dễ dàng như thế nữa! Cuộc đời còn dài, nhiều cơ hội đang chờ đợi trước mắt ta. Tương lai vẫn đang rộng mở chờ tớ. Với lại 14-4 tớ còn phải đi thi Olymipic quận. Không thể vì tình cảm mà nhường cho đối thủ được ( dù là người mình thích ) 
+Nguồn: Zing me (bài này của bạn ta và nó đã đề nghị sẽ để ẩn danh khi đăng lại nên ta không cho lnk được, sr)

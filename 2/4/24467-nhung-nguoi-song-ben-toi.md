@@ -1,0 +1,12 @@
+---
+title: "Những người sống bên tôi."
+date: 2025-06-12T23:04:40Z
+slug: nhung-nguoi-song-ben-toi
+draft: false
+---
+
+## Những người sống bên tôi.
+
+## doraemon94
+
+Tên truyện: Những người sống bên tôi.Tác giả: Doraemon94.Thể loại: Tình cảm,hiện đại.Rating: K+Nội dung:Cuộc gọi lúc nửa đêm.2.30 a.m♪♫♪♫♪♫♪♫♪♫.....Tiếng chuông điện thoại của tôi cứ réo lên không ngừng.Thiệt tình...không hiểu ai lại điện thoại tới vào cái giờ này cơ chứ?Tay tôi quờ quạng kiếm cặp kính mắt ở đầu giường,để xem ai gọi nào....M...M...Ma Kết. Ma Kết? Cái con nhỏ này thiệt là ...chẳng có phép tắc gì hết,nửa đêm nửa hôm lại gọi tới phá đám giấc ngủ của người ta.Có chuyện gì thì cứ để từ từ mai nói cũng được chứ sao lại...Phải sạc cho nhỏ 1 trận mới được._"Alô.Này Kết ơi có việc gì mà bà lại gọi đến nhà tôi khuya khoắt thế hả?Bộ tính không cho tui ngủ hả?Có biết là hôm nay tui mệt lắm không?Tự dưng mấy ông thanh tra ở sở lại đến kiểm tra đột xuất nên chỗ tôi hôm nay cứ gọi là loạn cào cào lên cả.Bla...bla...bla..."-Vừa nhấc máy lên nghe 1 phát là tôi bắn luôn 1 tràng,tại bức xúc quá mà nhưng...._"Hức...hức....Cự Giải ơi! Cứu tớ với....Cậu làm cách nào cứu tớ đi.Nếu không tớ chết mất....."-Đầu dây bên kia thút thít._"Này!Cậu nói cái gì cơ?Cứu cậu á?Nhưng mà cậu làm sao?"-Tôi nghe vậy hoảng quá,tỉnh cả ngủ,vội vã hỏi lại._"Tớ...tớ chết mất thôi.Cậu cứu tớ với.....Hức,hức."_"Thế cậu bị làm sao?Cậu phải nói thì tớ mới biết cách để cứu cậu chứ?"-Tôi gắt lên. Đầu dây bên kia đột nhiên bật khóc nức nở:"Tớ....tớ....2...2...tớ vừa mới thử....2 vạch rồi...tớ phải làm sao đây?"_"Cái gì? 2 vạch? 2 vạch gì?Chẳng lẽ........?"-Tôi lờ mờ nhận ra mọi chuyện-"Thế cái thằng kia đâu?"_"Tớ không biết.Tớ nhắn tin anh ấy không trả lời,gọi điện anh ấy cũng không nghe.Tớ tìm đến chỗ trọ thì mới biết ảnh đã chuyển đi gần tuần nay rồi...."_"Giời ơi là giời!Tớ đã bảo mà không nghe,giờ thì sướng chưa?"_"Tớ phải làm gì bây giờ?Mẹ tớ mà biết chắc tớ chết mất.Cậu cứu tớ đi,cậu....tút....tút....tút..."_"Này....này...."-Tôi cố gọi với vào điện thoại nhưng vô ích.Tôi thần người ra, buông thõng chiếc điện thoại xuống giường "Cứu cậu ư?Nhưng tớ biết làm gì để cứu cậu bây giờ?" ..................................... Đây mới chỉ là phần đầu của câu chuyện..............Tôi phải làm gì để mang lại hạnh phúc cho những người sống bên tôi đây?GTNV nữ ~ GTNV nam ~ CoupleChap 1

@@ -1,0 +1,12 @@
+---
+title: "Xuyên không là nghề của ...ngươi"
+date: 2025-06-12T23:57:16Z
+slug: xuyen-khong-la-nghe-cua-nguoi
+draft: false
+---
+
+## Xuyên không là nghề của ...ngươi
+
+## Grellee
+
+Xuyên không là nghề của ...ngươi· Tác giả : Grellee§ Thể loại:Xuyên không ,trọng sinh ,huyền huyễn,ngôn tình,cổ đại· Nội dung : Sáu cô gái chết bắt đắt kỳ tử và bị ép xuống Diêm phủ làm nghề xuyên không .Các cô sẽ phải xuyên liên tục và đủ kiểu qua nhiều người cho tới khi nào tim bị tên nào bắn trúng thì về làm vợ kẻ đó ,kết thúc kiếp hồn phiêu diêu nay đây mai đó của mình...GTNV chính(Các nhân vật phụ trong chương khác sẽ có)Nhóm nữ quái trước đây chỉ gồm năm thành viên nay thêm Cự Giải thì thành ra sáu.Bảo Bình thủ lĩnh Cô là người lạnh lùng ít biểu hiện cảm xúc cũng như Thiên Bình đã có một câu lột tả bản chất của cô thế này "Càu nhàu ,làu bàu không kém Xữ Nữ , kỷ luật khô khốc như Ma Kết , tự kiêu tự đại chẳng kém Sư Tử !"Hay Song Tử có nói qua "Cái con nhỏ này nhìn lạnh vậy chứ cũng nóng nẩy, ham chơi ,trẻ con chẳng kém gì mình đâu a !”Phải , Bảo Bình là 1 con người trái khoáy thế đấy !Thiên Bình bảo mẫuQuan tâm châm sóc, rất ưa vạch lỗi rồi dạy đời con người ta,hay đanh Bạch Dương vì tội trẻ con và hay uất ức khi bị đa số thành viên phản lại hoặc không thèm nghe . Chuyên gia săm soi , "kén cá chọn cạnh,rất khó vừa lòng ",mà ko vừa lòng đc thì "HỪ",đâm ra dễ phẫn nộ .Tuy nhiên nấu ăn ,ca múa ,thêu thùa ,làm đẹp cho mình và cũng như cho người rất khéo và rất giỏi .Chăm sóc con ngươi ta cũng rất kỹ.Hình mẫu những bà nội trợ xưa ?À ,chưa chắc đâu ! Chỉ hao hao giống thế thôi .Vì Thiên Bình cũng là một đứa con gái không thích cam chịu !Bạch DươngLà đứa liều lĩnh nhất ,suy nghĩ cấp tốc nhất,lớn miệng nhất và dám vô tư buông câu phũ phàng nhất.Cũng là chuyên gia bị Thiên Bình "Cốc" đầu nhưng hay được Song Tử cổ vũ , Sữu Linh ủng hộ .Tiểu Sửu hay Sửu Linh con giáp (trâu)duy nhất trong 6 chòm sao này đấy nhé !Hiền lành , chân thật ,chất phát nhất nhưng khi phát khùng lên thì hãy coi chừng ...Có đủ sức để ủi bay cả đámSong Tử tay hài và là kẻ phản pháoVui vẻ,nóng nẩy, ham chơi ,trẻ con nhưng triết lý cũng ghê lắm . Hay phản pháo dễ khiến người ta phun máu nhưng hài thì hài tới bể bụng.Có suy nghĩ cấp tiến và có tinh thần cổ vũ cao .Cự Giải em útMới gia nhập nhóm đây thơ nên sự thơ ngây và mít ướt của cô đã khiến cả nhóm ăn thề . Đc cưng nhất nhóm mà hả , dịu dàng nhất nhóm

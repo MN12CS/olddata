@@ -1,0 +1,26 @@
+---
+title: "[Thông tin] Sách du ký: hấp dẫn vì cảm xúc rất thật"
+date: 2025-06-13T11:33:24Z
+slug: thong-tin-sach-du-ky-hap-dan-vi-cam-xuc-rat-that
+draft: false
+---
+
+## [Thông tin] Sách du ký: hấp dẫn vì cảm xúc rất thật
+
+## teddyhangvu
+
+PN - Mảng sách hồi ký vừa lắng xuống, thị trường xuất bản lại rộ lên dòng sách du ký. Nhiều đơn vị xuất bản tham gia khai thác, nhiều tựa sách cũ - mới ra đời.
+ 
+Nhà xuất bản (NX Tri Thức vừa cho ra mắt Phạm Quỳnh - tuyển tập du ký, chọn lọc bảy tác phẩm tiêu biểu của học giả Phạm Quỳnh như: Mười ngày ở Huế, Một tháng ở Nam Kỳ, Trảy chùa Hương, Pháp du hành trình nhật ký… Trước đó, NXB Trẻ phát hành bộ ba cuốn Du ký Việt Nam, tập hợp những bài du ký hay, đăng trên Nam Phong tạp chí (1917 - 1934) của các cây bút Phạm Quỳnh, Đông Hồ, Mộng Tuyết, Nguyễn Bá Trác… Đơn vị này cũng từng thực hiện tuyển tập Trần Bạch Đằng - du ký, gồm các bài viết của tác giả Trần Bạch Đằng ghi chép các chuyến xuất ngoại của ông qua 19 quốc gia và vùng lãnh thổ trong quãng thời gian 20 năm. Sách du ký nước ngoài đáng chú ý có tác phẩm kinh điển được xem là một trong 20 cuốn sách du ký hay nhất mọi thời đại Phương Đông lướt bên ngoài cửa sổ của Paul Theroux do NXB Thế Giới ấn hành…
+ 
+Những tác giả “đời đầu” của dòng sách du ký có thể kể đến nhà báo Phan Quang với bộ ba cuốn Thơ thẩn Paris, Chia tay trên sông và Bên mộ vua Tần (NXB Kim Đồng). Xa hơn, có Văn Cầm Hải với cuốn Trên dấu chim di thê (NXB Trẻ) với giọng văn da diết, hoang hoải, khai thác sâu những cảnh huống, tâm trạng mà tác giả bắt gặp ở nhiều nước châu Âu trong quãng thời gian tham gia khóa học tại Hà Lan. Nhóm tác giả “đời giữa” có Ngô Thị Giáng Uyên với cái nhìn duyên dáng, nhẹ nhàng thể hiện qua Ngón tay mình còn thơm mùi oải hương, Bánh mì thơm, cà phê đắng, phản ánh văn hóa, lối sống, ẩm thực các quốc gia châu Âu. Hoặc Trung Nghĩa với cuốn Sydney yêu thương viết về những tiếp xúc đa văn hóa, kinh nghiệm học tập ở xứ người, là sách “gối đầu giường” của những bạn trẻ muốn du học Australia…
+ 
+Thế hệ mới nhất “nhảy” vào dòng chảy này khá đông đảo và xông xáo. Tác giả Trần Hùng John với cuốn John đi tìm Hùng (NXB Kim Đồng) ra mắt tại TP.HCM hôm 1/6 là dẫn chứng mới nhất. Khác với nhiều tác giả chọn đi ra nước ngoài để trải nghiệm, Trần Hùng John (Việt kiều Mỹ) quay về Việt Nam sống và thực hiện hai hành trình đi bộ xuyên Việt tổng cộng 120 ngày chỉ với một ít tiền và vật dụng cá nhân. Cảm nhận và trải nghiệm về đất nước, con người Việt Nam trong 80 ngày của chuyến đi đầu qua khoảng 20 tỉnh thành, được tác giả đưa vào cuốn sách. Một lăng kính khác đã được dùng để nhìn về mảnh đất mà nhiều người sống ở đó thấy không còn có gì lạ. Với tác giả sinh năm 1989 này thì “một người đi nhiều nơi sẽ có nhiều cơ hội để nhìn thấy những điều mà không cuốn sách hay bức tranh nào có thể kể, tả được. Những trải nghiệm đó có thể thay đổi một con người”, như chính tên cuốn sách.
+ 
+​ ​Hình ảnh trên đường của các tác giả Phan Việt, Phương Mai, Huyền Chip và Trần Hùng John​ ​Gây chú ý gần đây còn có Nguyễn Phương Mai với cuốn sách mang tựa khá “sốc” Tôi là một con lừa (NXB Hội Nhà Văn). Ngoài việc thể hiện những chuyến đi của tác giả qua hàng chục quốc gia theo đúng kiểu dân du lịch bụi, những câu chuyện trong sách còn giải đáp phần nào cho cái tựa “gây hấn”, rằng “những định kiến đã khiến chúng ta sai lệch, thậm chí ngu ngốc, để thấy sự lố bịch của con người trước tự nhiên vĩ đại, để thấy sự nguy hiểm của tâm lý đám đông, hay để nhận ra vẻ đẹp cuộc sống ở khắp mọi nơi”. Những trang viết khác của Phan Việt với Một mình ở châu Âu, Huyền Chip - Xách ba lô lên và đi, Trương Anh Ngọc - Nước Ý, câu chuyện tình của tôi, Dili - Đảo thiên đường, hay Lê Thanh Hải với Warsawa thân yêu, Hoàng Yến Anh (Dưới nắng trời châu Âu), Nguyễn Phan Quế Mai (Từ tuyết đến mặt trời), các thành viên Box Du lịch (Hạnh phúc lang thang), v.v… cũng đều tạo dấu ấn theo những cách khác nhau.
+ 
+Sức hấp dẫn của thể tài du ký là rất rõ, khi mọi thông tin hiện nay đều có thể tìm thấy trên mạng internet, nhưng những trải nghiệm, chia sẻ, soi chiếu, xúc cảm rất thật của các tác giả qua những chuyến du lịch khắp thế giới, từ chính thống đến bụi phủi, luôn tạo ra độ kích ứng nơi người đọc (đơn cử, tập một của Xách ba lô lên và đi bán hết 5.000 bản chỉ sau bốn ngày phát hành). Các đơn vị làm sách cũng đã nhanh chóng nhận ra ưu thế của mảng sách này trong thị hiếu đa dạng của lớp độc giả hiện đại.
+ 
+Phía các tác giả, nhiều người thừa thắng xông lên thực hiện phần tiếp theo. Huyền Chip cho biết sắp ra mắt tập hai của Xách ba lô lên và đi viết về những chuyến đi châu Phi, sau đó sẽ là tập ba với trải nghiệm châu Mỹ. Nguyễn Phương Mai đã hoàn tất một nửa hành trình đến các nước Hồi giáo để viết tiếp cuốn thứ hai Con đường Hồi giáo trong series Lên đường với trái tim trần trụi của mình. Tác giả Lê Thanh Hải sau cuốn du ký về Ba Lan sẽ tiếp tục với các đầu sách lần lượt về các miền đất mà anh từng sinh sống hoặc đi qua như Việt Nam, Anh, Thái Lan… Nhà văn Phan Việt sau cuốn Một mình ở châu Âu, cho biết sẽ viết tiếp hai cuốn nữa, cùng nằm trong bộ bút ký Bất hạnh là một tài sản của cô…
+ 
+ Võ Tiến​

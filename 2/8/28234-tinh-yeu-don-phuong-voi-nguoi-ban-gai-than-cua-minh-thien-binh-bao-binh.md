@@ -1,0 +1,20 @@
+---
+title: "Tình yêu đơn phương với người bạn gái thân của mình *Thiên Bình - Bảo Bình*"
+date: 2025-06-13T00:07:57Z
+slug: tinh-yeu-don-phuong-voi-nguoi-ban-gai-than-cua-minh-thien-binh-bao-binh
+draft: false
+---
+
+## Tình yêu đơn phương với người bạn gái thân của mình *Thiên Bình - Bảo Bình*
+
+## duonglibra
+
+........Không biết bạn nào đã đọc "Cô gái năm ấy chúng ta từng theo đuổi" chưa nhỉ? Ừm.. tớ cũng đang trong tình trạng đấy: Trót yêu người bạn thân. Tớ và bạn đó biết nhau đã ba năm. Họ chung lớp, ngồi chung bàn.  Nhưng có thể nói đã hiểu nhau rất sâu sắc. Cô ấy từng có hai người bạn trai và có rất nhiều kỷ niệm với họ. TỚ cũng đã từng yêu một cô gái rất say đắm. Trong suốt những năm qua, bọn tớ chỉ dừng ở mức bạn thân thiết, chia sẻ tất cả mọi chuyện dù là bí mật nhất, nhỏ nhất và thường xuyên chọc ghẹo nhau. CÔ ấy nói rằng : "Chỉ có cậu là người mà tớ có thể tự do thể hiện Tớ là ai". Ok một tình bạn không đáng bàn cãi.
+ ............Nếu không có cái lần ấy. Lần mà tớ vửa bị cô bé Kim Ngưu ( người tớ đang yêu) rời xa tớ. Tớ mất hơn hai tháng trời vật lộn với cảm giác bị bỏ rơi ấy, tất nhiên là luôn kể cho cô bạn tớ nghe. Thật không may, ít lâu sau đó, cô bạn tớ cũng bị bạn trai phản bội và chia tay. Trong ngày sinh nhật tớ, lúc mọi người ra về, cậu ấy mới ôm tớ từ đằng sau và khóc nức nở nói rằng đã bị phản bội. Trong khoảnh khắc đó, tớ rung động thật sự và muốn che chở, bảo vệ cho cậu ấy. SUốt một thời gian sau đó, tớ luôn động viên và an ủi cậu ấy. Tớ như gã ngốc lăng xăng bên cậu ấy. Và thực sự trái tim tớ hạnh phúc, rất hạnh phúc. Những lúc hai đứa trò chuyện , nhìn vào mắt nhau, những lúc cậu ấy dựa đầu vào vai tớ. Tớ tin tớ đã yêu .Nói một chút về hai bọn tớ nhé!
+
+	
+	
+ .
+ 
+ ............Tớ là một Thiên Bình điển hình. Cậu ấy cũng là một Bảo Bình điển hình. Cậu ấy cá tính, mạnh mẽ, tớ đằm, lãng mạn. Suốt những năm bạn bè, tớ và cậu ấy có rất nhiều sở thích chung và phải nói là rất hợp cạ. Cậu ấy có suy nghĩ về tình yêu khác chững chạc. Tớ thì khờ và trẻ con  Cậu ấy rất hay la tớ và động viên tớ học bằng những phương pháp rất...bạo lực ^^ Tớ nhút nhát và chả bao giờ dám nói "Tớ yêu cậu" mà chỉ là "Tớ mến cậu". À, cậu ấy còn chăm sóc cho mình rất chu đáo nhưng chả bao giờ muốn thừa nhận ;(( à, cậu ấy rất thường xuyên đến nhà tớ, học bài dùng cơm chung với gia đình tớ. Hai đứa cứ tí tũn miết ^^
+ Thế là tớ quyết định sẽ nói ra tình cảm của tớ. Nhưng không may, người bạn trai cũ ( không phải người phản bội) quay về. Đây là người gắn bó với cậu ấy nhiều nhất, gia đình hai bên chơi từ bé, năm lớp 9, do hiểu lầm họ mới xa nhau. Anh ấy về và nói vẫn yêu cô bạn tớ, rồi nhắc lại những ký ức xưa làm bạn tớ rung động. Trong cái hôm tớ nói thích cậu ấy cũng là cái hôm cậu ấy chấp nhận lời yêu của anh kia.Tớ sock nặng và cảm thấy rất rối bời. Cậu ấy từ chối tớ, nói rằng chắc do tớ thân quá nên như thế. Còn bông đùa rằng k biết tớ có duy trì được một năm không. Tớ xem cậu ấy như là nữ thần trong lòng mình. Mỗi lần tớ nhìn thấy cậu ấy, trái tim tớ rung bần bật và tâm hồn tớ nhẹ tênh. Anh kia ghen với tớ  nhưng lại tỏ vẻ thương hại tớ ( tớ bị bệnh ) . Và không muốn chúng tớ thân nhau nữa, nói cô bạn tớ đừng cho tớ hy vọng. Trong khi cô bạn tớ gần như không thể ngừng thân mật với tớ dù chỉ một ngày. Sau khi đọc xong "Cô gái năm ấy chúng ta từng theo đuổi" , tớ tự hỏi liệu có như Kha Cảnh Đằng theo đuổi cô bạn mình suốt 8 năm ròng.? TỚ thật sự muốn chờ đợi. Bọn tớ thi cùng trường Đhọc.. Tớ phải làm sao??? Chỉ biết là, cậu ấy coi tớ cũng không hẳn là bạn thân, một mối quan hệ rất khó hiểu. Tớ biết Bảo Bình là như thế. Nhưng, tớ đã yêu rồi. Trong tác phẩm, Thẩm Giai Nghi đã từng có tình cảm với Kha Cảnh Đằng nhưng Kha Cảnh Đằng lại sợ sệt không dám nghe Giai Nghi nói, Khi viết những dòng này, tớ nhớ cậu ấy rất nhiều. " You're the apple of my eye". Các cậu giúp tớ với ...

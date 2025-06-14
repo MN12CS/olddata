@@ -1,0 +1,16 @@
+---
+title: "[Chia sẻ] Những sao có ngoại hình dễ gây nhầm lẫn"
+date: 2025-06-13T13:40:03Z
+slug: chia-se-nhung-sao-co-ngoai-hinh-de-gay-nham-lan
+draft: false
+---
+
+## [Chia sẻ] Những sao có ngoại hình dễ gây nhầm lẫn
+
+## Âu Dương Sảnh
+
+Vì họ giống nhau đến kì lạ, dù không có máu mủ hay quan hệ họ hàng gì. Sảnh đã làm một bản tổng hợp kha khá, sẽ up dần lên cho mọi người cũng thảo luận, chia sẻ 
+ 
+1. Châu Tấn - Lý Tiểu Lộ.
+ 
+ ​Châu Tấn...​ ​ Không ai còn xa lạ với nữ diễn viên của "Mùa Quýt Chín". Là một sao điện ảnh rất nổi của màn ảnh Trung Quốc, nhiều người phải ngỡ ngàng vì gương mặt gần như sinh đôi với đàn em Lý Tiểu Lộ nữ diễn viên 7x.​ ​ ​... có gương mặt dễ gây nhầm lẫn với đàn em Lý Tiểu Lộ.​ ​Có khác chăng chỉ là gò má cao và chiếc cằm nhọn hơn của Lý Tiểu Lộ mà thôi.​ ​ ​2. Kim Tae Hee - Ji-yoen.​ ​À ha. Trường hợp này long trọng không kém hai nàng minh tinh C-biz bên trên. Không biết họ có gặp nhiều vấn đề khi bị nhận nhầm không. Tuy nhiên, để ý kĩ thì Ji-yoen vẫn có gương mặt non hơn và bọng mắt cũng nhỏ hơn đàn chị.​ ​​ ​Cô ca sĩ trẻ nhất của T-Ara Ji-yoen....​ ​ ​​ ​... có gương mặt trẻ hơn đàn chị Kim Tae Hee.​ ​ ​3. Hà Nhuận Đông - Masayuki Deai.​ ​Điện ảnh Nhật Bản không quá phát triển ở khu vực Đông Nam Á nên cái tên Masayuki Deai có thể còn xa lạ với chúng ta. Nhưng nếu bạn có biết đến series Go-go Sentai rất nổi tiếng của Nhật Bản thì không thể nào không biết chàng Bouken Silver trong Boukenger. Này, anh này giống Hà Nhuận Đông ghê ấy. Có điều ít hơn 6 tuổi thôi.​ ​​ ​Masayuki Deai​ ​​ ​ Peter Ho - Hà Nhuận Đông.​ ​4. Teresa Palmer - Kristen Steward.​ ​Không chỉ có khuôn mặt hao hao mà tình yêu của hai cô nàng cũng "dị" như nhau. Một cô yêu anh Zombie đẹp trai trong Warm Bodies. Cô kia lại gặp rặc rối với chàng Vampire đa tình của series Twighlight. Khác nhiều nhất có lẽ là... màu tóc.​ ​​ ​Bức ảnh này càng làm Teresa giống Kristen.​ ​​ ​ ​5. Maia Michelle - Selena Gomez.​ ​Lại thêm một cặp chị em không có họ hàng của điện ảnh Mỹ là Maia và Selena. Các bạn có thể thấy họ không giống nhau trong ảnh dưới. Nhưng nếu đã từng xem Teen Beach (một bộ phim mới của Disney hè năm nay), hẳn sẽ không ít lần bạn nhầm tưởng Selena đang "hồi teen" cùng Disney.​ ​ ​Có điều tuy ít hơn một tuổi nhưng Maia lại có gương mặt "dừ" hơn đàn chị Selena.​ ​​ ​ ​6. Hàn Canh - Ngô Kiến Huy.​ ​Để không mang tiếng bất công với nền giải trí nước nhà, kì số 1 xin kết thúc bằng một cặp sao có gương mặt hao hao không hề nhẹ. Đó là cựu thành viên Suju Hankyung (Hàn Canh - HanGeng) và chàng Bắp Ngô Kiến Huy. Mình đã từng nghĩ hai người chỉ tương đối thôi. Nhưng hôm nay khi xem lại thì có thể, Han sẽ phải sang Việt Nam một chuyến để nhận họ hàng ​ ​​ ​Hàn Canh nhận vinh hạnh được rước đuốc trong Olympic Bắc Kinh 2008​ ​​ ​Trừ khuôn mặt ngắn hơn thì Bắp giống Han phết nhỉ. À không, công bằng mà nói thì Han vẫn đẹp trai hơn.​ ​Bài viết của mình  Bạn nào muốn mang đi xin báo mình một tiếng hoặc để cái nguồn. Vỗ tay nếu các bạn muốn đóng góp cho những cặp anh - chị - em cùng cha, khác... ông nội này  Bài viết khá dìm hàng, mình bắt đầu nhận gạch đá khi bạn đọc đến đây ​ ​Sẽ update và bổ sung ​ ​ ​ ​ ​

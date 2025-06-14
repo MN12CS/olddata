@@ -1,0 +1,12 @@
+---
+title: "[ Fiction ] Yêu em thì có gì là sai ?"
+date: 2025-06-13T11:37:57Z
+slug: fiction-yeu-em-thi-co-gi-la-sai
+draft: false
+---
+
+## [ Fiction ] Yêu em thì có gì là sai ?
+
+## AriesMio
+
+​ ​Tên truyện : Yêu em thì có gì là sai ?​ ​Tác giả : AriesMio hay Vũ Hoa Huyết Nguyệt.​ ​Disclaimer:Tất cả nhân vật đều thuộc về ta, số phận của họ cũng do ta quyết định.​ ​Thể loại :Shounen Ai, romance, Comedy/Humor.​ ​Rating : T​ ​Độ dài : Longfic​ ​Tình trạng truyện : On – going​ ​Lời tác giả :​ ​Đây không phải truyện về mười hai chòm sao và là truyện đam mỹ, ai bị dị ứng có thế ​ ​click back. Lần đầu ta viết truyện đam mỹ nếu có sai sót mong mọi người nhắc nhở đê ​ ​ta sửa đổi.​ ​Không được spam, gây war, viết tắt, dùng teen code khi comment, mong mọi người ​ ​tuân thủ.​ ​Chân thành cảm ơn tất cả mọi người !​ ​Văn án :​ ​- “Chúng ta là hai thằng đàn ông ! Mà đàn ông thì không thể yêu nhau, đó là sai​ ​ ​trái! ”  Nguyệt nói gần như hét lên với anh. Anh chỉ ôn nhu mỉm cười, bàn ​ ​ ​tay rộng lớn nhẹ nhàng vuốt lại mái tóc ẩm ướt của cậu. Cậu tức giận trừng trừng ​ ​nhìn vào mắt anh chờ đợi câu trả lời.​ ​-“Đàn ông thì đã sao? Cha mẹ anh đã đồng ý, bác Vũ cũng vậy. Ngày cưới cũng đã ​ ​định, bây giờ em lại muốn trốn sao? Hơn nữa, yêu em thì có gì là sai?’’ Anh mỉm ​ ​cười ma mị, đôi mắt như rực lửa tình.​ ​ - “Nhưng… ưm” Chưa để cậu kịp trả lời, anh liền dùng lấy đôi môi mình ép lên​ ​môi cậu không cho Nguyệt nói tiếp. Hai người cuốn lấy nhau triền miên, dây ​ ​dưa không rời…​ ​Giới thiệu nhân vật :​ ​· Hoàng Kỳ Phong : Anh là tổng giám đốc của công ty nổi tiếng Phồn Vinh, ​ ​đáng sợ,lạnh lùng, nhưng lại mang vẻ đẹp ma mị, mê người. Chỉ cần anh cười ​ ​hàng vạn phụ nữ từ trẻ 8 tuổi đến bà lão 80 sẽ nguyện hiếng dâng vì anh. Dù có ​ ​bao mĩ nữ xinh đẹp mê muội vẻ đẹp trai cũng như tiền tài của anh.Tìm đủ mọi ​ ​cách quyến rũ, nhõng nhẽo, tranh giành, đối đầu với nhau, chỉ để được anh ưu ​ ​ái. Nhưng anh không thèm bận tâm đến vì trong mắt anh chỉ có bóng hình một ​ ​người mà thôi.​ ​ ​· Vũ Minh Nguyệt : Một sinh viên ra trường đang tìm việc bỗng dưng vớ được ​ ​bản hợp đồng béo bở của công ty Phồn Vinh, liền chân ướt chân ráo trở thành ​ ​nhân viên thực tập. Đáng yêu, tốt bụng, vui tính, lại đẹp trai khiến mọi nhân ​ ​viên nữ đều xiêu lòng. Đắc tội với boss ngay ngày đầu tiên đi làm nên cậu thấy ​ ​boss trong vòng bán kính 10 mét liền tự động lủi đi. Luôn bị anh tìm đủ cớ gọi ​ ​lên phòng “ tâm sự ” nên Nguyệt rất hận anh nhưng ai ngờ, càng hận thì càng ​ ​yêu.​

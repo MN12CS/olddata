@@ -1,0 +1,27 @@
+---
+title: "Nếu thật sự có ngày tận thế ... e sẽ nói ra ... :)"
+date: 2025-06-12T23:04:16Z
+slug: neu-that-su-co-ngay-tan-the-e-se-noi-ra
+draft: false
+---
+
+## Nếu thật sự có ngày tận thế ... e sẽ nói ra ... :)
+
+## giovohinh89
+
+"Sẽ rất đau đớn khi bạn yêu một người nào đó mà không được đáp lại. Nhưng còn đau đớn hơn khi bạn yêu một ai đó mà không đủ dũng cảm để nói cho người đó biết bạn đã yêu như thế nào"
+Em là 1 song tử đơn thuần và đơn giản, đối vs song tử mà nói, tình đơn phương không có chỗ đứng, đã thích ai thì thổ lộ ngay không chần chừ, nhưng lần này thật khó để nói, vì em biết mình chẳng có 1 cái cơ hội nhỏ nhoi nào cả  và cũng vì a chỉ xem em như 1 đứa em gái, little sis của a 
+ 
+Nhớ khi xưa lúc còn treo rlss vs a , e đã hạnh phúc biết dường nào, e thầm cảm ơn 2 nhà song tử và thiên bình đã sắp xếp cho chúng ta được biết và quen nhau qua 1 trò chơi ghép cặp, như 1 cái duyên trời định, chúng mình khá hợp nhau trên mọi lĩnh vực, có thể nói chuyện cả ngày mà ko cảm thấy chán .Tuy nhiên ,chắc có lẽ là do em, đã không biết cách thể hiện tình cảm của mình, em là 1 đứa khô khan trên lĩnh vực này, suốt ngày chỉ biết chọc cho a điên lên. E biết bản thân mình khác người, không có được ngọt ngào, đáng yêu như những người con gái bt khác, nhưng a chắc không thể hiểu 1 điều rằng, e càng thích ai e sẽ càng muốn troll họ, bởi lẽ e chỉ muốn nhìn thấy người ta cười và vui vẻ  chỉ tiếc 1 điều là cách làm cho người yêu vui vẻ của e nó khác vs những người con gái khác, e ko nói được những lời mùi mẫn, nũng nịu, ngọt ngào mà suốt ngày chỉ pha trò rồi đùa giỡn nên chắc a không thể nhận ra đó là tình cảm chân thành của e đâu nhỉ  Có lẽ vì tính cách của e như vậy , làm cho a không có cảm giác được yêu thương, a vẫn có cảm giác cô đơn, nên a bay đi tìm những bến đỗ khác ...
+Cái ngày a nói chúng ta chỉ nên làm anh em, e thật sự rất hụt hẫng và buồn , nhưng ... e chỉ biết há miệng ra cười và đồng ý )) song tử là thế đấy, luôn khoác lên mình cái mặt nạ cười , cho nên chẳng ai có thể thực sự hiểu trong con người song tử nội tâm đang diễn biến phức tạp như thế nào  Chắc a cũng không thể ngờ, sau cái icon cười lăn cười bò kia, sau những câu nói vô tư kia, tâm can e nó rối bời đến mức nào đâu nhỉ ...
+Vậy là đành chôn sâu lại thứ tc hiếm hoi sau 1 cuộc tình tan vỡ vs người trước, em vào vai em gái của a rất là đạt  nhìn cứ như 2 anh em ruột vậy hai nhỉ?  ... E cứ tự dằn vặt mình tại sao cứ đóng kịch hoài vậy, bộ làm e gái của ng ta mày thấy vui lắm sao ? Tại sao cả ngày cứ ngoác miệng ra mà cười vậy? E thật sự muốn khóc lắm, nhưng tại sao e lại khóc không được ? Dù e biết, tc e dành cho a hơn cả tc của 1 đứa e gái dành cho a trai  Có lẽ bản thân e đã quá mạnh mẽ sau cú vấp ngã đầu đời, cho nên muốn rơi nước mắt cũng không phải chuyện dễ dàng gì 
+E đã từng nghĩ " Thôi kệ, miễn là được bên cạnh a , làm e gái cũng được " ..... Nhưng không phải, cho đến khi cô bé BD kia xuất hiện và chiếm lấy tâm trí a . E thật sự GATO vs cô bé đó , nhưng e vẫn phải cười ) nụ cười càng tươi bao nhiêu, trái tim càng khô héo bấy nhiêu. Nhìn cách cô bé đó thể hiện tc vs a , e cứ luôn tự trách mình, đấy ! họ con gái nói chuyện dễ thương, đáng yêu thế mới được chứ, ai như mày, thô như cái thằng ) 
+E rất muốn nt chúc a ngủ ngon, nhưng lí trí e bảo, việc đó có người khác lo rồi, chính là cô bé BD đó, không tới lượt mày đâu  Vậy là e soạn mess ... và tự xóa nó đi 
+E rất muốn được tiếp tục quan tâm, chăm sóc a nhưng lí trí lại bảo e , mày chỉ được làm vậy cho đến khi cô bé đó lên tp học thôi, khi đó anh sẽ ko cần mày quan tâm, chăm sóc nữa ... Vậy là e quyết định sẽ ko làm phiền cuộc sống của a nhiều nữa . Chỉ đợi khi nào a cần, e nhất định sẽ có mặt đúng lúc 
+E rất muốn được ngồi sau xe, ôm a thật chặt, dạo quanh phố phường; nhưng lí trí e lại bảo, mày có còn là ny của họ nữa đâu mà ôm vs chả iếc , họ có người yêu mới rồi đấy , đừng có mà phá hoại vô duyên ... Vậy là e chỉ lặng lẽ ngồi sau lưng a, tám đủ thứ chuyện trên trời dưới đất, chọc a cười và ngửi nhẹ mùi thơm thoang thoảng trên tóc a ... Chỉ cần vậy thôi, e cũng vui rồi 
+Và e biết, cái đứa em gái này chỉ là vật thế chỗ cho những lúc a cần người đi chơi , đi ăn uống cho khuây khỏa mà thôi, cho đến khi cô bé BD đó lên tp học, chắc tần suất e được gặp a sẽ ít lại , có lẽ a sẽ dành hầu hết thời gian bên cạnh cô bé đó, cho nên bây giờ, e tận dụng mọi cơ hội để được bên a , chỉ cần a hú là e nhất định sẽ đi dù có bận bịu gì  không thôi sau này lại ngồi hối tiếc, giá như được bên a thêm chút nữa ...
+Cái thứ tình cảm đơn phương này đang giết dần giết mòn tâm hồn lạc quan , yêu đời của e đấy a ak` 
+E đã từng nghĩ mình sẽ ổn thôi, rồi cũng sẽ quen vs việc này mà, nhưng khó lắm a ak`, khi mỗi ngày đều nc, đùa cợt cùng a, cùng share những bộ phim hay, những bài nhạc hay , bình luận tùm lum chuyện trên trời dưới đất ,... khó để đẩy a ra khỏi đầu e lắm. E biết phải làm thế nào bây giờ ? E chỉ còn biết tự trách mình đã hoàn thành vai diễn quá xuất sắc , Song Tử sinh ra vốn đã là 1 diễn viên đại tài - Quả không sai. Thật đến mức, a không thể ngờ được con em điên khùng của mình lại thích mình nhiều đến vậy đâu nhỉ 
+"Sẽ rất đau đớn khi bạn yêu một người nào đó mà không được đáp lại. Nhưng còn đau đớn hơn khi bạn yêu một ai đó mà không đủ dũng cảm để nói cho người đó biết bạn đã yêu như thế nào"
+E không biết mình có thể chịu đựng cái cảm giác đau đớn này được bao lâu nữa, em không biết liệu trong 1 khoảng khắc nào đó cái mặt nạ của mình có bị rơi ra không nữa ...
+Nếu ngày tận thế thật sự đến ... e sẽ nói ra ... Eh Hai khùng, e thích hai nhiều lắm ak' :3 <3...!!!

@@ -1,0 +1,12 @@
+---
+title: "About Pisces!"
+date: 2025-06-13T11:03:42Z
+slug: about-pisces
+draft: false
+---
+
+## About Pisces!
+
+## Ni9xPisceS
+
+*Song ngư thích:​hát tuỳ hứng, cười một mình, nghĩ lại những kỉ niệm, lang thang 1 mình. Thích giúp đỡ người khác, thích được người khác quan tâm giúp đỡ, thích ở một mình, thích lắng nghe, thích làm chỗ dựa cho người khác, thích đọc những điều kì diệu của cuộc sống, thích sương sa, thích thời tiết đẹp, thích gió hiu hiu, thích thiên nhiên, thích đi chơi quên đường về, thích xoã, thích không phải suy nghĩ, thích yêu, thích được yêu, thích làm nũng, thích được quan tâm chiều chuộng, thích cuộc sống yên bình.​*Song ngư ghét​Ghét người vô duyên, ghét những lời nói quá thẳng thắn, ghét bạo lực, ghét thô tục. Ghét bị lãng quên, ghét bị chỉ trích, ghét đối đầu, ghét mất bình tĩnh, ghét phải lo lắng, ghét người không hiểu mình, ghét phải gò bó, ghét bị ép buộc, ghét bị hiểu lầm, ghét phải đối diện với sự thật, ghét phiền phức, ghét sự nhàm chán, ghét giả tạo, ghét phải thay đổi.​*Song ngư sợ​Sợ bị lừa dối, sợ bị bỏ rơi, sợ sư im lặng, sợ người quá vô tâm, sợ ai quá độc ác, sợ phải li biệt, sợ mất mát, sợ phải đối mặt, sợ cuộc sống trần trụi, sợ cô đơn, sợ tuyệt vọng, sợ mất lòng tin, sợ làm phiền người khác.​*Người khác yêu quý song ngư bởi :​Song ngư hiền lành, dịu dàng, tinh tế, khéo léo, vui tính, cởi mở, rộng lượng, dễ tha thứ, không để bụng, dĩ hoà vi quý, thân thiện với mọi người, có suy nghĩ có lập trường, biết lắng nghe, biết chia sẻ, cá tính, đáng yêu, ấm áp, tốt bụng, biết quan tâm, biết suy nghĩ cho người khác.​*Mọi người khó chịu với song ngư vì :​Tính khí thay đổi thất thường, lười biếng, quá cảm tính, quá nhạy cảm, hay giận dỗi linh tinh, tính tình nhiều khi như trẻ con, suy nghĩ chưa sâu, quá rụt rè nhút nhát, sống hơi khép mình, không tự giác hoà đồng, ỉ lại, mù quáng, ngốc ngếch​*Người ngoài không ngờ đến 1 song ngư :​Tâm hồn đen tối, có rất nhiều bí mật, lành chứ không hề hiền, có thể trở thành con người khác bất cứ lúc nào, lúc nóng giận là không thể kiềm chế, hận ai thì sẽ đem lòng thù mãi mãi và sẽ trả đũa từ từ, không bao giờ quên đi hoàn toàn những tổn thương. Có thể trở thành trung tâm nếu muốn, đột phá khi cần, lẩn thẩn tuỳ lúc, có lúc rất tinh tường. Thông minh hơn người khac tưởng. Im lặng 1 chỗ ngắm nhìn người ta diễn kịch thỉnh thoảng nhếch mép cười đểu​Song ngư lúc nào cũng nguy hiểm theo cách của nó ​Kí tên phát​[Chin]​Nguồn: Hội những người thuộc cung Song Ngư  ​

@@ -1,0 +1,24 @@
+---
+title: "[Giới thiệu sách] Kẻ ích kỷ lãng mạn"
+date: 2025-06-13T13:13:34Z
+slug: gioi-thieu-sach-ke-ich-ky-lang-man
+draft: false
+---
+
+## [Giới thiệu sách] Kẻ ích kỷ lãng mạn
+
+## minako aino
+
+Sau Tình yêu kéo dài ba năm, Một tiểu thuyết Pháp, Kẻ ích kỷ lãng mạn là tác phẩm thứ 3 của ông được giới thiệu đến với độc giả Việt Nam.
+ Cuốn nhật ký rối bời này còn lóe sáng những suy tư hài hước, những châm ngôn sâu sắc: “Tôi không biết mình là ai, nhưng tôi biết điều mình muốn là: một nhà văn không biết mình là ai”.
+
+Câu chuyện bắt đầu vào năm 2000. Khi ấy Oscar Dufresne, một nhà văn 34 tuổi ích kỷ, ưa châm chọc và bị ám ảnh tình dục, cho đăng nhật ký lên báo hòng khiến cho cuộc sống của mình trở nên thú vị hơn.
+Lý giải cho tên của cuốn tiểu thuyết, như một lời tự thuật về chính bản thân mình, Oscar Dufresne viết: “Cuốn tiểu thuyết đầu tiên của Scott Fitzgerald (bị tờ Scribner’s từ chối đăng vào tháng Tám, rồi vào tháng Mười năm 1918, sau đó hai năm mới được xuất bản dưới nhan đề Phía khuất của Thiên đường) có tên là Kẻ ích kỷ lãng mạn. Dĩ nhiên, ông nói về tôi. Nhưng ngoài thế ra, tôi còn là một kẻ bị ám ảnh đa cảm, một tên khốn biết yêu nữa. Một gã đểu cáng say mê điều tuyệt đối, một người thô lỗ dịu dàng, một kẻ trọng nam khinh nữ với trái tim cô đơn, một kẻ hoan lạc hưởng thụ theo Thiên chúa giáo. Cám ơn Francis vì đã nghĩ ra nhan đề cho cuốn sách này”.
+Độc thân, Oscar chuyên tà lưa cưa cẩm phụ nữ, châm chọc những kẻ nổi tiếng mà anh ta gặp trong những lần đến các hộp đêm nổi tiếng trên khắp thế giới, từ Istanbul cho đến Hambourg, trong những buổi tiệc tùng điên đảo của những kẻ giàu có ăn chơi, và từ đó mà chỉ trích xã hội giả tạo ấy. Cuốn nhật ký của Oscar là một cách nhìn trào phúng về thế giới những người nổi tiếng, những người đã và đang làm mọi cách để được nổi tiếng nhưng biết đâu rằng “sự nổi tiếng cực độ ngăn không cho người ta sống”. Nhưng Oscar Dufresne, bản sao của Frédéric Beigbeder, không chỉ là một kẻ tự mê đang ghi chép lại những quan sát của mình.
+Cuốn nhật ký rối bời này còn lóe sáng những suy tư hài hước, những châm ngôn sâu sắc: “Tôi không biết mình là ai, nhưng tôi biết điều mình muốn là: một nhà văn không biết mình là ai”, “Điều khó khăn nhất không phải là biết được tại sao ta lại sống, mà là thoát được khỏi câu hỏi này”, hay “Ta viết truyện ngắn khi ta không có thời gian viết tiểu thuyết. Ta viết thời luận khi ta không có thời gian viết truyện ngắn. Và khi người ta thậm chí còn không có thời gian viết thời luận thì người ta viết nhật ký”. Từ những suy ngẫm ấy, độc giả nhận thấy phía sau Oscar Dufresne ích kỷ là một tâm hồn lãng mạn, đầy rung động, mong manh dễ vỡ. Con người ấy luôn sợ đối diện với cuộc sống nhưng lại lao vào cuộc sống bằng toàn bộ sức lực rồi sau đó loay hoay trốn tránh những câu hỏi lớn của cuộc đời.
+ 
+Về tác giả Frédéric Beigbeder
+Sinh năm 1965 trong một gia đình khá giả, Frédéric Beigbeder theo học tại hai trường trung học nổi tiếng rồi vào học viện nghiên cứu chính trị Paris, tiếp đó là trường nghiên cứu khoa học thông tin và truyền thông. Năm 24 tuổi, Frédéric tốt nghiệp với tấm bằng cao học về marketing - quảng cáo và bắt đầu sự nghiệp khá lừng lẫy của một người đa tài: làm quảng cáo, nhà văn, phê bình văn học, làm chương trình thời luận… Frédéric Beigbeder đã từng làm cho nhiều tạp chí như Elle, Paris Match,Voici, VSD… và làm trong nhóm phê bình văn học cho một số chương trình trên kênh Paris Première, Canal +, sau đó anh làm riêng chương trình Des livres et moi (Sách và tôi) trên kênh Paris Première. Frédéric Beigbeder cũng từng là biên tập viên cho nhà xuất bản Flammarion.
+Là một người đam mê văn học thực sự, song song với những công việc trên, Frédéric Beigbeder không từ bỏ việc viết sách. Năm 1990, anh xuất bản tiểu thuyết đầu tay Mémoire d’un jeune homme dérangé (Hồi ký của một thanh niên bị quấy rầy). Năm 1994, tiểu thuyết thứ hai ra đờiVacances dans le coma (Kỳ nghỉ trong cơn hôn mê) và tiếp theo vào năm 1997 là Tình yêu kéo dài ba năm, kết thúc bộ ba tiểu thuyết về Marc Marronnier.
+Tiếp sau đó, các tiểu thuyết của Frédéric Beigbeder đều giành được thành công vang dội như 99 francs - bán được 380 000 bản, được chuyển thể thành phim; hay Windows on the world - bán được 100 000 bản, giành giải Prix Interallié, bản dịch tiếng Anh được nhận giải Independent Foreign Fiction Award; rồi Một tiểu thuyết Pháp giành giải Renaudot năm 2009. Ngoài tiểu thuyết, anh còn viết truyện ngắn, tiểu luận, truyện tranh. Frédéric Beigbeder là người sáng lập ra giải thưởng văn học Flore vào năm 1994, giải thưởng này đã từng vinh danh những cây bút nổi tiếng như Michel Houellebecq, Amélie Nothomb, Virginie Despentes,… Ngoài ra anh còn lập ra giải thưởng văn học Sade và tham gia hội đồng giám khảo của nhiều giải thưởng khác.
+Nguyễn Phương​Theo Tri Thức​

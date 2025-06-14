@@ -1,0 +1,19 @@
+---
+title: "Giáo sư Xoay bênh vực fan Kpop thuyết phục cư dân mạng"
+date: 2025-06-12T22:44:55Z
+slug: giao-su-xoay-benh-vuc-fan-kpop-thuyet-phuc-cu-dan-mang
+draft: false
+---
+
+## Giáo sư Xoay bênh vực fan Kpop thuyết phục cư dân mạng
+
+## teddyhangvu
+
+Flamer - Theo TTVN
+Khi trên mạng vẫn đang sục sôi câu chuyện về Kpop fans, Giáo sư Xoay đã lên tiếng, thể hiện suy nghĩ của mình về vấn đề này.
+
+Sau đêm concert Kpop Festival diễn ra thành công, đầy cống hiến của 70 nghệ sĩ, nhóm nhạc Kpop vào tối hôm qua (29/12), tưởng chừng cuộc tranh luận về fan Kpop sẽ đi đến hồi hết với sự đồng tình, ủng hộ của cư dân mạng. Tuy nhiên, cuộc tranh cãi vẫn không ngừng “hạ nhiệt”. Mặc dù, ở đêm diễn hôm qua, fan KPop đã hành xử văn minh, không có một hành động chen lấn, xô đẩy nào nhưng trên mạng, nhiều cư dân mạng vẫn cho rằng fan Kpop lãng phí, giới trẻ bị cuốn vào âm nhạc Hàn – văn hóa ngoại mà bỏ đang thờ ơ với những giá trị văn hóa nội. 
+Ở trong thời điểm  “cuộc chiến” tranh cãi vẫn chưa phân xử, thì trên fanpage của mình Giáo sư Xoay đã viết một status thể hiện suy nghĩ, quan điểm của mình về vấn đề Kpop mấy ngày qua. Tuy ý kiến của Giáo sư Xoay không dài nhưng bằng những lý lẽ của mình mọi người thấy rõ "Giáo sư" đang “bênh” cho Kpop, fan Kpop. Giáo sư Xoay đưa ra dẫn chứng về "gu" hâm mộ của từng thời. Nếu như ngày xưa, thị hiếu của những năm 30-40 thế kỉ trước là văn hóa Pháp, hay những năm 60-70 là âm nhạc của The Beatles, các ban nhạc Smoky, điệu nhảy Disco, Lambada... thì ở hiện nay, "hợp thời" chính là Kpop. Không nói, phân tích nhiều nhưng mọi người hiểu rằng Giáo sư Xoay đang muốn nói rằng, hiện nay không phải chỉ ở Việt Nam mà ở nhiều nước trên thế giới, Kpop đang là âm nhạc có sức ảnh hưởng. Phải có giá trị nhất định thì Kpop mới tạo ra được sức ảnh hưởng, được nhiều người đón nhận, cũng như một thời hàng triệu người trên thế giới điên cuồng với các ban nhạc huyền thoại. Đặc biệt, Giáo sư Xoay nhấn mạnh rằng, người lớn hay nói rộng hơn những ai đang "kỳ thị" Kpop nên có một cái nhìn thoáng hơn về lòng hâm mộ của các fan Kpop. Đó là sở thích, là đam mê bài bản, có tổ chức, có lý do chứ không phải "cuồng" theo nghĩa đen mà lâu nay mọi người gán vào cho giới trẻ, những ai là fan Kpop. 
+Status của Giáo sư Xoay hiện đã nhận được hơn 20.000 like và hơn 1000 lượt chia sẻ. Hầu hết các ý kiến là đồng tính, một cư dân mạng có tên Hà Minh nói: "Lấy những vấn đề dân tộc, đất nước ra để nói sở thích, đam mê của giới trẻ, mọi người có nghĩ là khập khiễng? Rồi chuyện khóc bố mẹ, khóc dân tộc nữa. Đó hoàn toàn là hai khía cạnh khác nhau và so sánh thì quá khập khiễng. Đúng như Giáo sư Xoay nói, chúng ta không nên để chuyện hâm mộ trở thành một chuyện gì đó quá to tát bởi rõ ràng họ cuồng nhiệt chỉ một vài dịp trong năm, một vài lần trong đời thần tượng từ nơi xa xôi sang. Không thể nói rằng họ cuồng nhiệt đến mức mù quáng, quên đi những chuyện quan trọng khác trong cuộc sống được. Cảm ơn giáo sư Xoay đã nói và thuyết phục mọi người". 
+Tuy nhiên cũng có ý kiến không đồng tình với của một số cư dân mạng: "Giáo sư không sinh ra thời Pháp thuộc nên không hiểu được văn hóa lúc đó, vì vậy lấy thời đó để so sánh với thời nay thì tôi thấy hơi nực cười...Thời trước thấy cái gì đẹp thì theo (tức là có sự chọn lọc) còn thời nay thanh niên không được như thế. Chính vì vậy thời nay ra đường, con trai nhìn như con gái, õng ẹo, sướt mướt.....quá buồn cho một thế hệ."
+Lâu nay, những phát ngôn của Giáo sư Xoay luôn là những phát ngôn có "trọng lượng", tuy vẫn còn tranh cãi, nhưng rõ ràng, quan điểm của "Giáo sư" về Kpop là đúng đắn. Không nên có cái nhìn quá nặng nề bởi đơn giản Kpop chỉ là một phần trong đời sống tinh thần, là lòng hâm mộ rất bình thường của mỗi người

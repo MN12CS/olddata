@@ -1,0 +1,17 @@
+---
+title: "Tâm sự của Ma Kết nữ:Làm thế nào để quên đi Xử Nữ nam?"
+date: 2025-06-13T10:59:26Z
+slug: tam-su-cua-ma-ket-nulam-the-nao-de-quen-di-xu-nu-nam
+draft: false
+---
+
+## Tâm sự của Ma Kết nữ:Làm thế nào để quên đi Xử Nữ nam?
+
+## Vy Ki Ki
+
+Gửi Xử Nữ thân yêu của em,
+   Lúc trước,anh và em đâu là gì của nhau đâu nhỉ? Vậy mà đã 2 năm,2 năm chúng ta quen nhau.Nhưng giờ đã quay lại từ đầu,anh và em chẳng là gì của nhau.
+
+   Anh-là 1 XN luôn tìm kiếm sự hoàn hảo,còn em-là 1 MK luôn chú tâm vào công việc-không hiểu vì sao chúng ta lại quen nhau nhỉ? Trong lớp học ngày hôm đó-ngày định mệnh của 2 chúng ta-,giáo viên chủ nhiệm đã chuyển anh lại ngồi gần em.Anh ở trong băng nhóm quậy của lớp,còn em lại là 1 trong những người hiền nhất trong lớp,điều đó đã dẫn đến sự im lằng khác thường giữa 2 chúng ta.Nhưng vì anh là XN nên không chịu được sự im lặng đó nên anh đã bắt chuyện trước.Sau đó,em bỗng thấy chúng ta hợp nhau đến lạ thường và chúng ta lại càng gần gũi,thân thiết với nhau hơnQua những cuộc nói chuyện trên lớp và những tin nhắn mà anh đã nhắn cho em,em thấy rất vui và hạnh phúc.Và dần dần.......................EM ĐÃ YÊU ANH TỪ LÚC NÀO.Mới thoạt đầu thì em định sẽ giữ mối tình này chỉ một mình em thôi.Nhưng vào ngày cuối năm của năm 1,thì anh đã "tỉnh tò" với em,em đã đồng ý ngay mà không cần suy nghĩ vì lúc đó thật sự EM YÊU ANH rất nhiều.Có nhũng lúc,mấy bạn nam lớp khác đưa thư 'tình' cho em và anh đã giựt ngay khi thấy và xé nó đi,lúc đó em chẳng hiểu vì sao nữa nhưng bây giờ em đã hiểu.Đến bây giờ mấy bạn nam vẫn còn gửi thư cho em,em đã hết sức từ chối mấy bạn nam đó và nói là em đã có người yêu rồi nhưng mấy bạn đó lại không tin.Thấy vậy,anh đành tuyên bố chúng ta chính thức yêu nhau trước mặt toàn thể khối chiều,em cũng ngạc nhiên trước tuyên bố của anh.Nhờ anh,mà em được 1 phen xấu hổ với đám bạn.Ghét anh lắm cơ!!! ><
+   Từ sau ngày hôm đó,đối với em,mỗi ngày là 1 niềm vui,được anh chở đến trường cũng như về nhà.Tuy ngày nào cũng như thế nhưng em không cảm thấy chán trái lại mà còn rất vui.Chúng ta quen nhau từ đó,cho đến một ngày.....Hôm đó,em lên face thì có 1 bạn ở trường khác xin làm quen với em,em đồng ý và sau đó em nhắn tin hỏi anh:"Ck iu ơi,anh có biết bạn xxx ở trường yyy không?" vì em nghĩ anh có bạn ở nhiều nơi nên em hỏi.Anh đã trả lời tin nhắn với vẻ đầy lo lắng:"thằng đó có tán em không???nếu nó tán en thì nói nó coi chừng anh đấy!!!"Em rất vui vì anh lo lắng đến thế,nên em đã nhắn 1 tin nhắn đùa:"anh quan tâm em nhiều đến thế cơ àh?"và anh trả lời:"đương nhiên rồi,vì em là vk anh mà,hơn nữa em lại là bạn của con nhỏ bạn thân anh nên nể bạn bè thôi"Đọc xong tin nhắn đó,em đã rất sốc khi biết được sự quan tâm của anh dành cho em phần lớn là do nể bạn bè chứ không phải từ tấm lòng của anh.Thật ra,bạn thân của anh lại quan trọng hơn em ư?Vì em là 1 MK nên lòng tự trọng em rất cao,không cho phép mình thua kém bất kì ai,kể cả người thân cũng như vậy.Em đã nhắn tin nói như thế với anh,có lẽ làm anh khó chịu,tức giận nên chúng ta chia tay sau,2 năm hạnh phúc.Bây giờ,em và anh vẫn còn ngồi chung bàn nhưng chúng ta như người xa lạ.Anh đã có hạnh phúc mới rồi,em vẫn còn lẻ loi có lẽ vì vết thương đó quá sâu đến nỗi em phải khóc thành tiếng mỗi khi nghĩ về nó nên em không thể nào quên anh được.Thôi thì em chúc anh hạnh phúc bên tình yêu mới,mong anh hãy trân trọng nâng niu cô ấy như đã từng làm với em nhé,và hãy nhớ đừng làm cô ấy tổn thương.Còn em sẽ ở đây,ở 1 góc tối và lặng thầm nhìn anh trong nước mắt
+   Tạm biệt nhé,Xử Nữ yêu dấu của em.

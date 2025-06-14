@@ -1,0 +1,22 @@
+---
+title: "Tớ phải làm thế nào với Nhân Mã này đây?"
+date: 2025-06-14T03:49:28Z
+slug: to-phai-lam-the-nao-voi-nhan-ma-nay-day
+draft: false
+---
+
+## Tớ phải làm thế nào với Nhân Mã này đây?
+
+## Ac ma dang yeu
+
+Tớ là Cự Giải, quen NM được hơn 2 năm rồi. Tớ ở HCM, còn NM thì đang học dự bị ở Nha Trang, mà tớ cũng chỉ quen qua mạng cho đến khi thật sự thành yêu thật. Khoảng cách quá xa, NM lại khá ham chơi, NM sẵn sàng lợi dụng người khác vì bản thân, từ lúc quen tớ, NM đã bắt cá 2 tay vài lần rồi, tớ dứt khoác ra đi, NM khóc, níu tay tớ lại và nói thật sự chỉ yêu mình tớ, tớ biết không phải giả tạo, vì tớ nghe giọng nghẹn ngào nén nước mắt năn nỉ tớ. Tớ chấp nhận.
+
+Thế rồi, 2 năm, tớ phát hiện ngoài tớ ra, NM còn quen 2 người khác. Chị X - quen do chị ấy theo NM, rồi hay mua này nọ cho NM. Còn chị L - do nói chuyện hợp nên quen cho vui. Tớ ? NM định gạt tớ đến khi nào, NM nói định tìm cách chia tay mà tớ phát hiện trước rồi. Tớ tin. Vì NM biết dù nói hay không tớ cũng biết (Trực giác cực bén của nhà Cua = Thế là 2 chị đó gặp nhau bên ngoài, chị X ? NM chọn ai, NM nói chọn chị L - lần đầu tiên. Sau đó, chị X lại tiếp tục chat trên Face ? NM là, giờ tớ ở xa quá, NM phải chọn 1 trong 2 chỉ, thế là NM nói không  ai trong 2 hết - Lần thứ 2 ( Tớ lén vô face của NM vì biết pass ><). Thế là còn lại 1 người, NM nói cho thời gian để nói chia tay, tớ cho, và sau đó, 2 người họ thật sự đã kết thúc.
+
+Tớ vốn nghĩ đến đó là hết , do Cua vốn quá si tình, tớ không tài nào dứt khoác được. NM hứa hẹn bù đắp cho tớ. Cái chị X đó, ngày nào cũng pm nói với tớ đủ thứ, nói tớ ích kỉ giữ riêng NM, nói tớ giữ du thể xác, rồi nói NM nói vs chị ta là sẽ quay về với chị ta. Tớ gạt đi bởi tớ iu NM 2 năm, tớ đủ hỉu NM tớ iu là ng thế nào. 1 ngày, chị đó liên tục quan tâm NM trc mặt mng dù đã ct, sau đó tớ đã nói rõ là chị nên dừng lại đi, chỉ nói xl và nói e ko buông tay được nhưng chỉ lm dcTớ tin, rồi 1 tuần sau. NM nói chia tay tớVà 1 tuần sau, tớ biết NM đang quen chị kia. Thật buồn cười, có phải NM nào cũng giả tạo vậy không? Chị kia thì luôn tìm cách khoe khoang hạnh phúc trước mặt tớ, còn NM thì lúc nào cũng không biết, không yêu ai hết. Tớ đợi ngày này qua ngày kia, đến lúc vô vọng tớ đã định nhấn delete hết cho mọi thứ. Tối đó, gần 12 h, NM nhắn tin tớ, xin lỗi vì đã đối xử như vậy với tớ, nói tớ không được quên NM, nói tớ là phải tiếp tục bám theo làm phiền NM, nói tớ tiếp tục đợi. Tại sao vậy ? Tớ luôn nghĩ NM dứt khoác lắm, hết yêu thì thôi, quen người # thì thôi, tại sao, ngay cả tớ muốn quen người khác, cũng phải ngăn tớ lại, dày vò tớ? Có phải NM lúc nào cũng tham lam vậy không?
+
+Tớ có nên đợi? Người con gái kia lúc nào cũng vợ chồng trước mặt tớ, tớ vừa comment cái gì cho NM là nói tớ gớm ghiếc, bùn cười tớ quen NM 2 năm và chị ta quen được 3 tháng, thời gian không nói lên gì cả, nhưng nó đủ làm tớ hiểu NM là người thế nào, NM có thể gạt bất kì người con gái nào, nhưng không bao giờ dối trá với tớ. Các bạn cũng biết, là NM thì quen được 2 năm thì đến mức nào mà? Liệu tớ phải hi vọng hay quên đi ? Cua thật sự rất nặng tình, 2 năm, và cả 2 đều khó xóa đi, nhất là với 2 đứa siêu lăng nhăng và dễ đổ lại chào thua nhau và thay đổi rất nhiều thứ vì nhau. Nhưng mà, thật sự, tớ không thể chịu đựng chị X nữa, chưa bao giờ tớ xúc phạm người con gái nào yêu NM, chưa bao giờ tớ lại đuổi họ đi hay tìm cách khoe này nọ để làm họ đau khổ, rõ là người thứ 3, tớ không trách gì, tại sao lại đối xử với tớ như vậy?
+
+Tối qua tớ ? NM có quay lại không, NM nói thật sự không biết chọn ai, tớ trả lời : “Xin lỗi em đếch phải 1 lựa chọn”, tớ có cảm giác không phải NM không còn yêu tớ mà là có cái gì ngăn không cho 2 đứa tiếp tục yêu nhau. Tớ tin NM dù bất kì chuyện gì, không phải vì cái miệng dẻo, mà NM ấy nhà nghèo lắm, nhưng vì tớ, NM để dành từng đồng để mua quà cho tớ, tớ vòi gì NM cũng làm, còn xếp gần 1000 con hạt vì tớ muốn, nhưng đó là trong quá khứ. Ngày 2 đứa gặp nhau lần cuối, NM đã ôm chặt tớ và khóc, nói tớ phải nhớ đợi NM. Những người con gái đó đều bị NM lợi dụng, nhưng NM chưa bao giờ, dù chỉ 1 phút lợi dụng tớ. Tớ luôn nghĩ mình là người con gái duy nhất có thể moi tiền của NM này  Mà giờ nghĩ lại, có thể tớ ngộ nhận.
+
+Nếu các bạn là NM, rồi các bạn có quay về với Cự Giải này không? Nếu không thì các bạn comment dùm tớ, để tớ biết nên đặt hi vọng hay im lặng để mọi thứ lại trong kí ức?

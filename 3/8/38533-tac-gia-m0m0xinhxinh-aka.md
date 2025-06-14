@@ -1,0 +1,12 @@
+---
+title: "[Tác giả] m0m0xInhxInh aka"
+date: 2025-06-13T01:05:33Z
+slug: tac-gia-m0m0xinhxinh-aka
+draft: false
+---
+
+## [Tác giả] m0m0xInhxInh aka
+
+## m0m0xInhxInh
+
+Hôm nay ngoài trời lặng mưa gió​Soi gương mới biết...mình xinh nhường nào.....​=w= (Hôm nay mình thích tự sướng thế nhờ *soi gương*) =w=​ ​Sơ yếu lí lịch của bé Móm trong sáng ​Tham gia 4rum đã lâu, cũng nghĩ nên làm cái...chưa nghĩ ra ​ ​#1: Vài nét về bé Móm đáng yêu ​ ​Tên: Móm aka, tên thật thì...*huýt sáo*​Tuổi: 13 tuổi 4 tháng 2 ngày ​Ngày sinh: 16\12\1999​Cung: Sun là Nhân Mã, Moon là Song Ngư và...lai rất nhiều cung khác =w=​Nickname: *chi chỉ* Móm aka =w=, bên ngoài mọi người "thân mật" gọi ta là ...​Tích cách: Bá đạo, thỉnh thoảng lên cơn phởn như con điên  (Truyện ta viết có lẽ nhân nào cũng có nét hao hao giống ta.)​Sở thích: Thích tự sướng (ta đang lên cơn), đọc tiểu thuyết tình yêu tuổi mới nhớn  Những ngày âm u không mưa. ​ ​#2: Đặc điểm truyện Móm viết.​ ​- Viết nhiều hơn cả là thể loại Hài, Lạng mạn sến súa đại loại như Romance hay Comedy.​- Ý tưởng đến bất chợt, chẳng hạn như đang đi..WC  bất thình lình xuất hiện ý tưởng. Nhưng được cái là rất chiều độc giả. ​- Thỉnh thoảng còn mắc lỗi chính tả =.=""""""', sắp xếp câu có phần lộn xộn, nhưng không sao, ta sẽ khắc phục  ​- Thích viết truyện hiện đại, không hướng tới cổ trang lắm vì ta là kẻ dốt đặc trong cách dùng từ ngữ cổ xưa. - Nghiện SE, trong truyện kiểu gì cũng tay ba, tay bốn, hận yêu đảo lộn. Cuối cùng tất cả, đứa nào cũng "đứt" là ta thích nhất =w=. ( Kiểu như Tiểu thuyết Tuyệt sắc khuyên thành của Phi Yên ý, thích nhất bố Nguyện Thiệu Nam.)​ ​#3: Truyện đọc.​ ​- Rất thích đi cảnh báo mấy bé mới viết truyện, nội dung và trình bày đều "khiêm tốn", ta rất ôn nhu, hiền dịu khi cmt nhé.​- Ít khi xem, nhưng hay cmt vì khi đọc truyện, đầu tiên đập mắt ta đã là cách trình bày, nếu đẹp ta đọc tiếp, không thì thôi.​- Rất không thích bạn nào viết truyện hay viết tắt và dùng Teencode.​- Đọc truyện ít khi like  Giờ thì đã khắc phục được chút ít =.="""""""​ ​#4: Truyện đã viết.​ ​- Hiện tại đang viết 2 tác phẩm là Qwaser và Mĩ nam! Lão nương chấp tất.​- Còn những truyện đã viết trước kia thì giờ nó đã ở xó nào của thùng rác thì không viết. Không có ý định viết lại.​ ​ ​ ​ ​ ​ ​ ​ ​ ​ ​ ​

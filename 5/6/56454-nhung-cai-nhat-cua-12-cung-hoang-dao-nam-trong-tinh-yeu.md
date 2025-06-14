@@ -1,0 +1,52 @@
+---
+title: "Những Cái \"Nhất\" Của 12 Cung Hoàng Đạo Nam Trong Tình Yêu"
+date: 2025-06-13T15:45:35Z
+slug: nhung-cai-nhat-cua-12-cung-hoang-dao-nam-trong-tinh-yeu
+draft: false
+---
+
+## Những Cái "Nhất" Của 12 Cung Hoàng Đạo Nam Trong Tình Yêu
+
+## Snake19
+
+Những cung chung thuỷ nhất
+
+Người có nhóm máu O thuộc cung Sư Tử : Tuýp người này sống luôn có trách nhiệm, anh ấy không bao giờ biết coi thường lời hứa. Một khi đã hứa với bạn anh ấy sẽ không bao giờ phản bội. Nếu bạn yêu tuýp người này, bạn có thể hoàn toàn yên tâm đối với tình cảm anh ấy dành cho bạn. Hơn nữa đây cũng là tuýp người chăm chỉ và kiên định, không phải vì thời gian mà thay đổi tình yêu của mình
+
+
+Người có nhóm máu A thuộc cung Kim Ngưu : Người thuộc cung kim ngưu luôn cố chấp, đặc biệt thuộc nhóm máu A càng cố chấp hơn. Cho dù bạn làm sai điều gì hay tổn thương anh ấy bao nhiêu, họ vẫn luôn “cố chấp” và không bao giờ rời xa tình yêu mình đang có. Bạn nói anh ấy si tình cũng được, ngoan cố cũng được. Tuy nhiên, tính ương ngạnh này đối với tình yêu đôi khi cũng khiến người khác thấy khó chịu
+
+
+Người nhóm máu A thuộc cung Cự Giải : Đây là tuýp người truyền thống và bảo thủ, họ không thể thay đổi, quan niệm đạo đức và giá trị quan tương đối cổ hủ, họ luôn chân thành, một lòng một dạ vì tình yêu. Đối với họ, có tình yêu mới có tất cả, tình yêu sâu sắc lâu bền mới là cái họ theo đuổi. Họ tuyệt đối không vì sự mê hoặc hoặc tiếng sét ái tình mà đánh mất một tình yêu yên bình
+
+
+Người có nhóm máu AB thuộc cung Bạch Dương : Tuýp người này luôn gây ấn tượng mạnh đối với người khác phái. Người thuộc nhóm máu AB luôn bình tĩnh và lý tính, còn người có cung bạch dương lại đơn thuần trong sáng. Hành vi hay tư tưởng của tuýp người này chân thật giống như đứa trẻ. Nếu anh ấy đã thích một ai, sẽ thích rất lâu, công sức và sự nỗ lực dành cho tình yêu luôn nhiệt tình và cố chấp. Họ không muốn biến tình cảm trở nên phức tạp mà chỉ muốn giữ một tình yêu vĩnh hằng và đơn giản.
+
+
+Những cung dễ ngoại tình nhất
+
+1. Cung Song Ngư
+Nam giới cung song ngư về mặt cơ bản là người chồng tốt, vì thế thật khó tưởng tượng song ngư bị thế giới bên ngoài thu hút. Nhưng trên thực tế, cho dù dã kết hôn họ vẫn mãi có những lời lẽ lãng mạn lại thêm phần thận trọng. Cho dù bên ngoài có chuyện tình cảm bí mật nhưng khi về nhà lại không biểu hiện ra bên ngoài, vẫn quan tâm chăm sóc đối với nửa kia, vì thế tình yêu bí mật của song ngư có thể khiến đối phương không nhận thức ra
+
+
+2. Cung Thiên Bình
+Nam giới cung thiên bình luôn coi trọng hình tượng của mình, họ hy vọng bản thân mình sẽ được hoan nghênh, coi trọng, vì thế nam giới cung thiên bình không cam chịu sự cô đơn. Đối với cung thiên bình nếu chỉ có một người vĩnh viễn ở bên cạnh là điều không thú vị. Họ cho rằng điều này lãng phí vẻ đẹp bên ngoài của mình vì thế nam giới cung thiên bình sẽ không ngừng chứng minh sức hút của mình ở khắp mọi nơi. Mặc dù thiên bình có thể khống chế bản thân mình nhưng nếu gặp đối phương điều kiện tốt họ vẫn sẽ thử sức lần nữa
+
+
+3. Cung Cự Giải
+Nam giới cung cự giải là người rất có khí chất và thu hút nhiều cô gái. Nam giới cự giải thường mẫn cảm và hay ưu phiền. Cự giải thường tìm ra cách giải quyết các vấn đề trong hôn nhân và không muốn mất đi hình tượng người đàn ông tuyệt vời. Vì thế nam giới cung cự giải khi có tình cảm riêng họ sẽ nói rõ cho đối phương hiểu, họ sẽ vẫn sống có tình nghĩa với đối tượng mà mình ngoại tình nhưng không muốn lấy người ấy về.
+
+Những cung khiến nữ giới khó quên nhất
+
+1. Cung Thiên Bình
+Cung thiên bình là người yêu tuyệt vời, điều này bạn khó phủ nhận. Nếu bạn là người ưa hình thức, thì lúc đầu bạn lựa chọn nam giới cung thiên bình là do bị thu hút với ngoại hình và phong cách của họ. Còn nếu bạn quan tâm đến phẩm chất tính cách, vậy thì người có tính cách tuyệt vời là lý do bạn lựa chọn thiên bình, bởi họ là người ổn định hài hòa, luôn để bạn cảm thấy thoải mái. Nhưng đây là con người do dự, không có trách nhiệm đôi khi làm bạn bực tức, phiền phức. Khi chia tay đôi khi lại lôi kéo, muốn quên cũng khó
+
+
+2. Cung Bạch Dương
+Cung dương cưu khi yêu sẽ theo đuổi nhiệt tình và gián tiếp, đồng thời khi chia tay cũng đem lại cho bạn những tổn thương trực tiếp. Dương cưu từ trước tới nay đã muốn là làm. Nếu có ngày họ muốn chia với bạn, họ sẽ không để ý đến sự tổn thương của bạn thế nào, đã không thích thì chia tay là điều đương nhiên. Dương cưu không vì tâm trạng của bạn mà miễn cưỡng bản thân mình, thậm chí họ có thể nhẫn tâm để ruồng bỏ. Trước đây khi mới yêu họ tràn đầy sự nhiệt tình, luôn làm hết sức mình để làm bạn cảm nhận hạnh phúc. Chính sự khác biệt lớn trước và sau khi yêu nên bạn mới cảm thấy mình bị tổn thương nhiều
+
+
+3. Cung Song Tử
+Cung song tử không hẳn là tuýp người yêu chung thủy. Cùng lúc có thể họ sẽ có nhiều mối quan hệ mờ ám. Một khi cảm thấy không còn hứng thú với bạn là sẽ đơn giản nói lời chia tay mà hoàn toàn không cần biết bạn đau thương như thế nào. Lúc này họ chỉ coi những lời hẹn ước xưa kia như cơn gió. Sự vô tình của họ làm bạn oán hận, đây là nguyên nhân chính khiến bạn khó quên được nỗi đau về con người ấy. Nhưng đừng quên trước kia họ cũng từng đem lại cho bạn những ký ức ngọt ngào, ấn tượng sâu sắc, vì thế đừng quá thù hận khi tình yêu không còn vì điều đó chỉ làm tổn thương bạn.
+
+Sưu tầm

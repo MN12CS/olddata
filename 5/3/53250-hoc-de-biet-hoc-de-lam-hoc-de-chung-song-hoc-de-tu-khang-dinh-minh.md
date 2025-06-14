@@ -1,0 +1,54 @@
+---
+title: "Học để biết, học để làm, học để chung sống, học để tự khẳng định mình"
+date: 2025-06-13T14:07:35Z
+slug: hoc-de-biet-hoc-de-lam-hoc-de-chung-song-hoc-de-tu-khang-dinh-minh
+draft: false
+---
+
+## Học để biết, học để làm, học để chung sống, học để tự khẳng định mình
+
+## carnation V3
+
+From HCS with love​ 
+ 
+​Bài làm:
+Ngày nay, chúng ta đang sống trong thời đại mà khoa học kĩ thuật công nghệ thông tin ngày một nâng cao. Trong xã hội đó ấy, làm việc gì cũng cần phải có hiểu biết, có trí thức. vì vậy việc học là rất cần thiết và có vai trò ý nghĩ vô cùng quan trọng đối với mỗi người chúng ta.tuy nhiên việc học là một quá trình tích luỹ kiến thức lâu dài mà tri thức nhân loại lại là vô bờ bến. thế nên chúng ta cần có một sự tập trung ý chí và xác định thật đúng đắn mục đích học tập của mình. mục đích học tập do tổ chức unesco đề xướng là: “Học để biết, học để làm, học để chung sống, học để tự khẳng định mình”. chúng ta hãy cùng nhau đi tìm hiểu thật rõ nhé!
+
+Từ xưa đến nay con người không ngừng học hỏi tiếp thu tri thức của nhân loại. vậy nên chúng ta đã biết và làm dược những điều to lớn làm thay đổi cả thế giới
+
+1. Học để biết: học là một công việc mà mỗi chúng ta phải làm hằng ngày và có thể là cả cuộc đời. học là một quá trình tìm hiểu, thu nhận, tích luỹ kiến thức cho bản thân mình từ thầy cô giáo bạn bè trên tư liệu sách vở và học ở ngoài cuộc sống. kiến thức nhân loại vô cùng phong phú khoa học kĩ thuật không ngừng phát triển cố nhiều vấn đề nảy sinh trong cuộc sống cần được chúng ta giải quyết và tiếp thu. Tuy nhiên những điều ta biết chỉ là một giọt nước nhỏ trong khi đó điều ta chưa biết lại là biển cả rộng lớn bao la. Vì vậy còn có nhiều miền tri thức cần được chúng ta khám phá học hỏi. thé nên việc học trước hết là hướng đến mục đích học để biết nhiều miền kiến thức ấy để thế giới xung quanh mở ra một cách sáng tỏ trước mắt bạn lật mở mọi vấn đề mọi khía cạnh của cuộc sống muôn màu. có vậy chúng ta mới có thể không lạc hậu với thời đại và yêu cầu ngày càng cao của xã hội.
+
+2. Học để làm: “học phải đi đôi với hành” lời dạy thật có ý nghĩa rất quan trọng đối với iệc học của chúng ta ngày nay.tiếp thu kiến thức hôm nay mà không quên những điều đã học ngày hôm qua thì đó mới gọi là việc học đúng cách.muốn vậy thì tất cả chúng ta phải học tập kiến thúc lí thuyết sau đó vận dụng làm nó ngoài thực tế để thêm hiểu phần kiến thức ấy và ghi nhớ sâu hơn. ở đây theo unesco muốn nhắn bảo chúng ta phải kết hợp song song việc học và làm với nhau có như vậy việc học mới thực sự có ích. Học và làm việc dựa trên những kiến thức đã học vừa là mục đích vừa còn là phương phát học tập. một khi đã nắm vững kiến thức, đã tiếp thu kiến thức mà không vận dụng vào thực tiễn thì việc học thật khô khốc không linh động. trong khi vừa học ta lại áp dụng giải quyết những công việc của cuộc sống thì đó là cơ hội để giúp đỡ bản thân gia đình và xã hội đó còn là dịp để bạn phát triển tư duy sáng tạo của mình.
+
+3. Học để chung sống: “ngọc không mài không thành đồ vậy người không học không biết rõ đạo” làm người ở đời phải có có học, cần am tường hiểu biết mọi vấn đề xã hội, đó là điều cần thiết cho mỗi chúng ta.nhưng việc học còn mang lại cho con người ta sự hiểu biết về đạo lí làm người đạo lí đối nhân xử thế cách ứng xử với mọi người trong cuộc sống hằng ngày.trong quá trình học tập chúng ta sẽ có nhiều bài học về đạo đức nhiều câu chuyện hay về lòng nhân hậu … từ đó hình thành ý thức rèn luyện nên nhân cách con người ý thức cái hay cái đẹp làm việc tốt giúp đỡ mọi người xung quanh có những đức tính tốt và cần thiết trong cuộc sống của mỗi người: siêng năng chăm chỉ hiếu thảo nhân hậu …tất cả đã làm hoàn thiện bản thân bạn.hơn thế nưa là con người có văn hoá có đạo đức biết cách ứng xử đúng đắn với mọi người bạn sẽ thực sự hoà nhập và thích ứng nhanh với môi trường khác nhau của xã hội. đó là chúng ta đã học được cách chung sống. thế giới này chỉ tồn tại nhưng con người biết chung sống hoà thuận gân gũi gắn bó với nhau để tạo thành một cộng đồng một xã hội bền vững từ đó biết giữu gìn nó và giữ gìn cải tạo thiên nhiên đang ngày càng xấu đi do hiện tượng nóng lên toàn cầu. khi con người biết chung sống thì người người nắm tay nhau trong tình thân ái đất nước hoà bình thịnh trị . giữa đát nước trên thế giới sẽ không có mâu thuẫn, chiến tranh tất cả đều hướng tới sự phát triển của nhân loại làm chủ thế giới làm chủ vũ trụ và những miền tri thức mới.có vậy mới có thể hướng tới một xã hội tốt đẹp một thế giới phát triển trong hoà bình.
+
+4. Một người vừa có tri thức vừa có trình độ văn hoá hay giúp đỡ người khác thành công trong công việc và cuộc sống thì sẽ được mọi người kính nể cảm phục. mọi người khác sẽ lấy đó làm tấm gương học hỏi theo và bạn luôn được tôn trọng và nhận những tình cảm yêu mến.mình có tài có đức ai lại không trọng dụng. đó là học để tự khẳng định mình.mỗi người đều có một tính cách riêng và luôn muốn khẳng định mình được xã hội công nhận. nếu không ngừng nỗ lực học tập rèn luyện cả chí tài đức trở thành người có ích cho xã hội thì bạn sẽ có một “thương hiệu” riêng cho bản thân mình
+
+5. Mục đích học tập của unesco đề xướng thật đúng đắn và có ý nghĩa to lớn trong việc học tập ngày nay của mỗi chúng ta trước những thay đổi từng ngày từng giờ của thế giới. Hiểu rõ và thực hiện theo đúng như thế tương lai tươi sáng đang chờ đón bạn hãy biết nắm lấy cơ hội !
+
+Bài làm
+
+
+
+Con người luôn luôn có nhu cầu học hỏi, mở mang tầm hiểu biết. Chính nhờ việc tích lũy và tìm tòi tri thức mà con người có sự phát triển vượt bậc như ngày nay. Trong xã hội, những con người có hiểu biết rộng luôn được trọng vọng, những người cầu tiến, ham học hỏi luôn được mọi người quý trọng, giúp đỡ. Tuy vậy, không phải ai cũng có thể hiểu hết được mục đích cũng như tầm quan trọng của việc học. Chính vì vậy mà UNESCO – Tổ chức Giáo dục – Khoa học – Văn hóa của Liên hiệp quốc đã đưa ra đề xướng: “học để biết, học để làm, học để chung sống, học để tự khẳng định mình” như một định hướng cho việc học tập của mọi người.
+
+
+“Học” là quá trình tiếp thu và tích lũy kiến thức. Chính từ quá trình này, chúng ta mới biết được những điều cần thiết làm hành trang trong đời. Có học, chúng ta mới có đủ kiến thức để giải quyết những khó khăn và đạt được những thành công trong công việc. Có tìm tòi về thế giới, chúng ta mới biết về những nền văn hóa mới, mới biết được cách tôn trọng sự khác biệt giữa các quốc gia, từ đó, chúng ta mới có thể chung sống trong hòa bình, hòa hợp. Và có học, chúng ta mới có thể tạo được chỗ đứng riêng của mình, khẳng định được bản thân trong xã hội. Đó chính là những tác động to lớn của việc học mà UNESCO muốn gửi gắm trong câu “học để biết, học để làm, học để chung sống, học để tự khẳng định mình”. Chẳng phải, đây là những điều chúng ta luôn mong muốn, luôn đặt làm mục tiêu hàng đầu để phấn đấu, nỗ lực hay sao? Thông qua lời đề xướng, UNESCO đã mang đến cho chúng ta một thông điệp: việc học sẽ mang lại những thay đổi to lớn cho cuộc đời mỗi con người và có thể là cả thế giới.
+
+
+Kiến thức là một kho tàng bao la vô tận. Tất nhiên là không một ai có thể nắm giữ hết kho tàng ấy, bởi vì nó quá to lớn và luôn luôn mở rộng không ngừng. Tuy vậy, con người chúng ta luôn có khao khát được chinh phục kho tàng này, dù việc đó chẳng dễ dàng gì. Và chỉ có việc học mới có thể giúp chúng ta thực hiện ước mơ đó. Chúng ta có thể học từ nhiều nguồn, bằng nhiều cách khác nhau. Không có một công thức nào, cũng không có giới hạn nào về thời gian và không gian cho việc học cả. Chúng ta có thể học từ thầy cô, bạn bè, mọi người xung quanh; học từ những kinh nghiệm trong cuộc sống,… rồi lại mang những kiến thức đó áp dụng vào cuộc sống, “làm giàu” cho bản thân ta cả về vật chất lẫn tinh thần và thậm chí giúp đỡ những người khác. Một đất nước có nhiều công dân có trình độ, có tri thức sẽ phát triển rất nhanh và nhanh chóng trở thành một nước phát triển, giàu có, thịnh vượng.
+
+
+Dân tộc ta có truyền thống hiếu học từ ngàn đời nay. Xưa kia, có không ít những vị Trạng nguyên nhà nghèo nhưng vẫn quyết chí học hành, dùi mài kinh sử, gắng đem công sức, hiểu biết của bản thân ra xây dựng đất nước. Nhiều người trong số họ đã giúp đất nước ta giữ vững độc lập, chủ quyền. Họ đã khẳng định được mình và được lịch sử vinh danh. Ngày nay, hàng ngàn học sinh trên cả nước dù gặp khó khăn về vật chất nhưng vẫn cố gắng đi học vì họ biết rằng học tập là con đường duy nhất có thể thay đổi cuộc sống của họ, giúp họ chứng tỏ được mình trong xã hội. Thậm chí, cả những người đã có địa vị, có được nhiều thành công trong công việc vẫn phải học. Họ không nhất thiết phải đi học, song họ đã tự ý thức được tầm quan trọng của việc học đối với cuộc sống, với công việc, với sự nghiệp của mình. Có lần, một tờ báo đăng một bài viết về lớp học tiếng Việt ở Đức, về việc học tiếng Việt, văn hóa Việt của những người Đức chuẩn bị sang Việt Nam là việc. Không ai yêu cầu họ làm như vậy, nhưng họ biết đó là những điều cần thiết cho cuộc sống của họ ở một đất nước mới với nền văn hóa khác biệt rất nhiều so với văn hóa Đức. 
+
+
+Học hành có ý nghĩa to lớn như vậy, song không phải ai cũng nắm bắt được mục đích của việc học. Có những bạn học sinh chây lười, chán nản, bỏ bê học hành; lại có những bạn học hành qua loa, không nghiêm túc với hy vọng vượt qua được những kỳ kiểm tra mà không chú ý đến việc học thực chất. Như vậy, làm sao các bạn có thể nắm bắt được những kiến thức cần thiết cho mai sau? Liệu rồi đây, các bạn sẽ đương đầu với những thử thách trong cuộc sống như thế nào nếu không có một nền tảng tri thức vững chắc? Lại còn những bạn học hành rất chăm chỉ, luôn luôn dành thời gian cho việc học mà quên mất thời gian cho thế giới bên ngoài. Có lẽ các bạn quên rằng thế giới ấy luôn ẩn chứa những bài học bất ngờ mà sách vở không bao giờ có thể dạy cho các bạn được. Và cũng chính thế giới ấy mới là nơi các bạn thực hành và trải nghiệm những kiến thức các bạn học được.
+
+
+Học hành rất quan trọng, song cách học cũng như cách sắp xếp, cân bằng thời gian giữa học và thư giãn cũng rất quan trọng. Nếu không biết phương pháp học phù hợp thì dù học rất nhiều song ta không tiếp thu được bao nhiêu, còn nếu không cân bằng được thời gian ta sẽ bị quá tải, từ đó dẫn đến chán nản rồi cuối cùng là lười học. Một trò chơi nhỏ, một bản nhạc hay một bộ phim yêu thích sẽ giúp ta xua tan căng thẳng, chuẩn bị cho việc tiếp thu những kiến thức mới.
+
+
+“Học để biết, học để làm, học để chung sống, học để tự khẳng định mình” là một điều đúng đắn, và lời đề xướng này càng có ý nghĩa hơn nữa khi con người càng ngày càng phát triển hơn, tiến bộ hơn và chân trời tri thức ngày một rộng hơn. Trong tương lai, khi toàn thế giới đã chuyển sang nền kinh tế tri thức, kiến thức sẽ là nhân tố chính để có được chỗ đứng trong xã hội. Nếu không muốn bị bỏ lại phía sau nhân loại thì ta chỉ có một con đường là học mà thôi. Học để có thể tiến ra thế giới, “sánh vai cùng các cường quốc năm châu” với một thái độ kiêu hãnh chứ không phải tự ti, rụt rè.
+ 
+ 
+Kenhdaihoc.com

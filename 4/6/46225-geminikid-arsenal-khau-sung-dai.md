@@ -1,0 +1,19 @@
+---
+title: "[Geminikid] Arsenal - khẩu súng đại"
+date: 2025-06-13T11:54:24Z
+slug: geminikid-arsenal-khau-sung-dai
+draft: false
+---
+
+## [Geminikid] Arsenal - khẩu súng đại
+
+## geminikid98
+
+Câu lạc bộ bóng đá Arsenal (tiếng Anh: Arsenal Football Club, còn được gọi là The Arsenal hay The Gunners) là một trong những đội bóng thành công nhất trong lịch sử bóng đá Anh và có trụ sở ở phía bắc thủ đô Luân Đôn. Đến nay câu lạc bộ đã giành được 13 chức vô địch ở giải bóng đá cao nhất nước Anh và 10 chức vô địch cúp FA. Arsenal hiện đang giữ kỷ lục đội có số trận bất bại liên tiếp cao nhất Anh với 49 trận, và vô địchmùa giải với thành tích không thua trận nào.
+Arsenal ra đời năm 1886 tại Woolwich, đông nam London và là câu lạc bộ đầu tiên của vùng đông nam nước Anh tham dự giải hạng nhất vào 1893.Năm 1913, câu lạc bộ chuyển lên phía bắc, lấy Highbury làm sân nhà. Họ giành được những danh hiệu lớn đầu tiên vào những năm 1930 với 5 chức vô địch quốc gia và 2 cúp FA. Sau một thời gian sa sút, Arsenal đã trở trở lại với cú đúp vô địch Quốc gia và cúp FA vào mùa bóng 1970-1971đồng thời là câu lạc bộ thứ hai trong lịch sử bóng đá Anh đạt được thành tích này. Sau đó, phải đến thời của huấn luyện viên Arsene Wenger , Arsenal mới thực sự trở lại với vị thế của một đại gia của bóng đá Anh và Châu Âu với hai cú đúp nữa vào năm 1998 và 2002, thành tích vô địch giải bóng đá ngoại hạng Anh mùa 2003-2004 mà không thua một trận nào và gần đây nhất là việc trở thành đội bóng đầu tiên của thủ đô London lọt vào một trận chung kết Champions League. Arsenal là câu lạc bộ trụ lâu nhất ở giải đấu cao nhất của nước Anh: họ được thăng hạng lần cuối vào mùa giải 1919-1920 và kể từ đó chưa bao giờ để rớt hạng - đây là một kỷ lục vĩ đại nếu biết đội giữ vị trí thứ nhì là Everton F.C. chỉ bắt đầu chơi ở giải dấu cao nhất của nước Anh từ mùa 1954-1955.[cần dẫn nguồn] Arsenal là câu lạc bộ có rất nhiều trận Derby như Derby nước Anh với Manchester United, các trận Derby London và đặc biệt là trận Derby Bắc London với Tottenham Hotspur. Năm 2006, câu lạc bộ đã chuyển đến ngôi nhà mới, sân vận động Emirates tại Ashburton Grove, Holloway, cách sân Highbury không xa. Đội nữ Arsenal cũng là một đội bóng thành công trong lịch sử bóng đá nữ nước Anh.
+​ ​Vào năm 1888, chỉ sau hai năm thành lập câu lạc bộ, Arsenal khi đó với cái tên là Royal Arsenal đã chọn cho mình biểu trưng đầu tiên, dựa vào chiếc biểu ngữ của vùng Woolwich. Chiếc biểu trưng này gồm 3 cột tượng trưng cho những khẩu pháo thần công. Ý nghĩa của những khẩu pháo bắt nguồn từ lịch sử quân sự của vùng ngoại vi Woolwich. Royal Arsenal, Royal Artillery Regiment và một vài bệnh viện quân sự khác – hiện vẫn còn nằm rải rác – xuất hiện khắp vùng.
+Trong những năm tháng đầu tiên biểu trưng không phải là một phần quan trọng biểu trưng cho câu lạc bộ như ngày nay. Đồ thi đấu vẫn còn khá đơn giản trừ khi thi đấu trong một trận đấu quan trọng như trận chung kết FA Cup chẳng hạn và biểu trưng thường được dành cho những trận đấu chính thức hay trong những cuốn tài liệu.
+Câu lạc bộ chuyển tới sân Highbury vào năm 1913 và sau đó đổi tên thành Arsenal, Thế chiến thứ nhất đã ảnh hưởng tới bóng đá trong bốn mùa giải và mùa giải 1919/20 bóng đá mới bắt đầu lại, mất một thời gian để ổn định.
+Trong suốt thời gian này không có crest theo đúng nghĩa nhưng vào trận đấu đầu tiên của mùa giải 1922/23 khi các chàng pháo thủ gặp Burnley, một crest mới của câu lạc bộ đã được công bố – đó là một khẩu thần công trông rất khí thế và trở thành niềm tự hào của Royal Arsenal.
+Những khẩu pháo thần công thẳng đứng đã được thay thế bằng thiết kế mới – một khẩu thần công chĩa về phía đông. Đầu mùa giải 1925/26 The Gunners đã đổi biểu trưng thành hình khẩu pháo nhỏ hơn, chỉ về phía tây với dòng chữ khắc "The Gunners" bên cạnh.
+​ ​​ ​​Sưu Tầm​

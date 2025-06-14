@@ -1,0 +1,12 @@
+---
+title: "Tình yêu Chòm sao nào hay được tán tỉnh?"
+date: 2025-06-13T12:02:45Z
+slug: tinh-yeu-chom-sao-nao-hay-duoc-tan-tinh
+draft: false
+---
+
+## Tình yêu Chòm sao nào hay được tán tỉnh?
+
+## librameocon
+
+Song Ngư​Họ luôn trở thành những mục tiêu cho nhiều người, đơn giản vì ở Song Ngư có sự cảm nhận tinh tế, nét đáng yêu đủ để người khác tìm thấy sự thoải mái khi ở cạnh họ.​Cự Giải​Khi trưởng thành hơn nhiều người sẽ chọn Cự Giải làm đối tượng cho một quyết định nghiêm túc, một chuyện tình đủ song gió, nhưng đáng để đi đến cuối cùng.​Nhân Mã​Khó ai lại không thích một người quá cởi mở, tự tin, năng động và lúc nào cũng rạng ngời. Nhưng đừng nên theo đuổi quá nhiệt tình, họ thích những trò chơi khó hơn.​Thần Nông​Có lẽ là một cách vô thức Thần Nông cho dù có lớp chắn ngăn bản thân với mọi người nhưng lại tạo nên một sức hút kì lạ, khiến người ta bị hút hồn, người ta thường không biết họ thích Thần Nông từ khi nào và tại sao?​Thiên Bình​Ở Thiên Bình là nét đẹp khiến người khác muốn được chở che, họ nhẹ nhàng tế nhị. Chỉ khi thành người yêu mới biết nhiều tính cách rất gây hốt hoảng.​Ma Kết​Họ có những đặc điểm về một người yêu hoàn hảo, bản lĩnh, chủ động, giỏi giang nhưng quá nhiều điểm lấn át đối phương, khiến đối phương thấy bản thân bé nhỏ, khó dám theo.​Bạch Dương​Họ nổi bật, họ cá tính, họ dễ gây ấn tượng và làm người khác muốn theo đuổi nhưng về lâu về dài lửa dễ nguội lạnh, quan hệ trở nên nhàm chán.​Bảo Bình​Bảo Bình đẹp theo cách riêng của bản thân, làm người khác thấy hiếu kì, lôi cuốn. Bù lại nếu theo đuổi 1 thời gian ngắn không có kết quả thì lại dễ dàng hơn là theo lâu rồi thấy vẻ đẹp này càng "dội hồn".​Sư Tử​Trong tình cảm Sư Tử phải gọi là … nhát. Có thể tỉnh queo tán đùa linh tinh. Nhưng ai đột nhiên nghiêm túc lại sẽ bỏ chạy.​Song Tử​Số đào hoa đày đọa khó thoát kiếp ế, có nhiều đối tượng thích nhưng lại không dám chọn Song Tử làm đối tượng theo đuổi, đơn giản, vì họ quá khó để yêu ai, luôn lấp lở lập lừng nhưng thật ra là chẳng có tình cảm gì với ai.​Kim Ngưu​Họ bị động, làm đối phương sợ và dè dặt, dẫn đến cả hai cùng bị động, có tình cảm đến cuối cùng chẳng ai hay, kết quả ít ít đối tượng theo đuổi.​Xử Nữ​Họ cuốn hút người khác, họ làm người khác thấy thú vị và thật ra có rất nhiều người dễ thích một Xử Nữ nhưng lại không theo đuổi vì Xử Nữ thường cắt dứt mọi hy vọng của người khác trước khi ai kịp làm gì, từ thân thiết sẽ quay ra lạnh lùng ngay.​Sưu tầm​

@@ -1,0 +1,29 @@
+---
+title: "Neo-grunge: tuyên ngôn mới của giới trẻ cá tính"
+date: 2025-06-13T00:50:19Z
+slug: neo-grunge-tuyen-ngon-moi-cua-gioi-tre-ca-tinh
+draft: false
+---
+
+## Neo-grunge: tuyên ngôn mới của giới trẻ cá tính
+
+## teddyhangvu
+
+Cùng trải nghiệm một phong cách thời trang mới lạ mang đậm dấu ấn của Xuân/Hè 2013!
+
+Với mỗi mùa thời trang mới, chúng ta thường đi vào lối mòn khi nhanh chóng lãng quên quá khứ và chỉ chăm chăm đuổi bắt những gì được hứa hẹn là sẽ được ưa chuộng trong tương lai, cũng như phải vùng vẫy trong dòng chảy những xu hướng của hiện tại để không bị trở thành một "cô gái đến từ hôm qua". Thế nhưng, sau muôn vàn trải nghiệm về sự ra đi và trở lại của các xu hướng tại các Tuần lễ thời trang thì ai nấy đều đồng thuận rằng: hiện tại hoàn mỹ hay tương lai đầy hy vọng đều không có ý nghĩa gì nếu trước đó không tồn tại một quá khứ huy hoàng.
+Phải vậy, thời trang đương đại đang mắc kẹt giữa ngã ba của hiện tại, tương lai và quá khứ. Các nhà thiết kế đều hiểu rằng, thời trang trong quá khứ tiềm ẩn một vẻ đẹp vĩnh cửu, trường tồn với thời gian và lý gì lại không thể hồi sinh cái quá khứ ấy, khoác lên nó lớp áo mới của hiện tại để tiến bước vào tương lai? Đó chính là nguyên do vì sao mà dư vị 60's lại phảng phất trên những đường băng thời trang, đi kèm với lối phục sức "cổ mà không cũ" của thập niên 80s hay hình ảnh mới lạ về những trang phục rộng thùng thình của năm 90's với một cái tên vừa lạ vừa quen: Neo-grunge.
+
+
+
+Lịch sử
+Trước khi đến với xu hướng Neo-grunge, bạn cần phải tiếp cận với cái gốc rễ của nó: Grunge. Grunge không chỉ là một phong cách thời trang mà nó còn là sự diễn đạt một cảm giác, một lối sống hay một dòng nhạc. Đại thể, nếu được mô tả về Grunge với vài từ ngắn gọn thì nó sẽ là "nhem nhuốc", "lộn xộn" và lười biếng"; bao hàm về những bộ quần áo rộng thùng thình và những cái ván trượt nơi đường phố... Đầu thập kỷ 90s, Grunge đã xuất hiện rộng rãi như một trào lưu mà bạn dễ bắt gặp trong cuộc sống của giới trẻ phương Tây. Sở dĩ có điều này là sức ảnh hưởng mạnh mẽ từ album Nervermind của ban nhạc Nirvanavào năm 1991. Chính sự xuất hiện của album này đã thay đổi bộ mặt của không chỉ ngành công nghiệp âm nhạc mà cả thời trang, khởi đầu cho hiện tượng Grunge cũng như kiến tạo một góc nhìn thời trang mới lạ mà tất cả đều xuất phát từ sự lên ngôi của dòng nhạc rock alternative tại các thành phố như Seattle, Washington.
+Ngày ấy, Grunge là sự kết hợp của cách kết hợp trang phục lòe loẹt đậm chất phá phách của punk với các loại quần áo rẻ tiền của tầng lớp lao động như jeans hay các loại cotton kẻ sọc... nhằm đề cao lối ăn mặc tự do, phóng khoáng, không cầu kỳ và đầy bản lĩnh. Khi đó, Kurt Cobain, Courtney Love hay Kate Moss đã được tôn vinh là những fashion icon của giới trẻ khi chọn Grunge làm phong cách, lẽ sống cho mình.Siêu mẫu Kate Moss trong chiến dịch quảng cáo của Topshop năm 2009.Hiện tại
+Quay lại câu chuyện, khái niệm Neo-grunge chỉ được biết đến từ sau năm 2003, như một sự tưởng nhớ về thời hoàng kim của Grunge vào những năm 90s. Vào năm 2013 này, Neo-grunge - phong cách Grunge hiện đại đã trở thành một xu hướng lớn. Vẫn giữ được chất phóng khoáng của những người trẻ trước cuộc sống rộng mở, Neo-Grunge không còn những chi tiết bụi phủi, nhem nhuốc như tiền thân của nó trước đây mà trở nên chỉn chu, sang trọng và bóng bẩy hơn.
+Các yếu tố chính hay "key item" của phong cách Neo-grunge bao gồm: váy/chân váy họa tiết hoa, quần dáng slouchy (loại quần được thiết kế bằng chất liệu vải mềm rủ, mát, dáng rộng và dài), crop-top dáng oversized, họa tiết bản lớn, graphic T-shirts... và lối kết hợp ngẫu hứng các họa tiết với nhau, sử dụng những tông màu trung tính và các lớp quần áo mỏng. Trong đó, chất liệu lụa và chiffon cũng được ưa chuộng hơn vải flannel.Điểm "nhận dạng" của Neo-grunge là những lớp layer mỏng...... đi kèm với các chất liệu nhẹ như chiffon, organza và sự kết hợp đầy ngẫu hứng giữa những họa tiết.
+
+Kiểu dáng quần slouchy...... kết hợp cùng áo khoác lửng, crop-top.
+
+Và đặc biệt là graphic T-shirt.Trên đường băng
+Tại tuần lễ thời trang Xuân/Hè 2013, các trang phục mang hơi thở của Grunge được thiết kế với tính thẩm mỹ cao vượt bậc. Vải flannel hay những chiếc quần jeans rách quen thuộc đã nhường chỗ cho những chất liệu nhẹ hơn như lụa hay vải organza nhằm phù hợp với tiết trời Xuân/Hè.
+Khởi đầu, bộ sưu tập của Dries Van Noten tràn ngập họa tiết caro nhưng không hề gây nhàm chán, kết hợp với những trang phục theo xu hướng pyjama. Những họa tiết được pha trộn một cách hài hòa, đi kèm với các lớp layer nhẹ nhõm nhưng lại chuyển tải một thông điệp ấn tượng, pha trộn giữa sự nổi loạn và nét nữ tính đối lập.  Dries Van NotenNhững thiết kế của 3.1 Phillip Lim lại mang âm hưởng của dư vị hoài niệm đi cùng phong cách hiện đại, cụ thể là khi xu hướng Neo-grunge được bao trùm hơi thở của thời trang retro. Phong cách chủ đạo của BST được xây dựng từ những chiếc áo khoác lụa, họa tiết hoa, graphic T-shirt cùng chân váy họa tiết và chi tiết áo thắt ngang eo đình đám của thời trang 90's.3.1 Phillip LimHouse of Holland lại độc đáo và khác lạ với những trang phục mang họa tiết ô vuông khổng lồ hay họa tiết hoa loang màu sặc sỡ với kích thước nhỏ. Nhà mốt cũng tập trung đi sâu vào phong cách tối giản những năm 90's.House of Holland Bên cạnh đó, Neo-Grunge cũng nhấn mạnh vào vẻ đẹp của sự nữ tính, thanh tao và bay bổng. Chẳng hạn,Acne đã giới thiệu đến giới mộ điệu một phong cách Neo-grunge mới lạ với chân váy thướt tha phối kèm graphic tank-top và grungy sandals.AcneSong hành cùng xu hướng thời trang Neo-grunge là phong cách trang điểm mới lạ, với tiêu điểm là một mái tóc messy với độ bóng nhất định, đi kèm với một đôi môi ấn tượng và chiếc kính mắt tròn sành điệu.Dries Van NotenIchi - Theo MASK

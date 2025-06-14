@@ -1,0 +1,40 @@
+---
+title: "Issac Newton - Người vượt lên trên tất cả những thiên tài"
+date: 2025-06-12T22:50:25Z
+slug: issac-newton-nguoi-vuot-len-tren-tat-ca-nhung-thien-tai
+draft: false
+---
+
+## Issac Newton - Người vượt lên trên tất cả những thiên tài
+
+## teddyhangvu
+
+Tổng hợp - Theo MASK
+Issac Newton là một nhà bác học đại tài, người đã phát minh ra định luật vạn vật hấp dẫn, được coi là nền tảng của cơ học cổ điển đã thống trị các quan điểm về vật lý, khoa học suốt 3 thế kỷ tiếp theo.
+
+Issac Newton - Chú bé luôn nghĩ ra những trò chơi kì lạ
+Đêm đã khuya trời tối mịt mà bà con ở các trại vẫn chưa đi ngủ. Họ thì thào báo cho nhau một tin ghê sợ và lấm lét nhìn lên bầu trời "Quỷ tha ma bắt, cái gì thế kia? Ma trơi, thần lửa hay sao chổi?". Cái vật trắng nhờ, hình thù quái dị, hắt ra thứ ánh sáng đỏ như máu ấy cứ chao đảo, lồng lộn, vút lên, hạ xuống, trông thật khiếp đảm như báo trước một tai ương hay một điều gì đó chẳng lành trong trang trại.
+Duy chỉ có một chú bé không bị cuốn vào cảnh sợ hãi ấy. Chú bé ấy chính là Issac Newton. Chú đứng trong sân nhà mình, dưới gốc cây táo, chốc chốc lại giật sợi dây cầm trong tay làm cho con cái vật quái đản kia càng hung hăng nhảy nhót, hăm dọa. Cuối cùng, chắc đã chán cái trò giải trí ấy chú liền từ từ cuộn dây lại.
+Dân làng sững sờ, dán mắt nhìn lên bầu trời. Họ thấy cái vật quái đản có con ngươi đỏ như tiết kia ve vẩy đuôi, chao đi chao lại rồi lao thẳng xuống trang trại của họ, sa vào khu vườn nhà Newton. Mọi người đổ xô tới thì chứng kiến cảnh Newton đang thu diều về và tắt chiếc đèn lồng bằng giấy bóng kính đỏ buộc lủng lẳng ở đuôi. Các ông già bà cả chép miệng, lắc đầu, lầm rầm nguyền rủa mấy câu gì đó rồi tản ra về. Họ đoán tương lai thằng bé rồi cũng sẽ chẳng ra gì!
+Lại một lần khác, người ta thấy xuất hiện cạnh nhà Newton một cối xay gió nhỏ xíu. Giữa lúc ấy,trời đang lặng gió,vậy mà cánh quạt của cối xay huyền bí đó vẫn cứ quay tít. Mấy người hàng xóm đi qua chỉ đưa mắt nhìn lấm lét với một cảm giác ghê rợn, rồi rảo cẳng bước mau như bị ma đuổi. Họ ngờ thằng bé tinh nghịch ấy có phép ma. Khi nhìn xung quanh không thấy ai, Newton mới lén mở cánh cửa cối xay và lôi ra một chú chuột để cho ăn. Thì ra, khi chạy trong cối xay, chuột đã đánh quay một bánh xe, làm các cánh quạt chuyển động. Cậu gọi chú chuột này là anh thợ xay bột và thường kêu ca về tính hay ăn cắp vặt của anh ta, đã chén sạch cả lúa mì đổ vào trong cối.
+Có đồng xu nào, Newton bỏ hết ra mua búa, kìm cưa, đục và các thiết bị khác cần dùng cho việc chế tạo mô hình. Có lần đến nhà dược sĩ Clác, cậu xin được một chiếc hộp xinh xắn. Về nhà, cậu cứ cặm cụi đến quên ăn quên ngủ để chế tạo ra được một chiếc đồng hồ nước, chiều cao khoảng trên một mét, có kim chỉ giờ chuyển động được trên một mặt có nhiều hình vẽ. Sáng nào Newton cũng đổ thêm nước vào đồng hồ và tất cả các máy móc được đặt ở phòng ngủ của Newton,ở gác thượng, sát mái nhà. Newton còn sáng chế ra chiếc xe phản lực chạy bằng hơi nước, đồng hồ mặt trời v..v..
+
+Vốn tính trầm lặng và âm thầm, lúc nào cũng đăm chiêu suy nghĩ, Newton ít thích chơi bời đông bạn lắm bè. Giây phút hạnh phúc nhất của cậu là được ẩn mình ở một góc vườn đọc sách và thả hồn mơ mộng theo một ý nghĩ xa xôi. Có thì giờ rỗi cậu lại đến phòng thí no cuả ông Clác hoặc mê mải sáng chế những đồ chơi khác lạ. Chính nhờ vậy, Newton đã rèn luyện được cho mình thói quen thực rất bổ ích cho công tác nghiên cứu sau này. Thật chẳng ai ngờ, những trò chơi thời thơ ấu ấy lại là bước chuẩn bị cho một cậu bé đẻ non, ốm yếu, mồ côi cha ngay từ trước lúc lọt lòng trở thành "nhà bác học vĩ đại trong các nhà bác học vĩ đại" - người mà sau khi mất, trên bức tượng tưởng niệm ông người ta đã khắc câu thơ của Luycrexơ:"Người đã vượt lên trên tất cả những thiên tài"
+Nhà bác học vĩ đại trong các nhà bác học vĩ đại
+Isaac Newton là một nhà vật lý, nhà thiên văn học, nhà triết học, nhà toán học, nhà thần học và nhà giả kim người Anh. Theo lịch Julius, ông sinh ngày 25 tháng 12 năm 1642 và mất ngày 20 tháng 3 năm 1727, theo lịch Gregory, ông sinh ngày 4 tháng 1 năm 1643 và mất ngày 31 tháng 3 năm 1727. Đúng vào năm nhà vật lý Galileo Galilei qua đời, Isaac Newton chào đời sớm hơn dự kiến đúng vào ngày Giáng Sinh. Được đặt theo tên cha, người đã mất cách đó hơn 3 tháng, Isaac ốm yếu và bé nhỏ đến mức có thể đặt vừa vào trong cái bình 1,5 lít - theo lời thân mẫu ông kể lại.
+Năm 18 tuổi, 1661, ông vào đại học tổng hợp Cambridge. Tại đây thiên tài của ông cũng chưa biểu hiện rõ rệt. Ví dụ, năm 1663, trong một cuộc thi tuyển, ông chỉ được xếp hạng 24 trên 140 sinh viên. Lúc bấy giờ trường đại học phải đóng cửa vì bệnh dịch và Newton trở về quê, sống ở đây suốt ba năm liền (1664-1667).
+
+Chính tại nơi đây, trong cái yên lặng của thiên nhiên ở xung quanh làng quê, ông đã có những phác thảo đầu tiên về những khám phá cơ bản tương lai trong ba lĩnh vực gắn liền với tên tuổi của ông: tính vi tích, thuyết vạn vật hấp dẫn và bản chất ánh sáng trắng.
+
+Phép tính vi tích nghiên cứu những đại lượng vô cùng nhỏ. Chính Newton là người đã đặt những cơ sở cho ngành toán học này. Trong khi suy nghĩ về những điều mà những người đi trước ông, Kêplê và Galille đã phỏng đoán về sức hút của vạn vật, Newton nêu giả định rằng các thiên thể nhất định có tác động lẫn nhau bằng sức hút. Sau nhiều tính toán và suy nghĩ, đến năm 1667, ông trình bày phác họa đầu tiên về định luật vạn vật hấp dẫn.
+
+Người ta kể lại rằng một hôm Newton ngồi ở góc cây táo, nhìn mặt trời lặn. trăng đã tỏa sáng và các vì sao đã thắp sáng trên bầu trời. Bỗng nhiên một quả táo rơi. Nhà bác học trẻ, 24 tuổi mà đầu óc lúc nào cũng bận rộn suy nghĩ về vấn đề sức hút của vạn vật, bất ngờ nêu lên câu hỏi: tại sao quả táo rơi và mặt trăng không rơi, trong khi cả hai đều chịu sức hút? Bỗng ông lóe lên một tia sáng: “A! Mặt trăng rơi. nếu nó không rơi, nó sẽ xa dần trái đất.”
+Nhưng ông cần đến hơn 16 năm suy nghĩ và chứng minh để công bố định luật vạn vật hấp dẫn vào năm 1685, một trong những khám phá lớn nhất đã bắt nguồn từ một bộ óc của con người: Hai vật hút nhau theo một lực tỉ lệ thuận với khối lượng của chúng và tỉ lệ nghịch với bình phương khoảng cách giữa các trọng tâm của chúng.
+Định luật này giúp ông tính được khối lượng mặt trời, khối lượng của trái đất và của các hành tinh, giải thích tại sao trái đất lại dẹt ở hai cực, nguyên nhân của hiện tượng thủy triều là kết quả sức hút tổng hợp của mặt trời và mặt trăng, tính không điều hòa của chuyển động mặt trăng v.v… Năm 1687 ông công bố những khám phá của mình trong tác phẩm chính những nguyên lí toán học của triết học tự nhiên, công thức hóa ba nguyên lí làm cơ sở của cơ học hiện đại. 
+
+Luận thuyết của ông về Philosophiae Naturalis Principia Mathematica (Các Nguyên lý Toán học của Triết lý về Tự nhiên) xuất bản năm 1687, đã mô tả về vạn vật hấp dẫn và 3 định luật Newton, được coi là nền tảng của cơ học cổ điển, đã thống trị các quan niệm về vật lý, khoa học trong suốt 3 thế kỷ tiếp theo. Ông cho rằng sự chuyển động của các vật thể trên mặt đất và các vật thể trong bầu trời bị chi phối bởi các định luật tự nhiên giống nhau.
+
+Trong cơ học, Newton đưa ra nguyên lý bảo toàn động lượng (bảo toàn quán tính). Trong quang học, ông khám phá ra sự tán sắc ánh sáng, giải thích việc ánh sáng trắng qua lăng kính trở thành nhiều màu. Trong toán học, Newton cùng với Gottfried Leibniz phát triển phép tính vi phân và tích phân. Ông cũng đưa ra nhị thức Newton tổng quát.
+Năm 1685, chính trị nước Anh thay đổi dưới sự trị vì của James II, và trường Cambridge phải tuân thủ những điều luật phi lý như buộc phải cấp bằng cho giáo chủ không thông qua thi cử. Newton kịch liệt phản đối những can thiệp này và sau khi James bị William III đánh bại, Newton được bầu vào Nghị viện Anh nhờ những đấu tranh chính trị của ông.
+
+Năm 1693, sau nhiều năm làm thí nghiệm hoá học thất bại và sức khoẻ suy sụp nghiêm trọng, Newton từ bỏ khoa học, rời Cambridge để về nhận chức trong chính quyền tại Luân Đôn. Năm 1703 Newton được bầu làm chủ tịch Hội Khoa học Hoàng gia Anh và giữ chức vụ đó trong suốt phần còn lại của cuộc đời ông. Ông được Nữ hoàng phong bá tước năm 1705. Ông mất ngày 31 tháng 3 năm 1727 tại Luân Đôn.

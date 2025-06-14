@@ -1,0 +1,14 @@
+---
+title: "[Game] Đoán các bài hát qua lời"
+date: 2025-06-13T13:28:34Z
+slug: game-doan-cac-bai-hat-qua-loi
+draft: false
+---
+
+## [Game] Đoán các bài hát qua lời
+
+## moomoomi
+
+Xin chào các sư huynh, sư tỷ. Hôm nay tiểu muội lập game này với mục đích Zui là chính. 
+Luật chơi: Tiểu mụi sẽ cho lời bài hát và mọi người cứ việc đoán thoải mái. Không phân nam nữ, cung gì cả, càng đông càng đông càng vui . Nếu ai không có nick 4rum thì có thể vào zing của tiểu mụi trả lời.
+Phần thưởng: Người trả lời chính xác và nhanh nhất sẽ nhận được... cái gì giờ ta? A, hay là một cái bánh kem socola được không? Còn giải nhì, ba và khuyến khích: do tâm trạng ta quyết địnhBắt đầu với bài hát nhật này trước nhé:Mukashi mukashi aru tokoro niAkugyaku hidou no oukoku noChouten ni kunrinsuru waYowai juuyon no oujo-samaKenran gouka na choudohinKao no yoku nita meshitsukaiAiba no namae wa JosefiinuSubete ga subete kanojo no monoO-kane ga tarinaku natta naraGumin-domo kara shiboritoreWatashi ni sakarau mono-tachi waShukuseishite shimae“Saa, hizamazuki nasai!”Aku no hana karen ni sakuAzayaka na irodori deMawari no aware na zassou waAa youbun to nari kuchite ikuBoukun oujo ga koisuru waUmi no mukou no aoi hitoDakedo mo kare wa ringoku noMidori no onna ni hitomeboreShitto ni kurutta oujo-samaAru hi daijin o yobidashiteShizuka na koe de iimashita“Midori no kuni o horoboshi nasai”Ikuta no ie ga yakiharawareIkuta no inochi ga kiete ikuKurushimu hitobito no nageki waOujo ni wa todokanai“Ara, o-yatsu no jikan da wa”Aku no hana karen ni sakuKuruoshii irodori deTotemo utsukushii hana na no niAa toge ga oosugite sawarenaiAku no oujo o taosu bekuTsui ni hitobito wa tachiagaruUgou no karera o hikiiru waAkaki yoroi no onna-kenshiTsumori ni tsumotta sono ikariKuni zentai o tsutsumikondaNagane n no ikusa de tsukaretaHeishi-tac hi nado teki de wa naiTsui ni oukyuu wa kakomareteKashin-ta chi mo nigedashitaKawaiku karen na oujo-samaTsui ni toraerareta“Kono bureimono!”Aku no hana karen ni sakuKanashige na irodori deKanojo no tame no rakuen waAa moroku mo hakanaku kuzuretekuMukashi mukashi aru tokoro niAkugyaku hidou no oukoku noChouten ni kunrinshitetaYowai juuyon no oujo-samaShokei no jikan wa gogo sanjiKyoukai no kane ga naru jikanOujo to yobareta sono hito waHitori rouya de nani o omouTsui ni sono toki wa yatte kiteOwari o tsugeru kane ga naruMinshuu nado ni wa me mo kurezu-Kanojo- wa kou itta“Ara, o-yatsu no jikan da wa”Aku no hana karen ni chiruAzayaka na irodori deNochi no hitobito wa kou kataruAa kanojo wa masa ni aku no musumeHạn trả lời đến hết 25/8Kì 2---~---Kì 3---~---Kì 4---~---Kì 5---~---Kì 6---~---Kì 7+8

@@ -1,0 +1,33 @@
+---
+title: "Ngày ăn xin, tối đi Nouvo, kiếm hàng chục triệu ở Văn Miếu"
+date: 2025-06-12T22:48:47Z
+slug: ngay-an-xin-toi-di-nouvo-kiem-hang-chuc-trieu-o-van-mieu
+draft: false
+---
+
+## Ngày ăn xin, tối đi Nouvo, kiếm hàng chục triệu ở Văn Miếu
+
+## teddyhangvu
+
+Theo GDVN Lần theo đường dây chăn dắt ăn xin“Đến hẹn lại lên”, 14h hàng ngày, tại khu vực gần cổng Văn miếu Quốc Tử Giám (Hà Nội) lại xuất hiện một gã ăn xin với hành tung bí ẩn…
+
+Thu nhập “khủng” của gã ăn xin trong thời bão giá
+Mỗi khi đi qua ngã tư Tôn Đức Thắng – Cát Linh, đoạn gần cổng Văn Miếu Quốc Tử Giám, tôi đều bắt gặp hình ảnh một thanh niên trạc 30 tuổi trong bộ dạng rách rưới đi ăn xin, hai chân lở loét “bốc mùi” vì vết bỏng lâu ngày không được chữa trị, gương mặt hốc hác, đôi môi thâm tím giữa cái lạnh đầu đông ở Hà Nội.
+Gã ăn xin lê từng bước chân khó nhọc ra đường mỗi khi tín hiệu đèn đỏ bật lên để xin tiền người đi đường và khách du lịch vãn cảnh Văn Miếu. Đôi mắt gã ăn xin tội nghiệp đưa rất nhanh để kịp nhận ra đâu là xe sang, đâu là người có “tiềm năng” cho mình nhiều tiền rồi lết thật nhanh về phía họ, gương mặt nhăn nhó, đau đớn.Chiếc nạng, bộ quần áo rách, chiếc mũ bảo hộ lao động màu trắng là “đồ nghề” theo gã trong suốt hành trình “kiếm sống” từ hơn 1 năm nay.
+Gã ăn xin trong bộ quần áo rách rưới và đôi chân bị bỏng, lở loét, bốc mùi...Tôi mang băn khoăn về đôi chân cùng người thanh niên ấy hỏi những người ngày ngày chứng kiến “hành trình kiếm sống” của gã ăn xin thì nhận được những cái tặc lưỡi. Nhiều người phá lên cười: “Buổi chiều nào nó cũng có mặt tại khu vực này để xin tiền người đi đường. Người cho nó 5.000, 10.000 đồng, người cho thậm chí là 200 nghìn. Thu nhập còn hơn những người lao động chân tay như chúng tôi ấy chứ”.
+Lúc vào quán nước giọng gã đầy hách dịch hỏi mua điếu thuốc rồi hồ hởi khoe với chủ quán là tháng nào mình cũng mua được vài ba chỉ vàng “làm quỹ đen”.
+“Hôm nay làm ăn chán quá, cả buổi chiều mới được vài trăm nghìn” – vừa châm điếu thuốc, gã vừa lắc đầu tỏ vẻ không hài lòng về buổi làm việc "ế ẩm" của mình.
+Khi dáng gã hòa vào dòng xe đang lưu thông để tiếp tục công việc của mình, những người làm xe ôm nhỏ to: “Giờ nó thu nhập ngày 1 triệu là còn ít đó. Thời buổi bão giá rồi nên người ta cho cũng ít đi, chứ cách đây vài tháng có ngày nó còn kiếm được… 3 triệu/ngày cơ. Cánh xe ôm như anh em mình có làm cả tháng cũng chỉ bằng nó làm một ngày. Quần áo đẹp nó cũng không thiếu nhưng nó có mặc đâu. Ngày nào cũng diễn một bộ như thế để đánh vào tình thương của người đi đường ấy mà. Có thế họ mới cho tiền chứ”.
+Tôi lướt xe nhanh tới trước mặt gã ăn xin, trong tay cầm sẵn một tờ 10 nghìn và một tờ 5 nghìn. Bỏ vào chiếc mũ trắng gã ăn xin cầm trên tay tờ 10 nghìn, tôi nhận được sự câu kéo của gã: “Còn tờ 5 nghìn, cho luôn đi, giữ lại làm gì…???”. Có khách nước ngoài nhìn thấy vết loét đang chảy nước cũng tới cho gã 500.000 đồng. Gã vội vã cảm ơn và mỉm cười đắc thắng. Có người sau khi cho gã tiền còn tới hỏi han tình hình đôi chân, rồi khuyên gã nên đi chữa. Lúc ấy, gã chỉ cười rồi lại vội lết đôi chân tiến tới những đối tượng đi đường khác…
+Hành tung bí ẩn của gã ăn xin có thu nhập “khủng”
+“Ca” làm việc thường ngày của gã ăn xin kết thúc lúc 4h hơn. Gã lại tìm một chỗ ngồi, sắp xếp cẩn thận số tiền vừa xin được. Được ít tiền, gương mặt gã buồn thiu. Những lượt xin được nhiều, gã ăn xin lại quay sang cánh xe ôm cười nói vui vẻ như để khoe thành tích mình vừa gặt hái được. Chờ đèn đỏ bật lên, gã lại tiếp tục hành trình “xin ăn”.
+Lúc đứng trên đường Văn Miếu, lúc di chuyển sang đường Tôn Đức Thắng, gương mặt gã ăn xin lúc nào cũng như sẵn sàng có thể gây sự với bất kì ai muốn cản trở hành trình “kiếm sống” của mình.Có ai đó nhìn mình, gã lại nhăn nhó đau đớn. Khi ước lượng số tiền kiếm được trong ngày đã được như con số mọi ngày, gã tạm cho mình nghỉ ngơi. Gã lết đôi chân đi vào một con ngõ ngay đầu đường Tôn Đức Thắng giao với đường Văn Miếu. Mặc cho người ra kẻ vào nhìn mình, gã vẫn vô tư ngồi đếm tiền và phân chia, để riêng từng loại. Ai trong số những người thường xuyên có mặt tại khu vực đó cũng quen thuộc với công việc đã trở thành chu kì của gã ăn xin có hành tung “bí ẩn” này.
+
+Từ công việc đi xin tiền người qua đường, một tháng thu nhập của gã ăn xin này lên tới 30 triệu đồng
+Khi bóng chiều đổ trên mọi con đường, gã lết nhanh ra khỏi con ngõ ấy. Hôm gã đi bộ, hôm lại bắt xe ôm. Mọi thao tác qua đường hay lên xuống xe của gã đều rất nhanh chóng và chuyên nghiệp.
+Địa điểm quen thuộc để gã “quy đổi” số tiền kiếm được trong ngày thành tiền chẵn là quán phở nằm trên đường Tôn Đức Thắng. Chỉ thoáng thấy gã bước tới, người bán phở đã biết công việc sắp tới của mình. Dù không đủ tiền đổi chị vẫn phải đi hết quán này tới quán khác đổi tiền để làm đẹp lòng “kẻ ăn xin”. Gã vừa bước đi vừa vờ đếm tiền. Rồi gã quay lại sinh sự về việc… thiếu 20.000 đồng. Người bán phở chỉ biết thở dài rút tiền đưa cho gã. Không sự phản kháng, không lời qua tiếng lại khiến hành tung của gã ăn xin càng trở nên bí ẩn.
+Công cuộc đổi chác thỏa mãn ý mình, gã ăn xin bước thật nhanh sang đường, gã rẽ vào ngõ Đoàn Thị Điểm. Dọc đường đi, thấy quán hoa quả, quán bán hàng rong, gã vô tư nhặt quả lên ăn… cho đỡ nhạt miệng. Không ai “nỡ” từ chối hành động rất tự nhiên đó của gã. Họ chỉ tặc lưỡi: “Dây vào nó làm gì cho mệt!”.
+Gã lại đi. Gương mặt không còn nhăn nhó và đau đớn như khi đứng xin tiền ở ngoài đường. Thay vào đó là sự phấn khởi sau một ngày thu nhập khá “ấm túi”. Gã bước vào một ngôi nhà hai tầng nằm trên phố Phan Văn Trị (Đống Đa, Hà Nội). 5 – 10 phút sau, xuất hiện trước nhiều ánh nhìn của mọi người, bước ra từ ngôi nhà ấy là một thanh niên mặc áo hoa, quần kaki, đôi chân đi hơi khập khiễng. Vẫn là đôi chân bỏng ấy, vẫn gương mặt hốc hác, đôi môi thâm tím. Người thanh niên này chính là gã ăn xin hàng ngày vẫn xuất hiện tại khu vực Văn Miếu - Quốc Tử Giám.Gã bước nhanh ra phố Phan Văn Trị để lấy chiếc xe Nouvo rồi phóng rất nhanh trở lại con ngõ mình vừa đi bộ ra. Gã luồn lách qua từng con ngõ nhỏ, đánh võng trên đường như tay đua chuyên nghiệp. Địa điểm cuối cùng gã dừng lại là một con đường nhỏ nằm im ắng trong ngõ trên đường Láng Hạ, Đống Đa, Hà Nội.
+
+Một hình ảnh khác của gã ăn xin gần Văn Miếu - Quốc Tử Giám.
+Một ngày với “gã ăn xin” gần Văn Miếu Quốc Tử Giám lặp lại như thế. Ngày rằm, mùng một, gã di chuyển về chùa Quán Sứ (Hoàn Kiếm, Hà Nội) để “tăng thêm thu nhập”. Vẫn bộ quần áo rách rưới mặc hết năm này qua tháng khác, chiếc nạng gỗ và cái mũ bảo hộ lao động màu trắng cầm tay. Trời rét cũng như trời nóng, gã ăn xin ấy đều để đôi chân trần lê lết trong bụi bẩn, chiếc quần soọc như cố cho người đi đường thấy rõ vết bỏng trên hai chân của mình.

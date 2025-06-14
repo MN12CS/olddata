@@ -1,0 +1,36 @@
+---
+title: "Huyền thoại hồ ly"
+date: 2025-06-13T00:49:08Z
+slug: huyen-thoai-ho-ly
+draft: false
+---
+
+## Huyền thoại hồ ly
+
+## Kai Aquarius
+
+Đây là lần đầu ta viết truyện về thể loại xuyên không... Có gì không được hay hoặc là hơi vô lí mong các nàng/chàng thứ lỗi cho ta. Gạch xin nhận tất."Từng cục(gạch) long lanh rơiEm đưa chưng em hứng"Tên tác giả: Kai Aquarius (gọi ta là Kai nhé)
+Tên truyện: Huyền thoại hồ ly
+Rating: 13+
+Thể loại: Xuyên không, bi kịch, lãng mạn, chút horror............
+ 
+P/S: Xin các độc giả đừng spam trong topic. Các couple ta đã lên list cả rồi, nếu ai muốn couple như thế nào thì xin mời vào tường nhà ta uống trà đàm đạo. Ta ko muốn topic bị close đâu nhá.
+ 
+Nội dung truyện:
+ 
+Liệu có thể hình thành tình yêu...
+từ 2 sinh vật...từ 2 thế giới...khác nhau hoàn toàn
+YÊU QUÁI...và...CON NGƯỜI.
+ Có...
+Họ đã yêu nhau...và sinh ra loài sinh vật...
+kết hợp giữa yêu quái và con người...
+họ gọi chúng là BÁN YÊU
+ Bán yêu à...Trên thế giới này...chúng...
+chiếm số lượng đông đảo, cũng như số lượng của yêu quái và con người...
+họ ẩn trong lốt con người, sống rải rác trên thế giới...
+ Họ có thể sống rất lâu, có thể hàng thế kỉ...Cho đến khi bị giết......bởi những kẻ Thợ Săn...
+Họ là những con người...bình thường thôi...
+Không biết từ khi nào
+mà họ đã hình thành suy nghĩ
+ ...rằng...yêu quái là những sinh vật hạ đẳngvà kể cả con của chúng...Mặc dù bên trong những bán yêu có lẫn dòng máu đỏ nóng của CON NGƯỜI...Chỉ vì tiền...họ quan niệm rằng máu của chúng có khả năng trị thươngVà khi một quái vật...hoặc bán yêu nào đó chết đi...Máu của chúng...sẽ đủ để hồi sinh một con ngườiThợ Săn có ở mọi nơi...mọi ngả...
+...số phận chỉ định họ phải làm Thợ Săn...cho dù họ có độc ác hay không...~ ●●● ~● Chap 1 ●● Chap 2 ●Mời các nàng xem sơ qua nhá

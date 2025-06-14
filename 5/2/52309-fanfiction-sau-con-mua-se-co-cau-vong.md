@@ -1,0 +1,12 @@
+---
+title: "[Fanfiction] Sau cơn mưa sẽ có cầu vồng..."
+date: 2025-06-13T13:41:11Z
+slug: fanfiction-sau-con-mua-se-co-cau-vong
+draft: false
+---
+
+## [Fanfiction] Sau cơn mưa sẽ có cầu vồng...
+
+## NhMinK
+
+​​ ​Title: Sau cơn mưa sẽ có cầu vồng...​ ​Author: MinK​ ​Disclaimer: Nhân vật không thuộc về tác giả nhưng họ sống hay chết thì là do tác giả định đoạt​ ​Category: Comedy, Daily Life, Drama, Tragedy​ ​Rating: K+​ ​Length: Longfic​ ​Status: On-going​ ​ ​Time: Vì thời hạn khóa topic là 2 tháng nên 2 tháng mình sẽ post 1 lần ​ ​Warning:​ ​+ Nếu thích hãy ấn nút thanks ủng hộ mình nhé  Đừng spam những tin kiểu như "hay lắm" hay "dở quá". Nếu bạn có ý kiến gì có thể vào đây để góp ý nhé  ​+ Đừng giành giật tem phiếu với nhau nhé, qua thời bao cấp rồi các bạn ạ.​+ Cũng đừng giục mình các bạn ạ, vì bản thân lười lắm, lại bị ném bom ném đạn quen rồi, giục thế giục nữa cũng chẳng khá hơn đâu. Với lại ở trên đã nói thời gian là 2 tháng nên cứ từ từ ​+ Cuối cùnglà tác giả rất chuộng hòa bình nên nếu có muốn cãi nhau thì lôi nhau ra chỗ khác mà cãi nhé, ở đây có trẻ nhỏ, nhìn thấy lại bị ảnh hưởng thì chết​ ​Note:​ ​+ Truyện này mình viết thành nhiều phần, mỗi phần là của những nhân vật khác nhau. Vậy nên có thể trong phần này chòm sao của bạn chưa xuất hiện, nhưng sau này thì sẽ là nhân vật chính đấy​+ Vì mình là Ma Kết nên không thể tránh khỏi việc vô tình cho nhân vật Ma Kết xuất hiện hơi nhiều, mong mọi người thông cảm.​+ Những phần chữ màu trắng là những lời lảm nhảm riêng của tác giả, đọc hay không tùy bạn. [vậy nên nó mới có màu trắng ]​ ​Summary:​ ​Ban đầu, tôi không biết nên viết như thế nào. Có quá nhiều ‎ý‎ tưởng trong đầu tôi. Và nếu như thực hiện mỗi ‎ý‎ tưởng riêng lẻ, nó thực sự khá mất công và còn chưa kể đến việc đem lại sự nhàm chán. Vậy là, tôi quyết định gộp tất cả lại. Đây sẽ là một câu truyện có cả happy ending, sad ending, hạnh phúc, khổ đau, dằn vặt, nuối tiếc, lạc mất nhau rồi lại tìm thấy, những niềm vui nhỏ bé nhưng rất thiêng liêng, những vết thương lòng, sự kiên trì, sự cố gắng, tuyệt vọng, và cả cái chết … Dù gì, đó mới là cuộc sống đời thường, và đó mới là những gì mà tôi muốn đem lại. Đây chỉ là một câu truyện rất bình thường, về những con người bình thường, kể về cuộc sống bình thường của họ. Nhưng, bạn biết đấy, bình thường, chỉ là một từ ngữ mang tính tương đối ...​ ​ ​Giới thiệu nhân vật:​Phần I Phần II Phần III​ ​Phần I:​Chap 1​ ​Cảm ơn các bạn đã quan tâm theo dõi. Xin kính chào tạm biệt và hẹn gặp lại

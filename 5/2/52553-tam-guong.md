@@ -1,0 +1,12 @@
+---
+title: "Tấm gương"
+date: 2025-06-13T13:47:17Z
+slug: tam-guong
+draft: false
+---
+
+## Tấm gương
+
+## Ikenami Sayuki
+
+Tôi loay hoay, lụi cụi trong căn nhà kho chật hẹp tối om om. Cửa sổ chưa kéo hết rèm, đóng im ỉm, hắt vào nhà một ánh sáng lạnh lẽo. Tôi là vậy, chỉ thích ở trong bóng tối.​Hiếm khi nào tôi ở nhà phụ mẹ dọn dẹp như những đứa bạn cùng trang lứa.​...​Tôi ho khù khụ, lật cái rèm bị phủ trắng một lớp bụi dày lên. Ánh sáng từ cái gương cũ của mẹ làm tôi chói mắt.​ ​​ ​ ​Tấm gương ấy, có lẽ đã gắn liền với tuổi thơ tôi.​Nó được mua về vào lần sinh nhật thứ 2 của tôi, ghi lại một dấu ấn quan trọng của cuộc đời. Tấm gương chứng kiến mọi điều, khi tôi giấu đôi bông tai bằng ngọc của mẹ vào hộc tủ quần áo của em Bông, hay lén ăn trộm bánh quy mẹ cất trên nóc tủ lạnh, rồi ăn trộm cặp kính của bố,... Sao mà nhớ hồi đó thế!​​ ​ ​Rồi tôi nhớ những câu hỏi ngô nghê của tôi, nhớ cái răng sún mỗi khi tôi cười, nhớ vòng tay ấm áp của bố và những câu chuyện cổ tích hằng đêm của mẹ đã đưa tôi vào giấc ngủ. Mỗi câu chuyện, mỗi mảnh ghép trong kí ức của tôi đều có sự hiện diện của cái gương ấy.​Năm em Bông tôi lên lớp 2, còn tôi lớp 5, tôi nhớ lắm, mẹ đã nói tôi là tấm gương cho Bông học tập, có lẽ tại điểm 6 của nó làm mẹ phiền lòng. Tôi hãnh diện ra mặt với kết quả học tập sáng chói của mình, nhìn nó cáu kỉnh, khuôn mặt búng ra sữa không còn hiền lành nữa. Nó chun mồm vào, tỏ vẻ khó chịu, còn mẹ chỉ thở dài.​ ​​ ​ ​Giờ tôi nhìn lại mình trong gương, nhìn hình ảnh mình phản chiếu trong đó, nhìn vết nứt to thật to đã chôn vùi tấm gương cũ trong lớp bụi thời gian dày đặc. Tôi không còn là chính tôi nữa rồi. Tôi là tấm gương nứt. Cuộc sống đâu có như một trò chơi của đứa trẻ lên mười?​Cuộc sống với một đứa trẻ giản đơn như trò ú tim. Vui như một bữa tiệc. Hạnh phúc như một con đường tràn ngập kẹo và sữa. Và đứa trẻ không biết bỏ cuộc bao giờ.​Nhớ ngày tập đi xe đạp, tôi ngã, ngã hoài, đau thì đau lắm, khóc thì khóc nhiều, ấy vậy mà có biết bỏ cuộc đâu! Càng lớn, người ta càng ít nói và suy nghĩ nhiều hơn. Đôi khi, suy nghĩ chán rồi không làm nữa. Nhưng trẻ con đâu có vậy! Đứa trẻ trong tâm hồn tôi đã ngủ quên chốn nào?​​ ​ ​Vết nứt chia tâm hồn tôi thành nhiều mảnh, thành những mảnh ghép hỏng không thể ghép lại được nữa. Tôi là tấm gương nứt, phải không?...​Trong tim có thể có một nỗi đau... liệu tấm gương nứt có thể lành lại?​Như một đứa trẻ mà thôi.​ ​ ​ ​ ​ ​ ​Tôi mở toang cửa sổ, tắm mình trong những giọt nắng ngọt ngào...​ST​

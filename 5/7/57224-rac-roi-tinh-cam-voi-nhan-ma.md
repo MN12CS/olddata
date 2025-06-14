@@ -1,0 +1,22 @@
+---
+title: "Rắc rối tình cảm với Nhân Mã"
+date: 2025-06-14T03:49:34Z
+slug: rac-roi-tinh-cam-voi-nhan-ma
+draft: false
+---
+
+## Rắc rối tình cảm với Nhân Mã
+
+## nhimbien
+
+Chào các bạn Nhân Mã. Tớ là Song Ngư nữ, đang có chút rắc rối về tình cảm với một nam Nhân Mã, đúng hơn tớ không hiểu lắm về cậu ấy, tớ cần mọi người cho tớ lời khuyên.
+7 năm trước, cậu ấy thích tớ, theo đuổi tớ 3 năm thời cấp 3. Thật sự, ngay lần đầu gặp tớ đã thích cậu ấy và lúc cậu ấy tỏ tình tớ đã vô cùng hạnh phúc, bọn tớ có tình cảm và nhiều kỷ niệm vô cùng trong sáng. Nhưng do bản tính nhút nhát và trẻ con , không rõ ràng của tớ, nên tớ đã 3 lần từ chối tình cảm của cậu ấy. Tuy nhiên, trong lòng vẫn có gì đấy thích cậu ấy, chính tớ cũng không hiểu bản thân nữa.
+Khi ra trường, mỗi đứa 1 nơi, có 1 con đường riêng, rất ít khi liên lạc với nhau. Thỉnh thoảng mới gặp nhau vì bọn tớ chơi chung 1 hội bạn. Tớ vẫn khá quan tâm cậu ấy, có nghe mọi người kể cậu ấy đã yêu rất nhiêù, trở thành 1 con người đa tình. Còn tớ thì cũng rất nhiều người đến, vẫn bị cuốn theo những tình cảm đó nhưng tớ chưa hề nhận lời ai. 
+Tớ không biết từ khi nào, trong 1 đến 2 năm gần đây, bọn tớ liên lạc với nhau nhiều hơn, đã có lúc cậu ấy nói rằng vẫn không thể quên được những kỷ niệm cũ. Tớ lại xao lòng, tình cảm cũ ngày nào còn dở dang dường như một lần nữa trở lại mạnh mẽ hơn. Nhưng tớ biết lúc đó cậu ấy đang có người yêu (có lẽ những lúc đó cậu ấy đang buồn chuyện tình cảm nên có nhớ đến tớ). Và rồi, một năm trở lại đây, tớ biết cậu ấy đã chia tay người yêu, hơn bao giờ hết tớ muốn nắm lấy cơ hội để quay lại, 7 năm nay, trải qua nhiều tình cảm, gặp nhiều người, cuối cùng tớ hiểu hóa ra lâu nay tớ vẫn yêu cậu ấy, dường như không phải cậu ấy thì có lẽ không là ai nữa. Nhưng, con Cá tớ lại vô cùng nhút nhát cho nên mãi mãi cứ im lặng.
+Đến thời gian gần đây, chính xác là trong thời gian về Tết này, có 1 vài chuyện xảy ra, cậu ấy thường xuyên đi với hội bạn bọn tớ hơn (những năm trước cậu ấy dường như chỉ gặp 1 đến 2 lần lúc hội hè). 
+- Ngày hôm đó, bọn tớ tất niên, cậu ấy có chút lời qua tiếng lại với bàn khác (nhưng chưa xô xát gì vì bọn tớ ngăn), đến lúc về cậu ấy gọi nói với tớ lo tớ nghĩ cậu ấy là con người khác và nói với tớ vẫn nhớ kỷ niệm cũ của 2 đứa lắm. Tớ không nói gì, những ngày sau bọn tớ vẫn đi chơi với hội bạn bình thường. 
+- Ngày mồng 1 tết bọn tớ có chat fb nói chuyện với nhau, cậu ấy nói mập mờ thích 1 người lâu nay mà không dám nói (tớ biết cậu ấy muốn nói đến là tớ). Cho nên tớ quyết định nói cho cậu ấy biết những năm qua tớ vẫn nhớ cậu ấy. Cuối cùng cậu ấy cũng nói thích tớ, tớ cũng đã trả lời là tớ cũng vậy.
+- Vậy mà ngày mồng 3 tết, tớ nghe mấy đứa bạn kể lại hôm mồng 2 gặp cậu ấy chở cô bé nào đó ngồi đằng sau ôm cậu ấy. Tim tớ đau vô cùng, chỉ biết im lặng.
+- Ngày mồng 4 tết, nhà tớ tổ chức cúng đưa ông bà, tớ mời hội bạn thân trong đó có cậu ấy đến chơi. Có nhậu nhẹt 1 chút nên đứa nào cũng hơi say. Thằng bạn thân của cậu ấy (cũng chơi trong hội bạn với bọn tớ) cứ bắt tớ qua ngồi với cậu ấy và luôn có ý chỉ 2 đứa tớ là 1 cặp. Cậu ấy cũng tỏ ra rất quan tâm đến tớ như bọn tớ là 1 cặp thật. Đến lúc ra về hết, cậu ấy nán lại trước cổng nhà tớ để nói chuyện. Tớ có hỏi chuyện hôm mồng 2 cậu ấy chở ai, lúc đầu cậu ấy chối nhưng sau cậu ấy chỉ im lặng và nói "Buồn thật". Tính tớ không thích làm người khác suy nghĩ nhiều nên tớ vờ vui vẻ, bảo không sao đâu, chỉ hỏi vậy thôi. Đến lúc cậu ấy chuẩn bị về, cậu ấy đã hôn tớ, lúc đó tớ cũng không kiềm chế được tình cảm nên cũng không nói gì. Về nhà cậu ấy gọi và nói chuyện rất nhiều với tớ, nói tính cậu ấy đa tình không xứng với tớ nhưng lúc hôn tớ là thật, nói thích tớ lâu rồi, tớ cũng nói thích cậu ấy.
+...
+Dù đã tỏ tình như vậy, nhưng giữa bọn tớ vẫn có khoảng cách gì đó, vẫn như những ngày trước chứ không phải 1 cặp. Tớ thì nhút nhát, cứ nghĩ chẳng qua lúc đó cậu ấy say nên không kiềm chế được bản thân, nên tình cảm bộc lộ không chính xác, tớ cũng có nói với cậu ấy như vậy. Cậu ấy thì vẫn không biểu hiện gì rõ ràng nên cuối cùng bọn tớ vẫn chỉ như chưa xảy ra chuyện gì. 2 hôm nay tớ cứ suy nghĩ nhiều, không hiểu cuối cùng cậu ấy là như thế nào. Có bạn nào giúp tớ giải thích cậu ấy đang nghĩ gì, tình cảm là thế nào giúp tớ với được không. Tớ cảm ơn nhiều

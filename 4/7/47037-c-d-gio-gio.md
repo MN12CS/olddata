@@ -1,0 +1,20 @@
+---
+title: "[C-D] Gió + Gió = ???"
+date: 2025-06-13T12:01:56Z
+slug: c-d-gio-gio
+draft: false
+---
+
+## [C-D] Gió + Gió = ???
+
+## Blurred
+
+​ ​ 
+ ​-Có lẽ, cái thật sự khiến con người thương cảm không phải là hồi ức đau đớn, mà là quãng thời gian tươi đẹp đã qua không cách nào tìm về. Mất đi đau đớn là một kiểu giải thoát, mất đi tươi đẹp mới là đau đớn thật sự-​ ​ ​ ​4/7/13​ ​Mọi thứ dường như thật yên tĩnh​Hôm qua nửa đêm hơn lại giật mình tỉnh giấc, 2h34, sao khó ngủ lại quá​Trời man mát, nhắm mắt lại, và cảm thấy bình yên hơn​Không biết giờ này anh ngủ chưa nhỉ, thế là lại lục tung chăn màn, chậc, chỉ để tìm cái đt thôi. Xem nào.. tin nhắn gần đây nhất.. Thật sự không muốn phá giấc ngủ của anh, nhưng ở nơi nào đó thuộc về quá khứ, em cảm thấy khi sáng dậy thấy người kia nửa đêm nhắn tin, tự nhiên lòng ấm áp lạ. Em muốn anh ấm lòng. ​À ừ, thì em đang biện minh cho việc làm phiền anh giữa đêm khuya đấy, thấy cũng tội mà thôi cũng kệ, lâu lâu mới một lần mà cũng có sao đâu har. Harrrr anh *mắt chớp chớp miệng đớp đớp* =]]~​ ​ ​ ♥​ ​ ​Lẽ ra không định viết ngay hôm nay đâu, nhưng lỡ hứa mất tiêu ngay hôm qua rồi, với cả nãy tung tăn thế nào ấy, mò vào ngay nhật kí của đôi bạn trẻ kia, đọc ké, hạnh phúc lây. Híhí.. ​Cơ mà nhật kí nào chả có vui có buồn, không dám đọc nhiều, sợ lại nghĩ lung tung vớ vẩn thì cho anh dỗ chết luôn, biết dỗ người khác mệt thế nào, anh cứ giữ sức đó mà làm việc mà hát cho đạika nghe được rồi *cười hí hửng*​ ​ ​♥​ ​ ​Lỡ viết rồi thì viết cho dài xíu xíu​ ​Ck mình thì có kiểu dỗ con nít rất là kì-thị-cục, đang buồn chẳng muốn nói chuyện lại đè đầu ra bắt hát đi, người ta dỗi dỗi bảo buồn chẳng muốn hát, thế là kì kèo, buồn thì hát bài hợp với tâm trạng đi, lát sau cũng ráng ỳ cổ ra mà hát, hát như rên, như heo bị chọc tiết ấy, vậy là nín lúc nào chẳng biết >"< sao mình lại nín nhỉ, sao lại nín nhỉ *ôm đầu tự kỉ* >"<​ ​Còn kiểu thứ hai là .... cười trên nỗi đau khổ của người khác, nhất là khi chuyện buồn ấy liên quan đến anh. Như kiểu vui sướng khi người gặp nạn ấy kia kìa. *lườm lườm* Hôm kia kỉa kìa kia, hiểu lầm gì đấy, thế là nt xg khóc ô ô, có tên hâm nặng nào đấy gọi, lại cười ù ù vào tai, thật là ức chế muốn chết *rưng rức*. Ờ thì được dỗ xong lại khôi phục phong độ, mở miệng hăm doạ liền "lần sau mà nói vậy với người ta nữa là em cắt, em cắt, cắt cái gì tự hiểu nghe chưa, nghe chưa" ​ ​Hịhịhị.. thích cảm giác được làm đại ca, nhưng mình ứ phải đầu gấu đâu, mình muốn làm đại ca trong nhà ^O^~~~ doạ ruồi doạ muỗi doạ ck doạ con là đủ r` ná nà na.... *xoa xoa má*​ ​ ​♥
+ 
+ 
+Tự nhiên nãy em vào phòng tắm sao không biết mà cái đt rớt cái tỏm vào nước mà chẳng hay, tận nửa tiếng sau bước ra mới thấy mà cấp cứu cho nó. Tuy là 1280 trâu bò nhưng thời gian ngâm nước lâu z cũng hơi sờ sợ. Kiểu này đau lòng vì mất tiền rồi *mếu* Em là em thương tiền nhắm nhun *hiu hiu*
+ 
+Mà anh nhé, thích ngắm em hàng xóm xinh đẹp không hả hả *lườm*. Em ứ ghen, nhưng hơi khó chịu, cảm thấy bị khiêu khích ngar ~~'
+ 
+♥​ ​ ​Hôm nay phải tranh thủ đi học sớm thôi, đi trễ riết mà thầy cô quen mặt luôn, ngại lắm ý anh >"<~​ ​♪ Búp bê bằng bông biết bay bay bay. Búp bê biết bò biết bắt biết bơi. Búp bê bằng bông bên bờ bươm bướm. Bươm bướm buồn buồn bỏ bạn bay bay...♫​ ​Nghe bài này là tự dưng yêu không chịu được. Nhớ thời học mẫu giáo. híhíhí.. Hết cuồng bài siu nhưn Gao rồi, búp bê bông nhá *cười tí tởn*​ ​Màu :5e66ab​Font : Andale Mono​ ​ ​ ​ ​ ​ ​P/s : ILU hn ​ ​

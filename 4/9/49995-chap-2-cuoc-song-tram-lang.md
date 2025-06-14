@@ -1,0 +1,63 @@
+---
+title: "Chap 2 : Cuộc sống trầm lặng"
+date: 2025-06-13T12:46:01Z
+slug: chap-2-cuoc-song-tram-lang
+draft: false
+---
+
+## Chap 2 : Cuộc sống trầm lặng
+
+## Tiramisu
+
+-         Giải….
+ 
+Kim Ngưu sững sờ, một tay dựa cạnh bàn, từ từ đứng lên. Không kịp để Ngưu nói hết câu, Cự Giải lập tức bay đến ôm chầm lấy người bạn tri kỷ, nhảy cẫng lên.
+-         Kim Ngưu, cậu đây rồi!! Cậu có biết là tớ đã phải lùng địa chỉ nhà mới của cậu, tìm kiếm khắp nơi mới gặp được cậu ở đây không hả? Sao cậu chuyển nhà mà không nói cho tớ biết?
+-         Tớ…
+Kim Ngưu vẫn chưa hết hoàn hồn. Bạn thân Cự Giải của cô đang ở đây, đúng, đó là sự thật. Không phải đang ở tít đất nước Nhật Bản xa xôi… Người bạn xa cách suốt 10 năm ròng đang hiện diện ngay trước mặt cô, người bạn mà cô đã ngỡ sẽ không bao giờ gặp lại nữa. Ánh mắt Kim Ngưu chan chứa hạnh phúc, rồi cô cũng ôm Cự Giải. Cả hai ôm nhau nhảy tưng tưng trước ánh nhìn… ba trấm của các học sinh khác trong lớp. Hôm nay quả thật có rất nhiều chuyện lạ kì xảy đến với họ, mà trong suốt những năm học ở đây họ chưa bao giờ chứng kiến.
+ 
+Kim Ngưu cười rất tươi. Cự Giải cũng thế. Tất nhiên điều đó không tránh khỏi tầm nhìn của những người còn lại. Song Ngư tròn mắt, vì cô chưa bao giờ thấy nụ cười của Kim Ngưu.
+-         Cậu về đây hồi nào mà tớ không biết vậy?
+-         Tớ mới về hai tuần trước, tốn hơn tuần để tìm ra tung tích của cậu hiện đang tồn tại ở chỗ nào! – Cự Giải mỉa mai. – May là cuối cùng cũng thấy cậu ở đây. Vừa chuyển tới trường mới đã được người ở đây đón tiếp nhiệt tình thế này rồi! – Vừa nói, Giải không quên đá đểu “ai kia”. Thiên Yết ngồi bàn cuối nhìn lại bằng ánh mắt “đe doạ”.
+-         Thôi, tìm được tớ cũng là may rồi. Cậu ngồi tạm chỗ kế tớ đi, chỗ đó trống. – Kim Ngưu hiểu ý Giải đang chỉ ai.
+-         Ừ.
+ 
+Hai phút sau trống điểm vào tiết. Cô giáo chủ nhiệm bước vào. Đúng như dự đoán, cô xếp cho Giải ngồi kế Ngưu, vô tình “tạo điều kiện phát triển” cho tình bạn của hai người.
+ 
+Suốt giờ học và giờ ra chơi sau đó, cả hai tám chuyện không ngừng. Mười năm, có quá nhiều chuyện để nói. Chuyện hồi nhỏ tụi mình hay tắm mưa với nhau, chuyện lớn lên xíu thì bày trò trét… keo dán sắt lên ghế của… mẹ Giải!! Vân vân và vân vân… Nói chung, hôm nay là ngày vui nhất của Kim Ngưu. Chưa bao giờ cô nói và cười nhiều như vậy.
+ 
+Giờ ra về. Kim Ngưu rủ Cự Giải ra sân thi đấu ngoài trời của trường ngồi ăn, tranh thủ tám tiếp. Cả hai chọn một khán đài khá vắng. Cự Giải ôm nguyên bọc đồ ăn Kim Ngưu mới mua, ngồi phịch xuống ghế. Đang tám ngon trớn, một bóng người bỗng nhiên xuất hiện ngay tầm mắt Cự Giải, ngồi ở khán đài đối diện cô. Không quá khó khăn để xác định đó chính là Thiên Yết. Anh chàng không ngừng nhìn Giải, mắt đầy tà khí. Thấy vậy, Giải nhìn lại, thách thức. Kim Ngưu đang nói thao thao bất tuyệt tự nhiên thấy Giải im lặng, nhìn theo hướng mắt thì thấy Thiên Yết, liền hiểu ra và dúi vào tay Giải một ổ bánh hăm-bơ-gơ.
+ 
+Cự Giải cầm lấy ổ bánh tội nghiệp, đưa lên miệng và ngoạm miếng rõ to một cách dứt khoát, mắt như nói “Cậu sẽ giống cái bánh này nếu dám động vào tôi” với Yết. “Thì đã sao? Cô nên coi chừng đấy!” – Yết nhìn lại. “Tôi không sợ cậu đâu” – Giải không chớp mắt. Kim Ngưu thấy bầu không khí im lặng một cách căng thẳng, tính lảng đi cho lành thì chợt thấy Ma Kết đang lững thững đi dọc đường pít, hướng về phía Thiên Yết. Đi sau là Xử Nữ đang phát bực với hàng đống câu hỏi “Tại sao? Tại sao?” và tinh thần “theo sát mọi lúc mọi nơi” của Song Ngư.
+ 
+Đột nhiên Ma Kết quay lên nhìn Kim Ngưu làm cô giật mình, giống như vừa bị bắt quả tang nhòm lén. Rồi Kết lại quay đi.
+…
+ 
+-         Trời ạ, tôi xin cậu đấy, ngàn lần xin cậu, Song Ngư! Cậu làm ơn tha cho tôi một phút tự do đi được không? Sao cứ phải đi kè kè tôi thế này chứ? – Xử Nữ gắt lên.
+-         Không được, mình phải đi theo để còn bảo vệ cho bạn! Với lại nhiều lúc có chuyện bất trắc hay bạn cần nhờ mình việc gì thì sao? – Song Ngư mắt long lanh.
+“Khổ thật!” – Xử Nữ thầm nghĩ. Chưa biết ai bảo vệ ai nữa đây? Người bé hạt tiêu như Song Ngư thế này gặp sâu đã la oai oái. Chậc, cô “ôsin tự nguyện” này không biết là giúp hay chỉ thêm phiền phức nữa!
+ 
+Cự Giải nghe thấy tiếng ồn ào của cuộc nói chuyện thì thôi không nhìn Thiên Yết nữa, thay vào đó là “bơ” luôn, chỉ nói chuyện với Kim Ngưu.
+-         Tớ không hiểu sao có người lại có thể hâm mộ được “hắn” nữa? – Cự Giải phụng phịu.
+-         “Hắn” nào?
+-         “Hắn” đó! – Giải chỉ thẳng mặt Yết.
+ 
+Kim Ngưu chỉ cười trước bản tính đã lớn mà vẫn còn giận dỗi con nít của bạn. Trời đã xế chiều, gần tối, hai người dọn dẹp rác còn vương trên ghế rồi xách cặp rời khán đài trước. Lát sau, Thiên Yết, Ma Kết, Xử Nữ cũng ra về. Song Ngư vẫn bám theo Xử cho tới khi anh chàng nổi cáu “đuổi” cô về nhà vì trời đã tối.
+ 
+Kim Ngưu đưa Giải về tận nhà. Cự Giải có nhã ý mời bạn ghé lại chơi nhưng Ngưu còn phải dành thời gian cho tiệm bánh nên từ chối. Bóng Ngưu đã khuất, Cự Giải quay vào nhà, đóng sầm cửa lại. Vẻ mặt vui vẻ, hay cười của cô vụt tắt, thay vào đó là lớp mặt lạnh lùng, vô cảm. Cô đơn, một mình, Giải lại phải đối mặt với thực tế phũ phàng ngay trong chính căn nhà mình ở. Từ tầng trên, tiếng cãi vã, đồ đạc bị đập vỡ, hất tung không ngừng vang vọng vào tai Giải. Cô cố lấy tay bịt hai tai lại nhưng những âm thanh ác nghiệt vẫn không ngừng ám ảnh trí óc. Cha mẹ cô lại cãi nhau. Lại vấn đề tháng này ai sẽ chăm sóc cho Giải. Cô chua xót nghĩ, là con ruột duy nhất mà bố mẹ còn đùn đẩy nhau trách nhiệm nuôi nấng như thế này thì…
+ 
+Kim Ngưu đẩy cửa bước vào. Con cún yêu Lani ríu chân chạy ra đón chủ. Căn nhà rộng rãi nhưng sao lạnh lẽo vì không có hơi người. Cha mẹ Ngưu mỗi người một nơi. Mẹ cô đang ở công ty còn bố xa tít trời Anh đi làm ăn với đối tác. Trong nhà còn mỗi Lani là người duy nhất bầu bạn với cô. Kim Ngưu bật hết những chiếc đèn trần, đèn tường, kể cả đèn ngủ, với suy nghĩ ánh sáng có thể xua đi sự cô độc của bóng đêm. Nhưng không thể…
+Tắm rửa xong, tự nấu, tự ăn một bữa tối đơn giản, Kim Ngưu khoác nhanh cái áo ấm, dắt Lani ra cửa hàng. Làm bánh là công việc duy nhất có thể khiến vơi bớt đi sự buồn chán đang vây kín tâm hồn Ngưu lúc này.
+ 
+Chiếc xe đỗ xịch trước cửa một toà biệt thự lớn. Thiên Yết bước xuống, đi nhanh vào trong. Người quản gia đẩy vội cái cửa to lớn nặng nề kêu kẹt kẹt sang bên cho cậu chủ bước vào. Thiên Yết với tay bật đèn. Cả phòng khách rộng rãi nhưng tuyệt nhiên không có bóng ai. Cậu bước nhanh lên lầu, tự nhốt mình trong phòng riêng. Lát nữa bố cậu sẽ về.
+Quả đúng như ý nghĩ của Yết, tiếng động cơ của một chiếc Ferrari đắt tiền đang dừng ngoài cổng vọng đến tai cậu. Tiếng bước chân, tiếng cười nói đùa giỡn,… của một người đàn ông và có lẽ là, một cô gái trẻ không ngừng ríu rít dưới phòng khách. Thiên Yết cười khẩy cay đắng, chắc ông – bố ruột của cậu, lại dẫn về một con nhỏ mắt xanh mỏ đỏ nào đó hú hí với nhau. Từ khi mẹ mất, Thiên Yết mới nhận ra vẻ hạnh phúc giả tạo tồn tại ngay trong gia đình mà cậu luôn tôn thờ. Nhận ra thứ tình cảm rẻ rúng của người Yết gọi là “bố” dành cho người mẹ tội nghiệp của cậu. Đắng lòng hơn, cái chết của mẹ cậu là do bố cậu gián tiếp gây ra để có thể tống khứ bà đi mãi mãi, ông ta sẽ được thoải mái cặp bồ cùng hàng chục chân dài xinh đẹp, trẻ trung hơn bà nhiều. Thiên Yết luôn tin như vậy. Thái độ quan tâm hờ hững của ông bố dành cho cậu khiến cậu kinh tởm, ngột ngạt. Cũng chính vì thế mà trái tim và vẻ ngoài của Yết băng giá dần. Cậu chẳng thể tin được ai nữa.
+ 
+Ma Kết vừa mở cổng bước vào, bác cả của cậu đã đợi sẵn trước cửa, tuôn ra hàng đống lời nói nhục mạ, mắng mỏ về việc cậu về muộn, doanh thu tháng này thua lỗ, tới cả việc, theo như lời ông bác này nói thì là “ăn không ngồi rồi, giao có tí việc làm cũng không nên thân”. Ma Kết bình thản chai lì, cậu vẫn đứng trơ đó, im lặng tới lạnh lùng chọc tức máu điên của ông bác. Chờ đến khi ông ta mắng đã đời xong, cậu thản nhiên bước lên phòng, mặc cho ông bác giận dữ đến độ muốn vỡ mạch máu não!
+Ma Kết từ lâu đã chấp nhận một cuộc sống như thế. Khép kín, vô cảm, lạnh lùng,… Cậu buộc phải chuyển về ở với người bác không có chút ý niệm tình thương ruột thịt nào với chính cháu của mình, sau khi bố mẹ cậu mất vì tai nạn giao thông. Ông bác chưa bao giờ hỏi han chăm sóc cháu đã chớ, lại còn xem cậu như người thừa trong nhà mặc dù ông ta sống một mình, không vợ con. Từ khi phát hiện ra cái đầu biết làm ăn kinh doanh của Ma Kết, ông ta chuyển qua coi cậu như kẻ làm thêm, giao cho một chi nhánh nhỏ của công ty và bắt cậu quản lý cho dù cậu đang tuổi đi học. Ma Kết bất mãn làm theo. Áp lực công việc, học hành, làm Hội trưởng Hội học sinh,.. nhiều lúc muốn quật ngã Kết.
+ 
+Xử Nữ trở về Cô nhi viện sau một ngày học tập mệt mỏi. Vị ni cô già phúc hậu mỉm cười đón cậu vào. Xử cười tươi đáp lễ. Vừa đặt cặp xuống, một tốp con nít năm bảy tuổi lập tức chạy ùa tới, không ngừng hỏi hôm nay anh Xử học hành có được điểm mười không, có bị cô giáo la không, có bị ai bắt nạt không,… Xử ấm lòng trước những câu hỏi ngô nghê nhưng thật thà từ lũ nhóc ở chung phòng với cậu trong Cô nhi. Bố cậu mất do bạo bệnh, mẹ vì gia cảnh quá nghèo khó đã phải bỏ cậu lại Cô nhi này từ hồi mới năm tuổi để kiếm tìm hạnh phúc mới. Ngoài việc phụ giúp các ni cô làm thêm việc kiếm thu nhập, Xử Nữ còn chăm sóc lũ nhóc mà cậu xem như những đứa em ruột thịt. Dù hạnh phúc với cuộc sống hiện tại nhưng Xử vẫn luôn đau đáu hi vọng tìm lại người mẹ đã xa cách bao năm của mình.
+ 
+Chiếc xe hơi vừa dừng lại, một người đàn ông nhanh chóng chạy ra mở cửa, xách hộ cặp cho con gái Song Ngư của mình mặc dù cô rất ái ngại khi thấy bố làm thế. Lớn rồi nhưng ông vẫn xem Ngư như còn bé lắm, nên rất chiều, con gái ông muốn gì là được đó ngay. Có lẽ Ngư là người duy nhất may mắn vẫn còn sự quan tâm từ người thân. Hôm nay bố cô sẽ trổ tài nấu ăn. Căn bếp rộng rãi chợt ấm áp lạ khi có tiếng cười nói của hai bố con. Ăn cơm xong, Ngư nhanh chóng dọn rửa rồi đi học bài. Đang học, cô chợt nghe thấy tiếng “cạch” khe khẽ vọng từ bếp.
+Dưới bếp, bóng đèn trần bật lên, ánh đèn vừa đủ sáng một góc bàn ăn. Bố Ngư khẽ mở tủ, lấy từ trong đó môt chai rượu vang, tự rót, tự uống. Ngư biết, dù bố có cố gắng tỏ ra vui vẻ, nhưng đó chỉ qua là trấn an cô thôi. Ẩn sâu trong đôi mắt ông là một nỗi buồn, nỗi trống vắng to lớn không sao khoả lấp được. Mẹ Ngư đã rời bỏ bố con cô đi theo người đàn ông khác, để mặc đứa con hồi đó mới ba tuổi hơn cho chồng nuôi rồi đi biệt tích đến giờ. Song Ngư thương bố lắm. Ông vẫn còn yêu mẹ cô rất nhiều. Hầu như đêm nào ông cũng uống rượu để cố quên đi hình ảnh bà. Ngư luôn mong mỏi một ngày nào đó mẹ sẽ quay về, cả nhà lại đoàn tụ, nhưng sao mong manh quá…
+ 
+Mỗi người một câu chuyện, một bi kịch riêng, nhưng đều chung những nỗi đau thầm kín sâu trong lòng chẳng thể chia sẻ với ai khác. Nhưng họ cũng không thể ngờ sẽ có ngày những vết thương lòng ấy sẽ được chữa lành bằng một liều thuốc thần có tên : TÌNH YÊU…

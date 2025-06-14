@@ -1,0 +1,20 @@
+---
+title: "7 lý do khiến Facebook \"treo giò\" tài khoản của bạn"
+date: 2025-06-12T22:55:56Z
+slug: 7-ly-do-khien-facebook-treo-gio-tai-khoan-cua-ban
+draft: false
+---
+
+## 7 lý do khiến Facebook "treo giò" tài khoản của bạn
+
+## ChaosEris
+
+7 lý do khiến Facebook "treo giò" tài khoản của bạn​ 
+Bạn có thể bị "đuổi cố” khỏi Facebook vì spam bạn bè quá nhiều, đăng hình ảnh nhạy cảm về con trẻ hoặc thậm chí trùng tên với Mark Zuckerberg hoặc những người nổi tiếng khác.​ ​1. "Giả danh” là Mark Zuckerberg​ 
+ ​​ ​Theo tạp chí PC Mag, năm 2011, một luật sư người Ấn Độ có tên Mark S. Zuckerberg đã bị Facebook khóa tài khoản vì tội "mạo danh”. Vì có tên họ gần giống với giám đốc điều hnh Mark Zuckerberg của Facebook, vị luật sư này đã nhận được 500 lời yêu cầu kết bạn trên Facebook mỗi ngày. Cuối cùng, sau khi gây ra một vụ ồn ào, Facebook đã lên tiếng xin lỗi và vị luật sư này được truy cập lại tài khoản của mình.​ ​2. Trùng tên với người nổi tiếng​ 
+ ​Selena Gomez gần đây đã bị Facebook cấm truy cập tài khoản. Tuy nhiên, chớ nhầm cô gái này với siêu sao "cô phù thủy nhỏ” của Disney, Selena Gomez ở đây chỉ là một cô gái bình thường. Facebook chặn tài khoản của Selena Gomez vì cho rằng cô mạo danh nữ diễn viên nổi tiếng. Hiện vẫn chưa rõ tài khoản của Selena Gomez được kích hoạt trở lại hay chưa.​ ​​ ​"Cô phù thủy nhỏ” Selena Gomez​ ​3. Tham gia vào các cuộc tấn công của hacker​ 
+ ​Operation Payback là một chiến dịch âm mưu của nhóm hacker nổi tiếng Anonymous nhằm đánh sập website của Visa sau khi công ty thẻ tín dụng này cắt tài trợ cho Wikileaks. Bọn hacker tụ tập trên cả Facebook và Twitter để lập kế hoạch và tiến hành một cuộc tấn công, khiến tài khoản mạng xã hội của chúng đã bị chặn.​ ​​ ​4. Chụp những bức ảnh kỳ cục về con cái​ 
+ ​Một người phụ nữ có tên Lauren Ferrari (Mỹ) đã bị Facebook khóa tài khoản trong vòng 7 ngày vì đăng ảnh chụp cô con gái 5 tuổi cho đứa em gái 2 tuổi bú ti lên Facebook.​ ​Cảnh sát địa phương gọi đây là một hành động vô ý thức của bậc phụ huynh.​ ​Stefanie Thomas, một cảnh sát thuộc Ban phòng chống tội phạm trẻ em trên mạng Internet ở thành phố Seattle, Washington, Mỹ, cho biết mặc dù bức hình này không bị xếp vào loại khiêu dâm, việc đăng tải nó thực sự là một hành động vô trách nhiệm. "Chúng ta không thể biết được bức hình này có thể trôi đến đâu trên mạng internet”, ông nói. Facebook từ chối bình luận về vụ việc.​ ​ ​​Lauren Ferrari​ ​5. "Spam” bạn bè​ 
+ ​Tạp chí PCWorld đưa tin, một người đàn ông có tên Adam Guerbuez bị phạt 873 triệu USD vì gửi đi hơn 4 triệu tin nhắn "Spam” (tin nhắn rác) về cần sa và các nội dung khiêu dâm. Hành vi này đã khiến Guerbuez bị "trục xuất” khỏi Facebook.​ ​6. "Khai man” là đủ 13 tuổi​ 
+ ​Năm 2011, một nhà tư vấn cấp cao về quyền riêng tư của Facebook cho biết mỗi ngày có 20.000 tài khoản Facebook bị đóng cửa vì không đủ độ tuổi quy định. Facebook ra một chính sách nghiêm ngặt, tuyên bố chỉ những người trên 13 tuổi mới được duy trì tài khoản cá nhân.​ ​​ ​7. "Khoe” ảnh cho con bú​ 
+ ​Trong điều khoản dịch vụ, Facebook tuyên bố các thành viên không được đăng ảnh khỏa thân trên mạng xã hội. Tuy vậy, nhiều bậc cha mẹ cho rằng có sự khác biệt giữa các hình ảnh "không thích hợp” và "hợp pháp”. Cô Emma Kwasnica là một người ủng hộ nuôi con bằng sữa mẹ. Tài khoản của cô đã bị Facebook "treo” 5 lần. Kwasnica và các bậc cha mẹ khác thậm chí còn phản đối vấn đề này tại trụ sở của Facebook trong tuần lễ quốc gia phát động nuôi con bằng sữa mẹ tại Mỹ.​ ​​P/S:Có lẽ bạn ngạc nhiên vì trên facebook chỗ Việt Nam cũng có nhiều cái tương tự hoặc trầm trọng hơn . Nhưng đó là facebook ở Việt Nam , 1 trong các chi nhánh của facebook chính gốc, có thể những người quảng cái facebook đó cảm thấy ko quan trong lắm hoặc ko ý thức cái đó là xấu để ngăn chặn .Có lẽ bạn nghĩ mạng xã hội nói gì cũng đc, up thông tin tự do thoải mái nhưng thật ra đó là vì họ ko bao giờ rảnh để xen vào chuyện của người khác nhưng thực ra trong vô thức bạn đã đc đánh giá là 1 con người như thế nào .Đừng nghĩ mạng xã hội trên Internet là ảo  thì thoải mái,tự do ,nó cũng là 1 bằng chứng , biểu hiện để người ta đánh giá con người bạn.​

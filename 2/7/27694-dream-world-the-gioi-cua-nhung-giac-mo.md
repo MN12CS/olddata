@@ -1,0 +1,46 @@
+---
+title: "dream world-thế giới của những giấc mơ"
+date: 2025-06-13T00:00:14Z
+slug: dream-world-the-gioi-cua-nhung-giac-mo
+draft: false
+---
+
+## dream world-thế giới của những giấc mơ
+
+## minako aino
+
+Dream world-thế giới của những giấc mơ.
+.
+.
+.
+Tác giả: Minako Aino.
+Thể loại: Giả tưởng, phiêu lưu, tình cảm, chiến tranh, học đường và pha chút kinh dị.
+Ratting: T
+Độ dài: ?
+Thời gian ra chap: thất thường.
+Mình có lưu ý một chút: Cốt truyện rất sơ sài, mong mn ném đá nhẹ tay. Giới tính nhân vật đã được quyết định, ai không hài lòng thì mời come back, đừng có vào nói này nọ. Thời gian ra chap: hôm nào được nghỉ thì viết, nhưng chắc các chap nsex không đạt được yêu cầu của độc giả. Vì vậy mong mn sẽ góp ý để mình có thể viết tốt hơn.
+.
+.
+.
+Cốt truyện:
+Trong vũ trụ bao la vô tận…
+Có một thứ luôn tồn tại song song với thế giới con người…
+Một thế giới vô cùng tươi đẹp và luôn tràn ngập tiếng cười…
+Nơi mà con người và loài vật sống hòa thuận bên nhau…
+Nơi mà bạn nghĩ nó chỉ tồn tại trong giấc mơ của bạn...
+Và cũng là nơi mà bạn có thể biến ước mơ của mình thành sự thật mà không phải đánh đổi bất cứ thứ gì...
+Thế giới của những giấc mơ-Dream world...
+Được ngăn cách với thể giới loài người bằng vòng xoáy không gian và thời gian...
+Là một thế giới tồn tại tất cả những gì không thể tồn tại...
+Thiên thần, ác quỷ, linh vật, linh thú...
+Và cả những con người bình thường...
+Khi đến với Dream world, bạn có thể...
+Được sở hữu những sức mạnh siêu nhiên...
+Và được ban cho ước nguyện của mình...
+.
+.
+.
+.,
+.
+Phần 2.
+GTNV

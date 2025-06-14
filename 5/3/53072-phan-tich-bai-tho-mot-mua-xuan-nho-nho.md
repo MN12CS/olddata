@@ -1,0 +1,43 @@
+---
+title: "Phân tích bài thơ Một mùa xuân nho nhỏ"
+date: 2025-06-13T14:00:45Z
+slug: phan-tich-bai-tho-mot-mua-xuan-nho-nho
+draft: false
+---
+
+## Phân tích bài thơ Một mùa xuân nho nhỏ
+
+## carnation V3
+
+From HCS with love​ ​ ​PHÂN TÍCH BÀI THƠ MÙA XUÂN NHO NHỎ​ 
+ 
+
+Mở bài
+“Nếu là con chim, chiếc lá,​Con chim phải hót, chiếc lá phải xanh​Lẽ nào vay mà không trả,​Sống là cho, đâu chỉ nhận riêng mình.”​(Tố Hữu)​ ​Tố Hữu – nhà thơ cùng quê hương xứ Huế với Thanh Hải – đã viết trong bài “Một khúc ca xuân” những lời tâm niệm thật chân thành, giản dị và tha thiết. Đó là “lặng lẽ dâng cho đời”. Còn Thanh Hải khi viết bài thơ “Mùa xuân nho nhỏ” trước lúc ra đi, không những đã giải bày những suy ngẫm mà còn mong ước được dâng hiến một mùa xuân nho nhỏ của mình cho mùa xuân vĩ đại của đất nước Việt Nam.
+ ​Sinh ra, lớn lên, hoạt động cách mạng và tham gia công tác văn nghệ suốt hai thời kháng chiến chống thực dân Pháp và đế quốc Mỹ ngay chính trên quê hương ruột thịt của mình. Ở địa diểm nào, hoàn cảnh nào ông cũng thể hiện được lẽ sống của mình. Đó là sự giản dị, chân thành, yêu người và khát vọng dâng hiến sức mạnh cho đời như chính cuộc sống và tâm hồn ông. Chúng ta có thể coi bài thơ “Mùa xuân nho nhỏ” là món quà cuối cùng mà Thanh Hải dâng tặng cho đời trước lúc về cõi vĩnh hằng. Chính vì vậy nó bâng khuâng, tha thiết và sâu lắng hơn tất cả để cuối cùng thể hiện một Thanh Hải yêu người, yêu cuộc sống, yêu quê hương đất nước và còn là một Thanh Hải sống cho thơ và sống cho đời.
+ ​
+Thân bài​
+Giới thiệu chung​ ​Trước lúc vĩnh viễn ra đi ông cũng để lại cho đời những vần thơ thật nhân hậu, thiết tha và thanh thản, không hề gợn một nét u buồn nào của một cuộc đời sắp tắt. Khi cuộc đời mình đã bước vào cuối đông, nhà thơ vẫn nghĩ đến một mùa xuân bất diệt, muôn thuở và nguyện dâng hiến cho đời.​ ​Phân tích​ ​Hình ảnh của một mùa xuân rất Huế đã được tác giả mở đầu cho bài thơ:
+ 
+ ​“Mọc giữa dòng sông xanh​Một bông hoa tím biếc.​Ơi con chim chiền chiện​Hót cho mà vang trời,​Từng giọt long lanh rơi,​Tôi đưa tay tôi hứng”.​ ​Một nét đặc trưng nơi xứ Huế là hình ảnh màu tím. Một màu tím thật gợn nhẹ như màu tím hoa sim mọc giữa con sông xanh biếc hay như những tà áo dài với màu tím thật nhẹ nhàng của những cô gái Huế. Cảm xúc về mùa xuân mở ra thật ngỡ ngàng, bất ngờ, không gian như tươi tắn hơn, trẻ trung hơn, thánh thoát hơn:
+ 
+ ​“Ơi con chim chiền chiện​Hót cho mà vang trời,​Từng giọt long lanh rơi,​Tôi đưa tay tôi hứng”.​ ​Trong không gian vang vang vui tươi của tiếng chim càng đậm đà chất Huế hơn nhờ dùng đúng chỗ những ngôn từ đặc trưng xứ Huế. Một từ “Ơi” đặt ở đầu câu, một từ “chi” đứng sau động từ “hát” đã đưa cách nói ngọt ngào, thân thương của Huế vào nhạc điệu của thơ. Từ “giọt” được hiểu theo rất nhiều nghĩa: có thể là “giọt nắng bên thềm”, giọt mưa xuân, giọt sương sớm hay cả tiếng hót của những chú chim chiền chiện. Nhưng đối với khung sắc trời xuân thì giọt xuân càng làm tăng thêm vẻ đẹp và sự quyến rũ của nó. Một từ “hứng” cũng đủ diễn tả sự trân trọng của nhà thơ đối với vẻ đẹp của trời, của sông, của chim muông hoa lá; đồng thời cũng thể hiện cảm xúc trọn vẹn của Thanh Hải trước mùa xuân của thiên nhiên đất trời.
+ 
+Từ mùa xuân của thiên nhiên đất trời, tác giả đã chuyển cảm nhận về mùa xuân của cuộc sống, nhân dân và đất nước. Với hình ảnh “người cầm súng” và “người ra đồng”, biểu tượng của hai nhiệm vụ: chiến đấu bảo vệ tổ quốc và lao động tăng gia để xây dựng đất nước với những câu thơ giàu hình ảnh và mang tính gợi cảm:
+ ​“Mùa xuân người cầm súng,​Lộc giắt đầy trên lưng.​Mùa xuân người ra đồng,​Lộc trãi dài nương mạ.​Tất cả như hối hả,​Tất cả như xôn xao…”​ ​Hình ảnh mùa xuân của đất trời đọng lại trong lộc non đã theo người cầm súng và người ra đồng, hay chính họ đã đem mùa xuân đến cho mọi miền của tổ quốc thân yêu.
+Tác giả đã sử dụng biện pháp điệp từ, điệp ngữ như nhấn mạnh và kết thúc một khổ thơ bằng dấu ba chấm. Phải chăng dấu ba chấm như còn muốn thể hiện rằng: đất nước sẽ còn đi lên, sẽ phát triển, sẽ đến với một tầm cao mới mà không có sự dừng chân ngơi nghỉ.
+Sức sống của “mùa xuân đất nước” còn được cảm nhận qua nhịp điệu hối hả, những âm thanh xôn xao của đất nước bốn ngàn năm, trải qua biết bao vất vả và gian lao để vươn lên phía trước và mãi khi mùa xuân về lại được tiếp thêm sức sống để bừng dậy, được hình dung qua hình ảnh so sánh rất đẹp:
+ ​“Đất nước bốn ngàn năm​Vất và vào gian lao​Đất nước như vì sao​Cứ đi lên phía trước”​ ​Đó chính là lòng tự hào, lạc quan, tin yêu của Thanh Hải đối với đất nước, dân tộc. Những giọng thơ ấy rất giàu sức suy tưởng và làm say đắm lòng người.
+ ​Từ cảm xúc của thiên nhiên, đất nước, mạch thơ đã chuyển một cách tự nhiên sang bày tỏ suy ngẫm và tâm niệm của nhà thơ trước mùa xuân của đất nước. Mùa xuân của thiên nhiên, đất nước thường gợi lên ở mỗi con người niềm khát khao và hi vọng; với Thanh Hải cũng thế, đây chính là thời điểm mà ông nhìn lại cuộc đời và bộc bạch tâm niệm thiết tha của một nhà cách mạng, một nhà thơ đã gắn bó trọn đời với đất nước, quê hương với một khát vọng cân thành và tha thiết:
+ ​“Ta làm con chim hót,​Ta làm một cành hoa.​Ta nhập vào hoà ca,​Một nốt trầm xao xuyến”​ ​Lời thơ như ngân lên thành lời ca. Nếu như đoạn đầu Thanh Hải xưng tôi kín đáo và lặng lẽ thì đến đoạn này ông chuyển giọng xưng ta. Vì sao có sự thay đổi như vậy? Ta ở đây là nhà thơ và cũng chính là tất cả mọi người. Khát vọng của ông là được làm con chim hót, một cành hoa để hoà nhập vào “mùa xuân lớn” của đất nước, góp một nốt trầm vào bản hoà ca bất tận của cuộc đời. Hiến dâng “mùa xuân nho nhỏ” nghĩa là tất cả những gì tốt đẹp nhất, dù nhỏ bé của mỗi người cho cuộc đời chung cho đất nước. Điều tâm niệm đó thật chân thành, giản dị và tha thiết – xin được làm một nốt trầm trong bản hoà ca của cuộc đời nhưng là “một nốt trầm xao xuyến”.
+Điều tâm niệm của tác giả: “lặng lẽ dâng cho đời” chính là khát vọng chung của mọi người, ở mọi lứa tuổi, chứ đâu phải của riêng ai. Thanh Hải đã thể hiện hết mình vì lòng tin yêu cuộc sống và khiêm tốn hiến dâng cho đất nước, cho cuộc đời, bởi vậy, xuất phát từ tiếng lòng thiết tha, nhỏ nhẹ, chân thành của tác giả nên lời thơ dễ dàng được mọi người tiếp nhận và chia sẻ cho nhau:
+ ​“Một mùa xuân nho nhỏ​Lặng lẽ dâng cho đời​Dù là tuổi hai mươi​Dù là khi tóc bạc”.​ ​Đã gọi là cống hiến cho đời thì dù ở tuổi nào đi chăng nữa cũng phải luôn biết cố gắng hết tâm trí để phục vụ và hiến dâng cho quê hương, đất nước mến yêu của chính mình. Già - cống hiến tuổi già, trẻ - cống hiến sức trẻ để không bao giờ thất vọng trước chính bản thân mình.
+ ​Thật cảm động và kính phục biết bao khi đọc những vần thơ như lời tổng kết của cuộc đời. “Dù là tuổi hai mươi” khi mới tham gia kháng chiến cho đến khi tóc bạc là thời điểm hiện thời vẫn lặng lẽ dâng hiến cho đời và bài thơ này là một trong những bài thơ cuối cùng. “Một mùa xuân nho nhỏ” cuối cùng của Thanh Hải dâng tặng cho đời trước lúc ông bước vào thế giới cực lạc, chuẩn bị ra đi mãi mãi.
+ ​Kết thúc bài thơ bằng một âm điệu xứ Huế: điệu Nam ai, Nam Bình mênh mang tha thiết, là lời ngợi ca đất nước, biểu hiện niềm tin yêu và gắn bó sâu nặng của tác giả với quê hương, đất nước, một câu chân tình thắm thiết:
+ ​“Mùa xuân ta xin hát​Câu Nam ai, Nam Bình​Nước non ngàn dặm tình​Nước non ngàn dặm mình​Nhịp phách tiền đất Huế”​ ​Đánh giá chung:
+ 
+Những lời tâm sự cuối cùng của người sắp mất luôn là những lời thực sự, luôn chứa chan tình cảm, ước nguyện sâu lắng nhất… và bài thơ này cũng chính là những điều đúc kết cả cuộc đời của ông. Ông đã giải bày, tâm tình những điều sâu kín nhất trong lòng, và chính lúc đó Thanh Hải đã thả hồn vào thơ, cùng chung một nhịp đập với thơ để ông và thơ luôn được cùng nhau, hiểu nhau và giải bày cho nhau.
+ ​
+Kết bài​
+ ​Tóm lại bài thơ đã sử dụng thể thơ năm chữ, mang âm hưởng dân ca nhẹ nhàng tha thiết, giàu hình ảnh, nhạc điệu, cất trúc thơ chặt chẽ, giọng điệu đã thể hiện đúng tâm trạng, cảm xúc của tác giả. Nét đặc sắc của bài thơ là ở chỗ nó đề cập đến một vấn đề lớn và quan trọng “nhân sinh”, vấn đề ý nghĩa cuộc sống của mỗi cá nhân được Thanh Hải thể hiện một cách chân thành, thiết tha, bằng giọng văn nhỏ nhẹ như một lời tâm sự, gửi gắm của mình với cuộc đời. Nhà thơ ước nguyện làm một “mùa xuân” nghĩa là sống đẹp, sống với tất cả sức sống tươi trẻ của mình nhưng rất khiêm nhường; là “một mùa xuân nho nhỏ” góp vào “mùa xuân lớn” của đất nước của cuộc đời chung và bài thơ cũng có ý nghĩa hơn khi Thanh Hải nói về “mùa xuân nho nhỏ” nhưng nói được tình cảm lớn, những xúc động của chính tác giả và của cả chúng ta.
+ ​ ​Xem chi tiết tại:http/truongkienthuc.vn/threads/phan-tich-mot-mua-xuan-nho-nho.377/#ixzz2esCWGB00​

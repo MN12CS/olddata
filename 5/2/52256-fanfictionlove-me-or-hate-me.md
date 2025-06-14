@@ -1,0 +1,12 @@
+---
+title: "[Fanfiction]Love me or hate me...?!"
+date: 2025-06-13T13:40:01Z
+slug: fanfictionlove-me-or-hate-me
+draft: false
+---
+
+## [Fanfiction]Love me or hate me...?!
+
+## Rin So Ciu
+
+​Title : Love me or hate me...?!​Author : Rin, Min, Pin, Sun.​ Disclaimer : Nhân vật không thuộc về tác giả nhưng số phận nhân vật là do tác giả quyết định. ​Category/Genre : Action, Adventure, Drama, Romance, Fantasy,.....​Rating : T​Length : longfic.​Status : On-going.​Warning : 1. Không cãi nhau, tranh luận với nhau về những chủ đề không liên quan đến truyện.​2. Mỗi comment phải từ 15 kí tự trở lên.​3. Không spam fic.​4. Không nói những lời lẽ thô tục hoặc sỉ vả tác giả.​Summary : ​Ẩn trên những đám mây trắng muốt, cao vút trên bầu trời xanh thẳm kia...ai có thể ngờ tới...những chuyện dường như không tưởng....​"Bùm ! Bùm !"​Chiến tranh lại xảy đến nữa rồi...​Sự dằn vặt giữa yêu và hận trong tâm tư những con người khốn khổ....Những giọt nước mắt, những nỗi đau đớn của các vị thần và ác quỷ, trộn lẫn với nhau tạo nên một thứ gia vị kinh dị ám mùi sát khí...​Đâu đây văng vẳng tiếng nói cương quyết...​"Chúng ta phải chiến đấu !!!"​ Hòa trong đó là những tiếng nấc nghẹn ngào, tha thiết, sự khẩn cầu da diết...​"Cha ! Tại sao ? Cha có quyền gì ? Hức...​ Không ! Con yêu anh ấy mà...hic...huhu..."​"Im ngay! Bức tường giữa 2 chủng tộc vốn ​không thể nào xóa bỏ!"​"Kẻ nào dám quyến rũ con ta...​kẻ đó sẽ phải CHẾT !!"​Dòng chảy của số phận sẽ đưa họ đến đâu ?​Liệu tình yêu mãnh liệt, lòng dũng cảm có chiến thắng mối thù truyền kiếp, phá vỡ khoảng cách giữa 2 thế giới ?​Hãy đón đọc "Love me or hate me...?!".​A/N : Đây là lần đầu tiên viết truyện nên tác giả không đảm bảo truyện sẽ hoàn hảo từ đầu đến cuối. Nếu có gì sai sót mong mọi người sẽ góp ý thẳng thắn để truyện sẽ đạt đến chất lượng cao hơn.​ ​ ​ ​-------------------------------​♫ GTNV 1 ♫ GTNV 2 ♫ GTNV 3 ♫ ​Note : Nếu nhân vật trong truyện không hợp với giới tính của bạn là lý do bạn click back thì hình như bạn đã quá áp đặt. Dù nam hay nữ thì chòm sao đó cũng mang tính cách của chính nó. Thay vì nhìn mãi vào cung hoàng đạo của mình, sao bạn không nhìn vào những cung khác và cảm nhận cái hay của truyện nhỉ ?!​-------------------------------​☺Chap 1 ​ ​ ​ ​ ​

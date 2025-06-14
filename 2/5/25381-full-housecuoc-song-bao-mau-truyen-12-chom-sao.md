@@ -1,0 +1,20 @@
+---
+title: "Full house_Cuộc sống Bảo mẫu [truyện 12 chòm sao]"
+date: 2025-06-12T23:23:20Z
+slug: full-housecuoc-song-bao-mau-truyen-12-chom-sao
+draft: false
+---
+
+## Full house_Cuộc sống Bảo mẫu [truyện 12 chòm sao]
+
+## Wind of Aquarius
+
+Tên Truyện: Full house_Cuộc sống Bảo mẫu [truyện 12 chòm sao]
+Tác Giả: (em gái) Wind of Aquarius
+Rating: K
+Warn: thể loại SA (tức boyxboy). Ai dị ứng xin click back. Miễn kiện cáo lung tung hoặc spam khi thấy không hài lòng về thể loại này, cũng như couple hay giới tính nhân vật. Ai đọc warn thấy không phù hợp với bản thân mà vẫn vào thì tác giả không chịu trách nhiệm, và sẽ báo lên Mod nếu spam và có những lời lẽ kích động, bị cấm.
+Nếu có gì khiến bạn phật lòng, thì xin được thứ lỗi.Thân~Nội dung: Sáu thanh niên, sáu học sinh cấp III, phải làm bảo mẫu trông trẻ, dạy dỗ cho những đứa nhóc lớp 1, lớp 2. Gia đình của sáu thanh niên và sáu đứa trẻ đều ra nước ngoài công tác, trước khi đi đã mua một căn nhà nhỏ cho mười hai đứa con "quý hóa" của mình sống tại Nhật Bản. Căn nhà được lũ nhóc ưu ái đặt tên là "Full house". Câu chuyện chỉ kể về cuộc sống bình dị, đơn giản của sáu thanh niên và sáu đứa con nít chung sống trong căn nhà Full house với những câu truyện dở khóc dở cười, những vụ đánh nhau tranh xem đứa nào được...vào nhà vệ sinh trước, những vụ cãi nhau ỏm tỏi xem đứa nào được chọn bánh trước,.... Năm thanh niên vừa làm thêm, vừa đi học. Công việc nhà chủ yếu do một tay Cự Giải, một thanh niên hiền lành thích trẻ con và nấu ăn giỏi. Đôi khi cũng vất vả làm tư vấn cho truyện tình của mấy đứa con nít, trong khi bản thân thì....Haizzz~Cảm ơn bạn Yuurai đã giúp đỡ về hình ảnh. Thanks(hình ảnh mang tính chất minh họa  )...và cuộc sống thường ngày.......rồi thế này.......lại còn thế này....Giới thiệu nhân vật1. Bạch Dương: là cậu nhóc nghịch nhơm, ham thích đá banh, chơi thân với Sư Tử, thích món Tonkatsu (cậu nhóc tóc đỏ trong hình)2.Sư Tử: là cậu nhóc bá đạo, thích thể thao, trùm quậy với Bạch Dương, bạn thân của Bạch Dương, thích ăn Katsudon (cậu nhóc tóc xanh lam trong hình)3. Kim Ngưu: là cậu nhóc hiền lành, tham ăn, thích tích góp tiền tiêu vặt, tiền xu, thích bánh kem dâu(cậu nhóc tóc vàng trong hình)4.Ma Kết: là cậu nhóc nghiêm túc nhất, người lớn nhất trong sáu đứa con nít, thích đọc sách, uống trà, ăn sushi (cậu nhóc tóc xanh đeo kính trong hình)5.Bảo Bình: là cậu nhóc im lặng,tò mò, ít ồn ào, hay tự chơi một mình trong phòng với mấy món đồ chơi tự chế, thích đọc sách, uống coffee, ăn cơm nắm hay cơm trà, curry (cậu nhóc tóc tím trong hình)6.Nhân Mã: là cậu nhóc lạc quan, ham chơi, vô địch chạy nước rút, hay trốn học ngoại khóa đi chơi với Bạch Dương, Sư Tử, thích ăn mứt cam, bánh cam7.Cự Giải: là một thanh niên hiền lành, yêu gia đình, thích trẻ con, chu đáo, cẩn thận, chăm sóc mấy đứa con nít, làm việc nhà, là học sinh trường Nakahara, thích nấu ăn (thanh niên tóc xanh trong hình)8.Thiên Yết: là một thanh niên trầm lặng, kín đáo, nhưng biết quan tâm đến mọi người trong Full house, thích phụ giúp Cự Giải (?!), là học sinh trường Nakahara9. Xử Nữ: là người kỹ tính, cẩn thận, yêu âm nhạc, biết quan tâm, giúp đỡ Cự Giải, có tài chơi piano và ghita, thích món Sashimi, là học sinh trường Hanazoko10. Song Tử: là một thanh niên vui tính, hóm hỉnh, khéo léo, được hâm mộ, thích chụp ảnh, là học sinh trường Hanazoko, thích món bánh mochi11.Thiên Bình: là một người có vẻ ngoài rất ưa nhìn, công bằng, gọn gàn, sạch sẽ, là học sinh trương Hanazoko, theo nghiệp người mẫu tạp chí, thích món Gindara saikyo-yaki12.Song Ngư: là người hiền lành, rất quan tâm, yêu thương mọi người, và được mọi người quý mến, rất nhạy cảm, biết cảm thông, là học sinh trường Nakahara, thích món Udonp/s: Truyện này chủ yếu là em gái mình viết, mình chỉ giúp thôi nên đừng thắc mắc vì sao mình là nam mà lại có truyện này hen
+ 
+ 
+ 
+ LINKChap 1 Chap 2 Chap 3 Chap 4Chap 5Chap 6

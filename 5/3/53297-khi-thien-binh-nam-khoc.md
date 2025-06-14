@@ -1,0 +1,12 @@
+---
+title: "Khi thiên bình nam khóc...?"
+date: 2025-06-13T14:09:02Z
+slug: khi-thien-binh-nam-khoc
+draft: false
+---
+
+## Khi thiên bình nam khóc...?
+
+## ngoisaobatdau0901
+
+Mình là 1 nữ nhân mã đang thương 1 nam thiên bình. Mình và hắn quen nhau ko lâu nhưng mình cảm nhận được là 2 đứa có tình cảm với nhau nhìu lắm, ban đầu wen nhau chỉ là đùa cho vui nhưng dần dần thương nhau hồi nào ko hay. Bản tính mình là thích trêu chọc người mình thích và hâm hâm dở dở nên đã có lúc mình làm TB nam bùn nhìu lắm. Có lần vì mình nổi tính điên lên nên đòi chia tay, thế là cả mình và thiên bình cùng khóc như mưa ==! Dù mình ứ fải đứa dễ khóc. Sau lần đó, mình và TB chia tay nhưng vẫn gọi điện, nhắn tin đủ thứ, nhưng wen thì hắn ko chịu. Fải đợi 1 thời gian sau, khi xác định hết và mình cũng nói thật lòng mình cho hắn thì hắn mới way lại bên mình. Bgio mình thương hắn lắm, hắn cũng vậy. Nhìu hôm hẹn nhau đi chơi mà hắn ko gọi đc cho mình thế là cả 2 đứa chạy vòng vòng đi kiếm nhau, tận hơn 1h đồng hồ nhưng ứ giận. Có lần, hắn thất hẹn làm mình bùn lắm nhưng m vẫn đợi hơn 2 tiếng. Khi hắn đến thì hắn xl đủ thứ, còn nhìn mình bùn lắm. Mình để ý thì khi nói chuyện với mình thì hắn nói ít lắm, toàn nghe mình tâm sự mấy cái tào lao, hỏi hắn thì hắn bảo ko bik sao nữa, chúng mình có thể nói chuyện hàng giờ mà ứ chán, hắn chỉ nghe còn mình thì huyên thuyên đủ thứ. Đôi khi hắn tỏ ra lạnh lùng lắm, ứ thèm wan tâm đến mình, nhưng khi mình mắc nc với đứa ctrai khác thì mặt hắn buồn xo. Mình hỏi là hắn ko để ý mình mà, mắc gì bùn? Thì hắn bảo là do Pà ko để ý đấy thôi, chứ lúc đó tui bùn lắm. M để ý hắn hay nhìn lén mình lắm. Cơ mà khi mình nhìn thẳng vào mắt hắn thì hắn cũng nhìn lại nhưng cứ vài giây lại liếc đi chỗ khác, rồi nhìn tiếp rồi lại liếc wa chỗ khác, rồi khi mình cười hắn cũng cười (hâm nặng). Nhìu lúc m cảm thấy hắn thật khó hĩu, m ứ hĩu hắn đc gì cả, chỉ cảm nhận đc thôi à. Mình nói gì hắn cũng nghe, cũng cố gắng làm, gần như là mình với hắn nghe lời nhau lắm cơ. Cái gì cũng wan tâm chia sẻ hết. Hắn bảo hắn iu mình, sợ làm mình bùn vì hắn hay thất hẹn ý, hắn sợ làm mình tổn thương >_< Mà m đọc thì bik là TB Nam đa phần rất lăng nhăng, mình k bik hắn iu hay chỉ là thích mình nữa. Mới đây, mình có bảo hắn là mình sắp đi xa và ko gặp với ko wen hắn nữa(mình lại trêu hắn rồi) cơ mà nhìn hắn buồn lắm cơ, như mún khóc ấy, hắn nói ko mún mình đi....thật sự thì lúc nào hắn cũng wan tâm, iu thương mình hết lòng, nhưng mình bik tcam hắn dành cho mình có thật là yêu hay chỉ là thích thông thường!

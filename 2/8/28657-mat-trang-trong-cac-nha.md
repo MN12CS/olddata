@@ -1,0 +1,70 @@
+---
+title: "Mặt trăng trong các nhà"
+date: 2025-06-13T00:12:33Z
+slug: mat-trang-trong-cac-nha
+draft: false
+---
+
+## Mặt trăng trong các nhà
+
+## magic.secret22
+
+Mặt trăng trong các nhà​ ​ ​​ ​Bài này khá là trừu tượng và khó hiểu J Đại loại là cảm xúc của bạn sẽ mạnh nhất và có vấn đề nhất trong mặt nào của cuộc sống (trong nhà nào), nơi mà bạn có nhu cầu cảm thấy an toàn nhất, cảm xúc của bạn bị phụ thuộc vào những gì, như thế nào sẽ làm bạn cảm thấy hài lòng và thoải mái... Khi đọc bài này thì hãy trú trọng vào cảm xúc của mình một tí nhé 
+ 
+Vị trí tòa nhà mà mặt trăng cai trị có thể tiết lộ ở đâu và làm thế nào để bạn tìm thấy sự hài lòng về cảm xúc. Việc nghiên cứu nhà của mặt trăng và những biến đổi của các lĩnh vực mà nhà này cai quản sẽ chỉ ra lý do cho tình trạng bất ổn về cảm xúc lâu dài của một con người. Đây chính là nhà mà bạn nên gắn bó tình cảm sâu sắc nếu bạn đang tìm kiếm cảm xúc thực sự thân thuộc và đủ đầy.
+ 
+Mặt trăng trong nhà thứ nhất
+Bạn không che giấu cảm xúc của mình. Cảm xúc của bạn thường được bộc lộ ra ngoài theo hai hướng, một là đầy cảm tính và nóng vội, hai là chín chắn và cẩn trọng. Phản ứng đầu tiên của bạn với một tình huống luôn là cảm xúc, đặc biệt nếu góc hợp của mặt trăng với cung mọc nằm trong khoảng 10 độ. Bạn mong muốn được kích thích cảm xúc, tự do thể hiện bản thân để cảm thấy hạnh phúc và mãn nguyện. Tâm trạng của bạn thay đổi rất nhanh, người khác dễ dàng nhận thấy điều này. Quá nhạy cảm có thể dẫn đến những phản ứng thiếu suy nghĩ, quá cá nhân. Bạn cần học được rằng, cảm xúc của người khác cũng rất quan trọng, cho dù họ không công khai và ngay lập tức.
+Bạn có vẻ ngoài mềm mỏng, nhẹ nhàng và ấn tượng. Bạn luôn là chính mình và thông cảm với người khác. Đôi khi bạn để cho cảm xúc chế ngự lý luận và sự logic của mình, vì vậy ý kiến của bạn thi thoảng có phần thiên vị.
+Bạn có thể có một chút ảnh hưởng tính cách của các bạn Cự Giải.
+ 
+Mặt trăng trong nhà thứ hai
+Cách tiêu tiền của bạn có thể rộng lượng và thoáng đãng hôm nay, rồi lại tiết kiệm đạm bạc vào ngày mai. Bạn sợ cảm giác nợ nần, việc thanh toán các hóa đơn giúp bạn cảm thấy an toàn hơn. Bạn có thể lo sợ không đâu như thế, rồi lại bốc đồng, tiêu pha tốn kém không suy nghĩ khi bạn gặp thất bại trong tình cảm chẳng hạn. Trong một mối quan hệ, bạn thể hiện sự sở hữu quá mạnh. Đây quả là một vấn đề với bạn. Bạn tìm kiếm sự ngưỡng mộ từ những người khác, và bạn bị phụ thuộc vào đánh giá của người khác về mình. Bạn cần tìm hiểu để tự phát triển cảm xúc của bản thân mình một cách độc lập. Bạn có xu hướng suy nghĩ thận trọng, chờ đợi thời khi trước khi thể hiện bản thân.
+Bạn có thể trở thành một nhà sưu tầm thực sự. Những vật chất thuộc về bạn đem lại cho bạn cảm giác an toàn và gắn liền với kỉ niệm trong quá khứ, điều đó rất quan trọng và thân thiết với bạn. Tiền bạc và tài sản được bạn giữ gìn rất cẩn thận và không muốn chia sẻ ra bên ngoài.
+ 
+Mặt trăng trong nhà thứ ba
+Bạn rất nhạy bén, cởi mở và tò mò. Bạn có khả năng bắt chước người khác và tài năng sử dụng ngôn ngữ. Bạn có thể tách mình ra khỏi cảm xúc để xử lí chúng hoặc có thể khống chế được những cảm xúc thái quá. Một số bạn có vị trí này có thể làm được cả hai điều trên và khi trưởng thành hơn, bạn tìm kiếm sự cân bằng. Các ý tưởng trong đầu bạn thường xuyên biến đổi, bạn có thể thấy rằng đôi khi bạn áp dụng ý tưởng của người khác và nhầm tưởng là của bạn. Bạn không nhất thiết phải là một bản sao dù bạn rất nhạy cảm với những ý kiến của người khác. Bạn mong muốn cuộc sống, môi trường xung quanh bạn thay đổi thường xuyên.
+Bạn thường đưa ra quyết định dựa trên cảm tính hoặc vì bạn “cảm thấy đúng” hay vì bạn đã quen làm như thế rồi, bạn không cảm thấy thoải mái khi thay đổi phương pháp đó. Ngay cả khi bạn cảm thấy rằng bạn chắc chắn đúng, những định kiến, trực giác và cảm xúc đang ảnh hưởng đến nhận định của bạn rất nhiều. Bạn cảm thấy thoải mái khi được cùng người khác chia sẻ cảm xúc và bạn rất tâm lý với mọi người.
+ 
+Mặt trăng trong nhà thứ tư
+Bạn tìm kiếm không ngừng nghỉ cảm giác quen thuộc thực sự. Bạn có thể thay đổi chỗ ở thường xuyên hoặc thay đổi một điều gì đó trong căn nhà của mình đến khi nào tìm thấy những điều bạn muốn tìm. Thay đổi thường xuyên có thể làm mới cảm xúc trong bạn thì rất tốt, nhưng nếu những thay đổi bất chợt theo tâm trạng đó thường xuyên khiến bạn cảm thấy hối tiếc thì bạn nên điều trị nó như một triệu chứng của tình trạng bất ổn cảm xúc. Giống như bạn đang khao khát cảm giác hoàn hảo, nhưng bạn không biết rằng điều đó phải tác động từ trong ra ngoài, chứ không phải từ ngoài vào trong. Một số bạn có vị trí này thường không muốn thực sự lớn lên, không muốn tự chăm sóc bản thân. Sự ràng buộc với quá khứ và gia đình của bạn rất mạnh mẽ.
+Bạn gắn bó chặt chẽ với quá khứ, nơi bạn sinh ra và lớn lên, những kỉ niệm và truyền thống gia đình. Trong thực tế bạn không thể thoát ra được những thói quen và những gì bạn được học như một đứa trẻ. Sự liên hệ của bạn với người mẹ hoặc người đỡ đầu, nuôi nấng bạn rất khăng khít.
+ 
+Mặt trăng trong nhà thứ năm
+Bạn thích được chia sẻ kinh nghiệm tình cảm với những người thân yêu của mình một cách tinh tế và dịu dàng. Tình yêu có một sức hấp dẫn kì lạ với bạn, bạn không bao giờ xem nhẹ tình yêu trên bất cứ phương diện nào, dù cho bạn có thể có nhiều mối tình đổi thay chăng nữa. Bạn có một sự gắn bó đối với những đứa trẻ. Sự sáng tạo của bạn luôn thay đổi, và bạn có tài năng nghệ thuật bẩm sinh. Bạn có một trí tưởng tượng sống động và bạn thường sử dụng nó hàng ngày ( hay mộng tưởng lắm). Bạn luôn cố gắng liên lạc với đứa trẻ bên trong bản thân bạn. Nếu vị trí của mặt trăng được thách thức, bạn có thể ham mê mua sắm, ham cờ bạc hoặc lao vào một tình yêu không bao giờ làm bạn cảm thấy hài lòng hoàn toàn, dù cho là trong trường hợp nào thì bạn cũng chỉ quan tâm đến cuộc chơi hơn là những yếu tố tham gia. Bạn có thể chấp nhận mọi rủi ro cho cuộc chơi thú vị, tuy nhiên, khả năng là bạn đang vô trách nhiệm với người khác, và với chính mình.
+Bạn thể hiện một cách đầy cảm xúc, và diễn chúng như một vở kịch đầy rung cảm, cảm xúc thoát ra bằng hành động, hoặc thoát ra khỏi sự cân bằng thường có. Bạn không thể che giấu được những phản ứng đầy cảm tính của mình cũng như sự cảm thông hay ác cảm dành cho một sự việc nào đó. Nét hấp dẫn của bạn là tính tình cởi mở, chân thành như trẻ thơ. Nhưng đôi khi bạn gặp rắc rối vì tính bốc đồng và thất thường của mình.
+ 
+Mặt trăng trong nhà thứ sáu
+Nhu cầu cảm xúc của bạn là được trở nên có ích, làm việc hiệu quả, có tổ chức và sống một cuộc sống lành mạnh. Nếu những vấn đề trên gặp rối loạn, nguy cơ là bạn sẽ gặp phải tình trạng bất ổn cảm xúc. Để cảm thấy hạnh phúc, bạn cần tham gia nhiều công việc khác nhau cùng một lúc. Một số người có vị trí này phải thay đổi công việc thường xuyên để tìm ra một công việc phù hợp. Việc phải chấp nhận bừa một công việc khá khó khăn với bạn. Vị trí này còn chỉ ra sự nhạy cảm đối với sức khỏe, các vấn đề sức khỏe vị thành niên và những triệu chứng khác. Trong một vài trường hợp, còn có xu hướng thổi phồng những vấn đề bệnh tật sức khỏe để có được sự đồng cảm hoặc tránh né những việc bạn không muốn làm. Tuy nhiên thực tế, bạn là người luôn luôn giúp đỡ người khác giải quyết những vấn đề nhằm cải thiện cuộc sống của họ.
+Bạn có được bản năng thông cảm và tiếp cận với những người đang cần sự giúp đỡ. Bạn có xu hướng tìm hiểu giúp đỡ cải thiện cuộc sống cho mọi người. Tuy nhiên ai đó không có nhu cầu cần giúp đỡ, họ sẽ cảm thấy như bị làm phiền. Đối với bạn, tình cảm hay sự quan tâm phải được thể hiện qua những hành động cụ thể.
+ 
+Mặt trăng trong nhà thứ bảy
+Bạn được sinh ra để trở thành một người bạn và bạn có nhu cầu tìm một người bạn đồng hành hỗ trợ tinh thần cho mình. Bạn cảm thấy vui vẻ khi được chia sẻ mọi hoạt động với một ai đó, thay vì làm những điều đó một mình. Bạn mong muốn một người có thể thấu hiểu và đánh thức những nhu cầu và cảm xúc trong bạn. Sự toàn vẹn cảm xúc được tìm thấy trong các mối quan hệ, tuy nhiên bạn vẫn có thể có những mối quan hệ khác sau một mối quan hệ mà bạn thậm chí tin rằng là duy nhất. Bạn rất sợ cô đơn, và bạn muốn quen biết với nhiều người đồng nghĩa với việc bạn phải cân nhắc sắp xếp giữa các mối quan hệ của mình. Điểm dễ thương của bạn là bạn dễ dàng đáp ứng nhu cầu của người khác. Đừng dễ dàng phụ thuộc vào một ai đó vì có thể họ chỉ đối xử với bạn như vậy để đáp lại tấm lòng của bạn mà thôi.
+Tinh thần của bạn phụ thuộc vào người khác. Bạn có một số lượng bạn bè đáng kể, họ đối xử với bạn như những người thân trong gia đình. Những người bạn gái rất quan trọng trong cuộc sống của bạn. Mối quan hệ giữa bạn và họ mạnh mẽ đến chi phối đến cảm giác hạnh phúc và an toàn của bạn. Khi không có một ai đó đáng tin cậy để xin ý kiến, bạn dễ cảm thấy không chắc chắn vào bản thân và không biết làm thế nào. Đừng phụ thuộc vào người khác quá bạn nhé!
+ 
+Mặt trăng trong nhà thứ tám
+Bạn luôn cố gắng bảo vệ tình cảm khỏi những tổn thương, sứt mẻ, va chạm, nhưng chính bạn cũng luôn nỗ lực để mở rộng những giới hạn của riêng mình. Bạn hay tạo ra những thách thức cho bản thân bằng cách thay đổi, làm mới mình. Bạn khao khát muốn lột xác. Bạn cảm thấy thích thú với những bí mật, cách riêng mà mọi người thường làm, những điều cấm kị và tất cả những gì huyền bí. Khi bạn có dấu hiệu bất ổn về tình dục, bạn muốn thay đổi bạn tình, hoặc thử thách bản thân trong tình dục là biểu hiện cảm xúc của bạn đang bất an. Tiếp xúc thân mật với người khác là một nhu cầu cảm xúc, tuy nhiên cảm xúc dễ thay đổi của bạn thường làm ảnh hưởng đến mục tiêu của bạn. Lòng đố kị và tính chiếm hữu là những tính cách mà bạn cần đấu tranh. Tuy nhiên bạn là một đối tác trung thành, thân mật, sâu sắc và mạnh mẽ.
+Mặc dù bạn muốn gần gũi với người khác, nhưng bạn lại sống khép kín và không thực sự tin tưởng người ta, thậm chí cả những người có thể muốn hiểu bạn. Bạn hết mình trong cảm xúc và bạn muốn nói với những người bạn quan tâm rằng: hãy dành tất cả sự chân thành với bạn như vậy hoặc không gì cả.
+ 
+Mặt trăng trong nhà thứ chín
+Bạn khao khát những cảm giác phấn khích từ những điều vượt lên trên những thói quen hàng ngày, những điều trần tục. Bạn đam mê triết học, quan tâm và tò mò về thế giới, những người xung quanh, các nền văn hóa khác nhau. Bạn cảm thấy bồn chồn và day dứt khi chưa tìm được mục tiêu rõ ràng trong cuộc sống này. Khát vọng của bạn là được bay cao bay xa. Nhưng điều đó chỉ có giúp bạn thư giãn, động viên tinh thần trong hoàn cảnh không như mong đợi. Không nên đứng núi này trông núi nọ trong khi bạn thả hồn để tìm kiếm sự tự do, thoải mái.
+Du lịch là một gợi ý không tồi để bạn có thêm những hiểu biết về văn hóa và con người. Bạn muốn được đắm mình vào những trải nghiệm mới mẻ. Bạn muốn trở thành một kẻ lang thang khắp đó đây. Điều gì đó thôi thúc bạn không thể đứng yên một chỗ. Nhưng hãy luôn nhắc nhở mình trân trọng những gì mình đang có.
+ 
+Mặt trăng trong nhà thứ mười
+Nhu cầu cảm xúc của bạn là mong muốn được công nhận, nhìn nhận và ghi nhận thành tích. Bạn là người khá thuyết phục. Bạn cảm thấy an toàn và hài lòng khi được sống một cuộc sống đầy trách nhiệm và có cấu trúc, để đạt được điều đó cần mất một khoảng thời gian khởi đầu. Bạn muốn không phụ sự mong đợi của gia đình và mọi người. Bạn thường xuyên đưa ra quyết định thiên về cảm tính hoặc theo cảm hứng bất chợt mà không có cân nhắc. Bạn cần học cách tìm ra mục tiêu thực sự mà trái tim bạn hướng đến. Đừng quá vì sự kì vọng của người khác mà đánh mất hạnh phúc của chính mình.
+Bạn có một bản năng làm việc và dành nhiệt huyết cho công chúng. Có một “tổ ấm” không quan trọng với bạn, bạn muốn đầu tư năng lượng cảm xúc vào sự nghiệp hoặc đời sống cộng đồng nhiều hơn. Bạn nên lựa chọn chuyên môn công việc là chăm sóc cho người khác.
+ 
+Mặt trăng trong nhà thứ mười một
+Vị trí này chỉ ra nhu cầu cảm xúc là mong muốn có được tình bạn, sự liên hệ với một nhóm hoặc một tổ chức có cùng tư tưởng với bạn. Bạn có xu hướng tương tác hỗ trợ với bạn bè của mình. Đời sống xã hội của bạn có thay đổi hoặc không ổn định là biểu hiện cho sự bất ổn về cảm xúc. Cảm xúc bị suy yếu hoặc mất đi làm nảy sinh vấn đề trong mối quan hệ của bạn. Bạn sẽ cảm thấy hài lòng khi được nuôi dưỡng những ước mơ, hy vọng cho tương lai của mình, và hầu hết trong đó là những ước vọng tốt đẹp, trong sáng. Tuy nhiên hoài bão của bạn hay bị biến đổi và bạn phải mất một khoảng thời gian để định hướng lại bản thân.
+Thông qua các hoạt động trong nhóm, câu lạc bộ, tổ chức, các hoạt động cộng đồng, hay một mạng lưới bạn bè thân thiết, những người hỗ trợ và quan tâm đến bạn, bạn nhận được rất nhiều cảm xúc, tình cảm. Bạn có thể kết bạn và gần gũi với những người cùng chia sẻ lý tưởng với mình.
+ 
+Mặt trăng trong nhà thứ mười hai
+Vị trí này cho thấy một sự gắn bó mật thiết với cảm xúc và những sự nhạy cảm với những điều thanh khiết, siêu hình và vô tận. Bạn thường trì hoãn phản ứng với chính những kinh nghiệm cảm xúc của mình. Bạn cần cho mình những khoảng lặng để nạp lại năng lượng nhưng điều này có thể gây ra sự cô lập bản thân và bị hiểu lầm. Bạn là một người sâu sắc, nhưng đôi khi bạn bị rối trong mớ cảm xúc hổn độn của mình, hoặc bạn bị mất liên lạc với chính cảm xúc của bạn. Tuy nhiên điều đó khi đạt đến một giới hạn nào đó có thể giúp bạn thực sự phát hiện ra nhu cầu tình cảm của mình. Biểu hiện tiêu cực của vị trí này là bạn có xu hướng trốn tránh trách nhiệm, đem sự mẫn cảm ra như một cái cớ cho bản thân, bàng quan, chưa trưởng thành về cảm xúc. Bạn thông cảm cho nỗi đau khổ của người khác, nhưng không phải lúc nào cũng sẵn sàng giúp đỡ.
+Cảm xúc và tình cảm của bản thân là một điều gì đó bí ẩn đối với bạn. Bạn rất khó chia sẻ với người khác những gì mà bạn đang cảm thấy. Bạn thường xuyên tách biệt với thế giới bên ngoài để giải phóng chính mình. Bạn đồng cảm, muốn giúp đỡ và chia sẻ với những gánh nặng, bất công nhân quyền, hoặc những xử sự không công bằng trong xã hội.
+ 
+ 
+Note: Mọi ý kiến đóng góp về bản dịch: nội dung, chính tả, ý nghĩa thì cứ comment ở dưới nhé! 
+ 
+Được dịch bởi team Astro Translator
+ 
+​

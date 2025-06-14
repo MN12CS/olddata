@@ -1,0 +1,56 @@
+---
+title: "[ Sưu tầm ] Cây, lá và gió"
+date: 2025-06-13T13:31:35Z
+slug: suu-tam-cay-la-va-gio
+draft: false
+---
+
+## [ Sưu tầm ] Cây, lá và gió
+
+## Princess lovely123456
+
+Cây
+
+Lý do tôi được gọi là cây là vì tôi thích vẽ cây, một thời gian dài, tôi vẽ một cái cây nhỏ ở góc những bức tranh của tôi. Tôi đã từng hẹn hò với năm cô gái khi tôi còn học dự bị đại học, trong số đó có một người tôi rất mến, rất mến nhưng lại không có can đảm để quen cô ấy. Cô ấy không có khuôn mặt xinh đẹp, không có những ngón tay thon dài, không có một ngọai hình nổi bật, cô ấy là một cô gái hết sức bình thường.
+Tôi thích cô ấy, thật sự thích cô ấy, tôi thích sự ngây thơ, thích nét tinh nghịch, thích sự dễ thương , thông minh và yếu ớt của cô ấy. Lý do mà tôi không quen với cô ấy là vì tôi nghĩ người quá bình thường như cô ấy thì không hợp với tôi. Tôi cũng sợ rằng khi quen nhau rồi thì những tình cảm tốt đẹp tôi dành cho cô ấy cũng tan vỡ. Một phần cũng sợ những tin đồn sẽ làm tổn thương cô ấy. Tôi nghĩ rằng nếu cô ấy thật sự dành cho tôi thì cuối cùng cô ấy cũng sẽ là của tôi và tôi không việc gì phải từ bỏ mọi thứ vì cô ấy. Lý do cuối cùng đã khiến cô ấy ở bên cạnh tôi suốt 3 năm. Cô ấy nhìn tôi theo đuổi những cô gái khác và.. tôi đã làm cô ấy khóc suốt 3 năm đó…
+
+Cô ấy muốn làm một diễn viên giỏi nhưng tôi lại là một đạo diễn vô cùng khắt khe. Khi tôi hôn người bạn gái thứ 2 thì cô ấy từ đâu đi tới, cô ấy rất bối rối nhưng cũng chỉ cười và nói “cứ tự nhiên” trước khi chạy đi. Ngày hôm sau, mắt cô ấy sưng như một hạt dẻ. Tôi cố tình không hiểu lý do tại sao cô ấy khóc và chọc cô ấy suốt ngày hôm đó. Khi mọi người đi về hết, cô ấy ngồi khóc một mình trong lớp. Cô ấy không biết tôi quay trở về lớp để lấy đồ …và tôi đã ngồi nhìn cô ấy khóc hơn một tiếng
+
+Người bạn gái thứ tư của tôi không thích cô ấy. Có một lần hai người đã cãi nhau, tôi biết theo tính cách của cô ấy , cô ấy chắc chắn không phải là người gây chuyện nhưng tôi vẫn đứng về phía bạn gái mình. Tôi mắng cô ấy, cô ấy đã nhìn tôi với một ánh mắt thật sự shock, tôi đã không quan tâm đến cảm giác của cô ấy và bỏ đi với bạn gái của mình
+
+Ngày hôm sau, cô ấy vẫn cười giỡn với tôi như không có chuyện gì xảy ra, tôi biết cô ấy bị tổn thương nhưng tôi nghĩ cô ấy không biết, tôi cũng đau như cô ấy vậy.
+
+Khi tôi chia tay với người bạn gái thứ 5, tôi đã hẹn hò với cô ấy, sau khi đi chơi được vài ngày tôi nói với cô ấy tôi có chuyện muốn nói cho cô ấy, cô ấy nhìn tôi và cũng nói là có chuyện muốn nói cho tôi biết. Tôi nói cho cô ấy nghe về việc tôi chia tay và cô ấy nói cho tôi hay là cô ấy bắt đầu quen người con trai khác. Tôi biết người đó là ai, người đó đã theo đuổi cô ấy một thời gian dài, một người con trai rất dễ thương, năng động và đầy sức sống. Việc người đó thích cô ấy đã được bàn tán trong trường một thời gian dài.
+
+Tôi không thể nói cho cô ấy biết là tim tôi đau như thế nào, tôi chỉ cười và chúc mừng cô ấy. Khi tôi về tới nhà, tim tôi đau đến nỗi tôi không thể đứng vững nổi nữa, giống như có một tảng đá đè nặng lên ngực tôi, Tôi không thở nổi, muốn hét thật to nhưng không thể. Nước mắt rơi xuống, tôi gục ngã và khóc.Đã bao nhiêu lần tôi nhìn thấy cô ấy khóc vì một người đàn ông cũng không chịu hiểu cho cảm giác của cô ấy?
+
+Sau khi tốt nghiệp, tôi cứ đọc mãi cái sms được gửi 10 ngày sau đó  “lá rời cây là vì gió cuốn đi hay là vì cây không giữ lá lại”
+
+
+Lá
+
+Suốt thời còn học dự bị đại học, tôi rất thích đi nhặt lá, tại sao ư? Tại vì tôi thấy để một cái lá rời khỏi cái cây mà nó đã dựa dẫm lâu như vậy cần phải rất can đảm.Suốt thời gian học dự bị, tôi luôn ở rất gần một người con trai, không phải là bạn trai đâu… chỉ là bạn bè thôi. Khi anh ấy có người bạn gái đầu tiên. Tôi học được một cảm giác mà trước giờ tôi nghĩ là mình không thể có – Sự ghanh tị. Nỗi cay đắng đó không thể diễn tả bằng lời, giống như là cực đỉnh của đau khổ vậy. nhưng sau đó 2 tháng thì họ chia tay, tôi chưa kịp vui mừng thì anh ấy lại quen tiếp một người con gái khác
+Tôi thích anh ấy và tôi biết rằng anh ấy cũng thích tôi. Nhưng tại sao anh ấy lại không hề biểu hiện? Tại sao anh ấy thích tôi mà lại không chịu bắt đầu trước. Mỗi lần anh ấy có bạn gái mới là một lần tim tôi đau nhói. Thời gian trôi qua, tim tôi đã vì anh ấy mà tổn thương rất nhiều. Tôi bắt đầu tin rằng đây chỉ là tình cảm đơn phương của mình tôi mà thôi.Nhưng nếu anh ấy không thích tôi thì tại sao lại đối xử tốt với tôi như vậy. Nó khác xa với việc anh ấy làm vì tình bạn. Thích một người sao mà khổ như vậy. Tôi có thể biết anh ấy thích gì, biết sở thích của anh ấy, nhưng tình cảm anh ấy dành cho tôi thì tôi không thể hiểu được và tôi cũng không thể nào mở lời được.
+Trừ việc đó ra, tôi vẫn muốn được ở bên cạnh anh cấy, quan tâm anh ấy, chăm sóc anh ấy và yêu anh ấy, hi vọng một ngày đẹp trời nào đó anh ấy sẽ thay đổi và yêu tôi, kiểu như đợi điện thọai của anh ấy mỗi đêm, muốn anh ấy gửi tin nhắn cho mình… Tôi biết cho dù anh ấy bận thế nào, anh ấy cũng sẽ dành thời gian cho tôi. Bởi vì như vậy nên tôi đã chờ anh ấy. 3 năm thật khó mà trôi qua và nhiều lúc tôi cũng nghĩ đến chuyện bỏ cuộc. Thỉnh thỏang, tôi tự hỏi liệu tôi có nên tiếp tục đợi chờ hay không? Nỗi đau, sự tổn thương và nỗi ám ảnh đã theo tôi suốt 3 năm.
+Cho đến năm tôi sắp tốt nghiệp, một chàng trai nhỏ hơn tôi một tuổi đã công khai theo đuổi tôi. Mỗi ngày anh ấy đều thể hiện tình cảm với tôi,anh ấy như một cơn gió, cố thổi một chiếc lá ra khỏi cành cây mà nó dựa dẫm, ban đầu tôi thấy hơi khó chịu, nhưng dần dần tôi đã dành cho anh ấy một góc nhỏ trong tim mình. Đến cuối cùng, tôi nhận ra rằng cơn gió đó có thể làm tôi hạnh phúc, có thể thổi tôi tới một vùng đất tốt đẹp hơn…cho nên cuối cùng tôi đã rời cây, nhưng cái cây chỉ cười và không hề khuyên tôi ở lại.
+
+Lá lìa cành là vì gió thổi hay vì cây không giữ lá ở lại??
+
+
+Gió
+
+Bởi vì tôi thích một cô gái được gọi là Lá, bởi vì cô ấy quá dựa dẫm vào cây cho nên tôi phải trở thành một cơn gió mạnh, một cơn gió có thể cuốn cô ấy đi. Lần đầu tiên tôi gặp cô ấy là khoảng một tháng sau khi tôi chuyển trường tới đây. Tôi nhìn thấy một cô gái nhỏ nhắn hay nhìn đội trưởng và tôi chơi đá bóng. Suốt thời gian đó, cô ấy luôn ngồi đó , một mình hoặc với những người bạn chỉ để nhìn đội trường. Khi anh ấy nói chuyện với những cô gái khác, tôi nhận thấy sự ghen tị trong mắt cô ấy, khi anh ấy nhìn cô ấy, tôi lại thấy nụ cười trong mắt cô ấy. Nhìn cô ấy trở thành một sở thích của tôi, giống như cô ấy thích nhìn anh ấy vậy.
+
+Một ngày, cô ấy không xuất hiện nữa, tôi cảm thấy như có gì đó trống vằng vậy. Tôi không thể giải thích nổi cảm giác của mình lúc đó , cảm thấy như là khó chịu lắm vậy, bữa đó đội trưởng cũng không tới , tôi tới lớp của 2 người, đứng ở ngòai và nhìn thấyanh ấy đang la mắng cô ấy. Mắt cô ấy ngân ngấn nước khi anh ta đi. Ngày hôm sau, tôi thấy cô ấy trở lại bình thường, vẫn ngồi đó và ngắm anh ta. Tôi đi ngang qua cô ấy và cười, tôi viết một lời nhắn và đưa cho cô ấy, cô ấy hơi ngạc nhiên, cô ấy nhìn tôi , cuời rồi nhận mảnh giấy. Ngày hôm sau, cô ấy xuất hiện, đưa tôi mảnh giấy rồi đi
+
+“Trái tim của chiếc lá quá nặng nề, gió không thể thổi đi được đâu”
+“Không phải tại vì trái tim chiếc lá quá nặng nề. Nó bởi vì chiếc lá không muốn rời khỏi cây”
+Tôi trả lời lời nhắn của cô ấy như vậy và dần dần cô ấy đã chấp nhận những món quà và điện thọai của tôi. Tôi biết người cô ấy yêu không phài là tôi. Nhưng tôi có linh cảm là một ngày nào đó tôi có thể làm cho cô ấy thích tôi. Trong vòng 4 tháng , tôi công khai tình cảm của tôi với cô ấy không dưới 20 lần . Mỗi lần như vậy, cô ấy đều chuyển đề tài, nhưng tôi không bỏ cuộc. Nếu tôi đã quyết định muốn có cô ấy, tôi sẽ làm mọi cách để cô ấy thích tôi. Tôi không thể nhớ nổi là tôi đã tỏ tình với cô ấy bao nhiêu lần. Mặc dù cô ấy lảng tránh nhưng trong lòng tôi vẫn nuôi hi vọng, hi vọng một ngày cô ấy sẽ chịu làm bạn gái của tôi.
+Một hôm tôi gọi điện cho cô ấy nhưng cô ấy không nói gì cả. tôi hỏi cô ấy “em đang làm gì vậy, sao em không nói gì hết vậy”, cô ấy nói “ Đầu của em đau lắm” “hả?” “đầu em đau lắm” cô ấy lặp lại to hơn. Tôi cúp máy và vội vàng đón taxi đến nhà cô ấy, khi cô ấy vừa ra mở cổng, tôi ôm ghì cô ấy vào lòng….và từ hôm đó…chúng tôi là một cặp
+
+Vậy lá rời cây là vì gió thổi đi hay vì cây đã không giữ lá lại?
+
+-------------
+(ST)
+
+Nguồn : http://www.petalia.org/Inspiration/caylagio.htm

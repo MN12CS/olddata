@@ -1,0 +1,27 @@
+---
+title: "Bài Văn về đồng tính nhận điểm cao của nữ sinh lớp 10"
+date: 2025-06-13T14:32:41Z
+slug: bai-van-ve-dong-tinh-nhan-diem-cao-cua-nu-sinh-lop-10
+draft: false
+---
+
+## Bài Văn về đồng tính nhận điểm cao của nữ sinh lớp 10
+
+## rubytran547
+
+Được biết đây là bài làm trong giờ kiểm tra 15 phút môn Văn, với chủ đề “Nghị luận một vấn đề xã hội mà em quan tâm” vào ngày 13/9. Mỗi học sinh chọn một vấn đề, và bạn nữ lớp 10 chuyên văn, tại một trường chuyên THPT ở TP.HCM chọn đề tài về người đồng tính.
+ Bài văn với nội dung kêu gọi mọi người không kì thị mà đối xử bình thường với người đồng tính. Bài làm được chấm 8,3 điểm, một số điểm cao cùng lời nhận xét: “Nghị luận khá tốt, chọn vấn đề khá “hot” trong tình hình xã hội hiện nay. Có thể cập nhật thêm luật kết hôn đồng giới mà Quốc hội bàn bạc tháng 9/2013 để khởi sâu vấn đề, đề xuất giải pháp”.
+ ​ Nội dung lời phê của giáo viên.​ Dưới đây là nội dung bài văn:
+ Quả đúng thế thật, mỗi người khi sinh ra đều mang trong mình một vẻ đẹp riêng, một nét khác biệt cũng như một phong cách sống khác nhau. Không ai khi sinh ra có quyền lựa chọn giới tính, cũng như lựa chọn tính cách của bản thân. Vì vậy đồng tính không phải là một vấn đề không tốt, mà ngược lại đó còn là một vấn đề cả xã hội cần quan tâm.
+ Trước hết đồng tính không phải là căn bệnh và cũng không có phương thuốc, cách đặc trị riêng nào như mọi người vẫn tưởng. “Đồng tính” là từ ghép của hai từ “đồng”, có nghĩa là “cùng, giống”. Còn “tính” chính là tính hướng, giới tính của mỗi người. Nói cách khác, đồng tính là một thể loại giữa những người cùng giới.
+ Ngày nay trong cuộc sống, đồng tính dần trở thành một vấn đề “nóng” được cả xã hội chú trọng và quan tâm. Những người đồng tính, theo một cách nào đó, luôn cố gắng che giấu tính hướng thật của mình. Họ đa phần thường là những người thích sự lặng yên, sống lặng lẽ và đôi khi một trong số họ rất ngại giao tiếp với thế giới xung quanh.
+ Đồng tính được chia làm hai giới: đó là đồng tính nam (gay) và đồng tính nữ (les). Một số nhà nghiên cứu nhận định rằng xu hướng giới tính của xã hội đang ngày một thay đổi. Phần lớn những người đồng tính nam (gay) có chiều hướng sống công khai hơn đồng tính nữ (les). Họ cho rằng, đó là bởi vì nam là những con người mạnh mẽ, gánh chịu dám đương đầu với dư luận và thách thức nên việc công khai có lẽ sẽ dễ dàng hơn.
+ Tuy là nam, nhưng gay, tự sâu thẳm vẫn tồn tại một phần mềm yếu cũng như gay thường sẽ nhạy cảm và thận trọng với thế giới trước mắt họ hơn những người khác. Les cũng vậy, họ cũng là những người đồng tính như gay nhưng phải mất một khoảng thời gian khá lâu để chúng ta gặp gỡ và tiếp xúc mới có thể nhận ra. Họ phần lớn thích sự tĩnh lặng và tình cảm, sự nhận thức mọi người, mọi vật xung quanh cũng rất lặng lẽ. Vì vậy les ít khi nào dám nói lên tính hướng thật của mình.
+ Đồng tính nói chung, cả les và gay cũng chỉ là những con người vô cùng bình thường như chúng ta, cùng đứng chung một bầu trời, cùng hít chung một bầu không khí. Vậy thì vì sao chúng ta phải kì thị, miệt thị họ bằng những từ ngữ cay đắng? Tại sao chúng ta lại dùng hai từ “ghê tởm, dơ bẩn” để gán cho họ? Chúng ta có chắc rằng, mỗi lời ta thốt ra chỉ là một câu nói bình thường? Chúng ta có chắc rằng họ sẽ không đau khổ, buồn tủi thậm chí là nhục nhã? Chúng ta có bao giờ chắc rằng họ sẽ không cảm thấy chán nản với thế giới đầy rẫy những người miệt thị họ?
+ Và liệu chúng ta, đang làm những việc kỳ thị, xúc phạm này, khi nói ra hai từ “ghê tởm, dơ bẩn” có nên nhìn lại bản thân mình trước khi nói không. Người với người sống để yêu nhau nhưng ta lại đang cố tách biệt họ khỏi vòng tròn tình thương, cố dìm họ trong vực thẳm, cố đẩy họ xuống vực thẳm sâu khôn cùng. Như vậy mà gọi là nhân đạo? Như vậy mà gọi là thương yêu? Phải chăng những tình cảm mà ta tưởng là tốt đẹp, hằng ngày vẫn được bồi đắp, vun vén kia rốt cuộc chỉ là những bằng chứng để phản pháo lại người ta mà thôi. Những người rũ bỏ tình thương yêu, giả vờ tỏ ra nhân đạo cao thượng kia thậm chí còn “ghê tởm” hơn cả những  les và gay.
+ Mỗi lời chúng ta, dù vô tình hay cố ý cũng đều tựa như một nhát dao đâm xuyên qua trái tim họ. Sau này dù đã nguôi ngoai cơn đau nhưng vết thương trong tâm hồn và trái tim ấy vẫn sẽ là một cơn đau âm ỉ. Nó sẽ bám lấy tâm hồn họ dai dẳng, ám ảnh lấy tâm trí họ và trở thành những vết cứa trong hồi ức.
+ Vì vậy ta hãy dang rộng vòng tay đón nhận lấy những đồng tính nữ, nam, yêu thương cảm thông, chia sẻ với họ. Dù là les hay gay chung quy cũng chỉ là nhưng người bình thường nhưng bị xã hội kì thị. Vì vậy, chúng ta những người có học thức, hiểu biết rõ ràng hãy dũng cảm đứng lên bảo vệ họ. Bởi vì người đi nói người khác quái dị, tự sâu thẳm họ cũng chỉ là mong muốn có được sự dũng cảm, dám nói lên sự thật như họ. Les, gay đúng là những con người sống thật với giới tính của mình, không trốn tránh hay lừa dối bản thân.
+ Tuy tôi không thể hiểu rõ hết thế giới của những người đồng tính nhưng tôi tin chắc sẽ luôn ủng hộ họ vì họ xứng đáng được bảo vệ. Họ chính là những thiên thần bị ngã, cần chúng ta che chở.
+ Đúng như câu hát của Lady Gaga: “Tôi xinh đẹp trên phong cách của mình, bởi vì Chúa đã tạo ta tôi như thế”. Chúng ta hãy tự tin sống với giới tính thật của mình và tin tưởng vào một ngày mai tươi sáng.
+
+Theo Như Quỳnh/Tri Thức

@@ -1,0 +1,28 @@
+---
+title: "Sir Alex, người đặt nền móng cho những thành công"
+date: 2025-06-13T02:25:00Z
+slug: sir-alex-nguoi-dat-nen-mong-cho-nhung-thanh-cong
+draft: false
+---
+
+## Sir Alex, người đặt nền móng cho những thành công
+
+## teddyhangvu
+
+Không quá khi nói rằng Sir Alex Ferguson là vị chiến lược gia thành công nhất trong lịch sử của đội chủ sân Old Trafford.
+
+Từ những khởi đầu gian nan
+Trên con đường đi tới thành công không bao giờ trải đầy hoa hồng, nó là những gian nan thử thách chờ đợi người có đủ bản lĩnh để vượt qua. Ferguson, một tượng đài của Manchester United khi Ngài đã mang lại rất nhiều thành công cho đội chủ sân Old Trafford. Nhưng để có được thành công như ngày hôm nay, vị chiến lược gia người Scotland đã phải đánh đổi rất nhiều và trải qua những khởi đầu vô cùng khó khăn.
+Nhiều người nói rằng: Pep Guardiola là vị chiến lược gia xuất sắc nhất thế kỉ 21 khi ngay trong năm đầu tiên dẫn dắt Barcelona, ông đã mang về tổng cộng 6 chức vô địch cho gã khổng lồ xứ Catalan ở mùa giải 2008. Nhưng thực tế, Pep được thừa hưởng rất nhiều từ Frank Rijkaard và hơn thế nữa là tại thời điểm đó, Barca đang sở hữu đội hình gần như là hoàn hảo nhất thế giới. Còn với Ferguson, từ sau khi tiếp quản chiếc ghế nóng tại sân Old Trafford, ông đã nhận đươc những gì từ người tiền nhiệm để lại? Đó chỉ là những rắc rối, những xáo trộn trong đội hình và đặc biệt hơn thế nữa là sức ép đưa MU trở lại vị trí cao nhất của xứ sở Sương mù sau nhiều năm vắng bóng.
+​7 năm đầu không thể giành chức vô địch bóng đá Anh là 1 áp lực không nhỏ với Sir Alex​Cập bến Old Trafford từ năm 1986, sau khi lên thay người tiền nhiệm của mình là Ron Atkinson, Sir Alex được người hâm mộ Quỷ đỏ đặt niềm tin lớn với hi vọng có thể lấy lại vinh quang sau nhiều năm khát khao. Thực tế, 5 năm dưới thời của Atkinson, Quỷ đỏ thành Manchester chưa bao giờ được nếm cảm giác của những người chiến thắng (niềm an ủi lớn nhất là hai chức vô địch FA vào năm 1983, 1985).
+Sau khi nhậm chức, Sir Alex đã cùng với MU trải qua những tháng ngày khởi đầu vô cùng khó khăn với 7 năm không thể giành nổi chức vô địch bóng đá Anh. Lúc đó, người ta cho rằng, Ferguson cũng chỉ là một người vô cùng bình thường và chẳng có một chút phép thuật nào để có thể chèo lái con thuyền MU tới những danh hiệu cao quý. Nhưng quãng thời gian dài đó cũng chính là lúc để cho “Ông già gân” thể hiện được bản lĩnh của mình khi quyết tâm gắn bó với đội chủ sân Old Trafford.
+Cho tới những thành công vang dội
+Sự nỗ lực không biết mệt mỏi của Sir Alex cuối cùng cũng được đền đáp. Đội chủ sân Old Trafford đã lấy lại được vị thế số 1 của mình tại Anh với chức vô địch năm 1993, chấm dứt cho thời kì khủng hoảng về danh hiệu (chức vô địch Ngoại hạng Anh sau 26 năm mòn mỏi). Không những thế, danh hiệu này cũng là bước ngoặt, đánh dấu cho thời đại hoàng kim của Quỷ đỏ. 
+​Chức vô địch năm 1993 đã mở ra 1 thời kì thành công rực rỡ của Sir Alex và MU​Những mùa giải sau đó, MU liên tiếp khẳng định được sức mạnh tuyệt đối của mình với hàng loạt chức vô địch đầy thuyết phục. Tính tới thời điểm hiện tại sau 27 năm dẫn dắt, Sir Alex đã mang về cho MU tổng cộng 13 chức vô địch Ngoại hạng Anh, 5 chức vô địch FA Cup và nhiều danh hiệu khác. Không những thế, Ferguson còn giúp cho MU khẳng định được vị thế của mình tại đấu trường danh giá nhất châu Âu. Dưới thời của ông, MU có hai chiếc cúp C1 châu Âu danh giá vào các năm 1999, 2008 đặc biệt là cú ăn 3 lịch sử của đội bóng này năm 1999, thành tích vô tiền khoáng hậu.
+​Năm 1999 vẫn là năm thành công nhất trong lịch sử MU​Sự thành công của Ferguson không chỉ bởi những danh hiệu Ngài mang lại mà đó còn là sự thành công từ cách xây dựng đội hình hoàn hảo, một MU của sự đoàn kết. Điều này ta có thể thấy rất rõ, trước khiFerguson đến, Quỷ đỏ đang mắc một căn bệnh là quá phụ thuộc vào các cá nhân như Bobby Charlton,Dennis Law… Và khi MU không thể tìm kiếm được những người thay thế cũng là lúc đội chủ sân Old Trafford trải qua sự khủng hoảng (26 năm không thể vô địch ngoại hạng Anh). Thực tế đã chứng minh, dưới thời của Ferguson, đội hình của MU không phụ thuộc vào bất kì một cá nhân nào, đó là tập thể đoàn kết của tất cả những cầu thủ trong đội hình. Chính triết lý này đã mang lại sự thành công rất lớn cho Quỷ đỏ thành Manchester.
+
+Kết thúc để bắt đầu
+Sau rất nhiều những thông tin đồn thổi thì cuối cùng Sir Alex Ferguson đã chính thức “thoái vị” chiếc ghế HLV của MU vào cuối mùa giải năm nay. Một quyết định gây “sốc” rất lớn không chỉ trong làng bóng đá Thế giới mà còn đối với tất cả những fan của Quỷ đỏ thành Manchester. Những thành công mà “Ông già gân” đem lại cho đội chủ sân Old Trafford là không thể nào kể xiết. Ngài mãi là một tượng đài của đội chủ sân Old Trafford và khó lòng có thể tìm kiếm người thứ hai.
+Tuy nhiên, nếu nhìn vào thực tế, việc Ferguson quyết định nghỉ hưu là hoàn toàn hợp lý khi mà vị HLV người Scotland đã bước sang tuổi thứ 71, đã không đủ sức khỏe để có thể chèo lái con thuyền MU đến bến bờ vinh quang. Ngài đã cống hiến cho MU gần như cả sự nghiệp cầm quân của mình và đã đến lúc cho “Ông già gân” có thời gian nghỉ ngơi sau những năm tháng vất vả, đổ mồ hôi và nước mắt để có thể xây dựng nên một MU ở thời điểm hiện tại. 
+​Đã đến lúc, Sir nói lời tạm biệt với Quỷ đỏ​Dù vậy, có một điều không thể phủ nhận, dù cho sau khi tuyên bố nghỉ hưu nhưng tiếng nói của Fergusonsau này vẫn rất có trọng lượng tại sân Old Trafford, nhất là khi ông sẽ tiếp quản vị trí Giám đốc của đội bóng này. Ferguson đã kết thúc sự nghiệp của mình nhưng điều đó không hẳn là một thất bại của MU. Biết đâu sự kết thúc của Ferguson lại là sự khởi đầu của một triều đại thịnh vượng khác tại Old Trafford?
+Hữu Trưởng - Theo Trí Thức Trẻ

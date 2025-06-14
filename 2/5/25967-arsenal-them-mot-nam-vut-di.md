@@ -1,0 +1,19 @@
+---
+title: "Arsenal: Thêm một năm vứt đi?"
+date: 2025-06-12T23:33:17Z
+slug: arsenal-them-mot-nam-vut-di
+draft: false
+---
+
+## Arsenal: Thêm một năm vứt đi?
+
+## HoangDann
+
+Thất bại trước Man City, cùng với việc Tottenham kiếm được 1 điểm ở vòng này, Arsenal đã tiếp tục bị top 4 bỏ lại phía sau với khoảng cách lên đến 6 điểm. Ngay cả Everton, đang đứng thứ 5, cũng đã có nhiều hơn Pháo thủ 3 điểm. Arsenal còn 1 trận chưa đá trong tay nhưng với quyết tâm và thực lực của Tottenham (cũng như Everton), cuộc chiến giành vị trí trong top 4 bây giờ trở nên cực kỳ khốc liệt. Điều đáng ngại là Arsenal đang cho thấy những dấu hiệu hết sức bất ổn mà cái giá phải trả rất có thể sẽ là thêm một năm đáng quên nữa.
+Sự mong manh của Arsenal bây giờ khiến họ không còn đáng sợ ngay cả khi được thi đấu tại Emirates. Sau trận thua Man City, HLV Wenger thậm chí phải thừa nhận các học trò của ông đã nhập cuộc quá nhút nhát. Trước và sau khi mất Koscielny, Arsenal đều không làm chủ được thế trận. Họ để đối thủ gây sức ép liên tục và cuối cùng lúng túng phạm sai lầm. Thẻ đỏ của Koscielny chỉ là hậu quả từ màn trình diễn nghèo nàn của cả đội.Sai lầm nối tiếp sai lầm
+Đúng là Man City rất mạnh nhưng nên nhớ đội hình mà Roberto Mancini mang đến London vẫn còn thiếu những ngôi sao xuất sắc nhất như Yaya hay Aguero. Điều này cho thấy khoảng cách về chất lượng cầu thủ không thể là nguyên nhân chính dẫn tới thất bại của Arsenal. Sự thật là Arsenal, như hình ảnh quen thuộc ở mùa này, đã tự bắn vào chân trong những cuộc chiến sống còn. Tháng 11 năm ngoái, Pháo thủ đã từng gục ngã trước MU xuất phát từ sai lầm phá bóng tệ hại của Vermaelen. Trước đó là trận thua Chelsea mà cả hai bàn thua đều có lỗi của Koscielny.
+Bộ đôi trung vệ thường xuyên mắc sai lầm, mặc dù họ đều có trình độ và kinh nghiệm, đã chứng minh cả hệ thống phòng ngự của Wenger không đủ tốt để giảm áp lực trước khu cấm địa. Không quá bất ngờ về điều này bởi Arsenal đã không còn mẫu cầu thủ phòng ngự từ xa giỏi như Alex Song. Trong khi Diaby chỉ vừa trở lại sau chấn thương (chơi dưới mức trung bình trong trận thua Man City), Whilsere cũng vậy và Chamberlain thì vẫn còn thiếu rất nhiều kinh nghiệm ở những trận cầu đỉnh cao.
+Thủ tệ nhưng Arsenal cũng không có hàng công xuất sắc để chơi theo kiểu lấy công bù thủ. Đúng là đã có những trận The Gunners thăng hoa ghi đến 6 hay 7 bàn. Nhưng đó là trước những kẻ hoàn toàn dưới cơ như Southampton, Reading hay một Newcastle đã sa sút thảm hại. Một vài niềm vui nhỏ nhoi kiểu đó không đủ để lấp đầy những âu lo và bi quan cho chặng đường phía trước.Arsenal lại gục ngã trong một trận đấu quan trọng
+Giữa tuần này, Arsenal sẽ phải đá lại với Swansea ở vòng 3 FA Cup sau trận hòa 2-2 tại Liberty. Đá sân nhà, cửa đi tiếp cho thầy trò Wenger là rộng hơn đối thủ. Nhưng nếu họ có để thua và bị loại thì cũng không nhiều người ngạc nhiên. Mùa này, Arsenal từng phơi áo 0-2 trước chính Swansea ngay tại Emirates. Với một Arsenal vẫn tồn tại quá nhiều bất ổn, quá nhiều vấn đề từ lối chơi đến tinh thần, thắng thua bây giờ là một ranh giới vô cùng mong manh.
+Gần một tháng nữa, Champions League sẽ là màn thử lửa thực sự với thầy trò Wenger. Họ phải chạm trán một Bayern đang có phong độ rất cao và sở hữu đội hình đẳng cấp hơn hẳn. Các CĐV dĩ nhiên không muốn phải nghĩ đến một thất bại ngay từ vòng knock-out đầu tiên của giải đấu danh giá nhất châu lục. Nhưng nếu Arsenal không sớm cải thiện hình ảnh, một kết cục buồn có lẽ đã được báo trước.
+Hết mùa này, sẽ là thảm họa kinh khủng nếu Arsenal không thể vào top 4 Premier League, bị loại sớm ở Champions League và trắng tay ở FA Cup. Nhưng sau những gì họ đã trình diễn, nguy cơ ấy là hoàn toàn có thể xảy ra.

@@ -1,0 +1,12 @@
+---
+title: "Quy định \"cấm yêu\" của các trường học trên thế giới"
+date: 2025-06-13T00:54:25Z
+slug: quy-dinh-cam-yeu-cua-cac-truong-hoc-tren-the-gioi
+draft: false
+---
+
+## Quy định "cấm yêu" của các trường học trên thế giới
+
+## teddyhangvu
+
+Theo Xzone​Trong nỗ lực tạo ra một môi trường lành mạnh, hướng cho học sinh lối sống nghiêm túc và tránh được nguy cơ quấy rối tình dục, nhiều trường học trên thế giới đã có những quy định nghiêm ngặt về chuyện yêu đương.​ ​Trường TH Yueqing Yucai ở tỉnh Chiết Giang, Trung Quốc đã đưa ra những quy định nghiêm ngặt "cấm yêu trong trường học" trước sự ủng hộ của các bậc phụ huynh nhằm ngăn chặn tình trạng học sinh yêu sớm.​ ​Luật cấm của trường trung học Yueqing Yucai bao gồm: cấm nói chuyện riêng với bạn khác giới tại những khu vực “riêng tư” như dưới bóng cây, nhà xe hoặc những chỗ tối; cấm nhận quà đắt tiền; đặc biệt phải đứng cách bạn khác giới 60cm kể cả khi nói chuyện, đứng xếp hàng,… Vì vậy, nắm tay, ôm hôn,… được coi như “trọng tội”. Bản thông báo cũng nêu rõ: “Chúng tôi (ban giám hiệu nhà trường) hy vọng tất cả các học sinh có thể biết chừng mực và kiểm soát hành động của bản thân, dành toàn bộ tình yêu tuổi trẻ cho việc học hành.”​Bất kỳ học sinh nào vi phạm một trong những quy định này sẽ bị phạt nghiêm khắc và bị báo lại với bố mẹ.​ ​Trung Quốc cũng là một trong những quốc gia có những luật lệ khá nặng tay cho việc yêu thái quá của teen nơi công cộng. Thậm chí chính quyền Trung Quốc còn đưa ra lệnh cấm giới trẻ “yêu” trong cáp treo, để thẳng thừng tẩy chay những màn yêu đương quá bạo của teen.​Ở Anh, Trường Kings Of Wessex ở Cheddar đã áp dụng quy định cấm học sinh hôn nhau hay có hành động nhạy cảm trong khuôn viên của trường. Những ai bị bắt gặp sẽ nhận hình phạt nặng, thậm chí là đình chỉ học tập.​ ​Trường học ở Singapore bắt các học sinh của mình cam kết sẽ không có những hành động quá mức tại chốn đông người, nếu ai vị phạm hoặc bị tung ảnh, clip lên mạng sẽ bị phạt và buộc thôi học.​ ​Tại một nước sống khá "thoáng" như Mỹ cũng có quy định chặt chẽ là cấm học sinh ôm hôn khi chào nhau. Đó là Trường Trung học West Sylvan ở bang Oregon đã đưa ra quy định cấm học sinh chào hỏi bằng cử chỉ ôm hôn khi tới trường để tránh một số học sinh lạm dụng việc này như một hành vi quấy rối học đường, đặc biệt đối với các nữ sinh.​Trước đây, các giáo viên của Trường West Sylvan cũng từng đưa ra quy định học sinh không được có cử chỉ ôm hôn quá 2 giây.​

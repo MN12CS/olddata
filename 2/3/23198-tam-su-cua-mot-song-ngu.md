@@ -1,0 +1,48 @@
+---
+title: "Tâm sự của một Song Ngư"
+date: 2025-06-12T22:38:35Z
+slug: tam-su-cua-mot-song-ngu
+draft: false
+---
+
+## Tâm sự của một Song Ngư
+
+## Cá Ngố yêu pé Cua :x
+
+Đây là những dòng tâm sự của 1 mem song ngư nhà mình gửi cho người đặc biệt của bạn ấy. Hi vọng cậu ấy có thể đọc được và hiểu tấm lòng của mem ngư nhà mình :
+ 
+" Song ngư mà , tình yêu cứ như 1 cái duyên trời định gắn liền với nó". 
+--------Tớ muốn nói với cậu ♥
+
+“Có ai không” – đó là tin nhắn đầu tiên cậu gửi cho tớ. Tớ không biết cậu là ai và sau vài tin nhắn qua lại thì tớ mới biết được rằng thằng em tớ nó lấy điện thoại của tớ nhá máy linh tinh và chẳng may lại nhá vào số của cậu. Thế là tớ và cậu quen nhau.
+Mới đầu nhắn tin với cậu, vì chưa biết mặt nên tớ cũng không thích nói chuyện lắm. Đã thế mỗi lần cậu nhắn tin thì tin nhắn cụt ngủn, rõ ràng là nhắn tin đến trước thế mà tớ cứ phải hỏi và cậu là người trả lời. Có lần tớ tức quá, tớ nói tớ không thích cái kiểu người hỏi người trả lời thế này đâu. Cậu nói cậu xin lỗi rồi sẽ sửa nhưng vẫn đâu vào đó mà thôi.
+Quên nhau cũng được hơn một năm rồi đấy, cái ngày đó cậu nói dối tuổi của mình, tớ cũng không hề biết được mặc dù có đôi lần nghi ngờ nhưng sau đó lại bỏ qua. Không hiểu sao tớ lại rất thích người khác gọi tớ là chị và chính vì thế mà tớ cũng có nhiều em lắm ấy, gọi như thế cho nó nhanh lớn.hehe vì tớ luôn bị mọi người chê là trẻ con mà. Riêng cậu cũng không ngoại lệ, tớ cứ muốn cậu gọi tớ là chị nhưng cậu không chịu. Cậu nói bằng tuổi thì xưng hô bạn bè thôi còn tớ không chịu thua, đến khi cậu bảo vậy thì đọ ngày sinh, 2 đứa nhắn tin cùng lúc, tránh bị ăn gian. Tin nhắn trở lại cậu - 28/2, còn tớ - 19/2. 
+- Chúng ta cùng thuộc Cung Song Ngư . cậu nhắn luôn tin tiếp theo cho tớ
+- Kệ, chả liên quan 
+- Ờ, thôi tớ ngủ đây. Cậu ngủ ngon nhé ♥
+Tớ còn chưa nói xong chuyện kia mà cậu đã đi ngủ rồi. Bực mình, và không biết bao nhiêu lần cậu làm cho tớ tức như thế >.<
+Ít lâu sau thì tớ vô tình biết cậu ít tuổi hơn tớ, do bạn cậu nhắn tin với tớ và nói cho tớ biết. Một tuần sau đó tớ không nhắn tin với cậu nữa và tớ đã nghĩ có phải cậu không dám nói cho tớ biết cậu ít tuổi hơn tớ nên mới nhờ bạn cậu,phải không cậu? Và sau mấy hôm thì cuối cùng cậu nhắn tin cho tớ
+- Có đang học không, nhắn tin đi
+- Có gì để nói à. 
+- Nói thế thì còn biết nói gì nữa
+Tớ cũng không biết nói như thế nào với cậu nữa. mặc dù tớ rất muốn một lời giải thích từ cậu. Tin nhắn qua lại mà không có chủ ngữ, hay vì đơn giản cả 2 không biết nên xưng hô sao cho đúng. Rồi cũng đến lúc cậu nói “xưng chị rồi sẽ cách xa thôi, tớ vẫn muỗn chúng ta xưng tên như mọi khi vậy” và tớ cũng đồng ý. Cứ như thế tớ với cậu lại trở lại như xưa, nhắn tin nói chuyện nhiều thành ra chẳng còn ngại gì nữa mà đôi lúc còn chém gió như thật ấy . Nói chuyện với cậu tớ thấy rất thoải mái và vui nữa. 
+Chưa biết mặt nhau, chưa tiếp xúc với nhau bao giờ, chỉ nhắn tin nói chuyện qua điện thoại thôi, như thế chưa đủ để nói là thích được, đúng không cậu? Nhưng tớ đã lỡ thích cậu mất rồi, , biết làm sao đây? tớ không biết là từ khi nào nữa và tại sao lại thích cậu đc. 
+Năm nay tớ đã đỗ đại học ở Hà Nội. Đi học quen biết nhiều bạn bè mới nhưng tớ vẫn muốn nói chuyện với cậu nhiều lắm, tớ không muốn mất cậu đâu. Tớ quen cái thời gian mà cậu nhắn tin cho tớ, mỗi khi cậu đi học thêm về và nhắn tin cho tớ khoảng lúc 10h hoặc hơn gì đó. Nhưng những lúc ấy chỉ nhắn đc có vài tin là cậu kêu đi ngủ, tớ biết cậu ko đi ngủ luôn nhưng thôi kệ, chả quan tâm. Vì lúc ấy tớ cũng có những người bạn khác nt với tớ mà. Có đôi lần tớ nói với cậu là có người thích tớ. Tỏ tình với tớ. Uhm, thì có thật, nhưng tớ chẳng thấy thích gì, chẳng có cảm giác gì cả. 
+ 
+​
+
+Như thói quen cậu vẫn nhắn tin với tớ và tớ cũng thế. Nếu lúc nào không thấy cậu nhắn tin, tớ nhớ thì tớ nhắn tin trước. Nhưng thói quen cũng có thể bỏ đc, đúng không cậu? lâu dần cậu ít nt với tớ hơn và tớ chủ động nhắn tin cho cậu nhiều hơn. Mặc dù biết rằng con gái thì không nên chủ động vì có thể ng ta sẽ nghĩ rằng mình cần người ta. Có lần tớ hỏi cậu, cậu thích gì và ghét gì. Cậu nói “ Chính à, Chính thích đi du lịch thám hiểm, nghe nhạc, chơi game, thích đi dạo một mình, thích ngắm sao một mình, thích được quan tâm, thích quan tâm người khác. Thích màu đen và màu trắng, thích làm siêu nhân ^^!. Chính ghét bị khinh thường, ghét bị nói sau lưng và ghét một số thứ nữa….”
+Tớ lại hỏi sao cậu lại thích một mình thì cậu trả lời “ tại Chính vẫn còn cô đơn mà ”
+Tớ nhớ , nhớ nhiều thứ liên quan đến cậu lắm. Rất nhiều lần, tớ đã thôi nghĩ không nhớ cậu nữa, sẽ không nhắn tin cho cậu nữa nhưng tớ không làm được, cậu ak  . tình cảm của tớ dành cho cậu ngày một lớn dần lên sao ấy. Tớ biết tớ đã làm phiền cậu nhiều và đôi khi cậu còn ghét tớ nữa ấy chứ. Hic….
+Cậu tự nhận mình là vô tâm, sự vô tâm đó của cậu chắc chỉ dành cho tớ thôi chứ. hi......Đọc những dòng stt của cậu viết trên face tớ cũng đã đoán là cậu có thích một ai đó trong lớp, tớ thấy đau và tự nhủ là sẽ dần quên cậu. Cậu thích người khác còn tớ thì lại đi.......... không công bằng chút nào mà. Nhưng tớ vẫn like những stt đó, có lúc còn vui vẻ cmt nữa. Tớ không hề bỏ lỡ một stt nào của cậu post lên. Còn cậu thì khác, cậu không như trước kia nữa ,cậu ích kỷ lắm,một tin nhắn chúc ngủ ngon sau khi nhắn tin mà cậu cũng không nhắn được, chỉ cần một cái bấm like thôi mà cậu cũng không like stt của tớ, tớ chỉ muốn biết rằng cậu cũng có một chút quan tâm, dõi theo tới tớ thôi mà . Có lẽ tớ đã quan tâm, quá để ý đến cậu, đến mức mà tơ cũng không bỏ lỡ đến những cái cmt của cậu với bạn cậu. Và chợt nhận ra rằng cậu đang tán một ng mà cậu ko biết phải làm như thế nào khi mà đứa em gái kết nghĩa của cậu lại ko muốn cậu ......cậu phân vân ko biết nên chọn ai? ^^! lúc ấy tớ đã nt cho cậu chỉ có một câu thôi và bây giờ cmt đó cậu đã xóa rồi, đúng không? hj. Có nhiều người rất giỏi an ủi ng khác nhưng lại ko thể an ủi chính mình.
+Tớ luôn hỏi cậu một câu vô duyên đó là " cậu có nhớ tớ không?" tớ sẵn sàng chấp nhận câu trả lời là "không" cho bất kỳ câu hỏi nào mà tớ hỏi ng khác vì nhiều lúc nó có thể sẽ gây bất ngờ cho chính mình vì câu trả lời ngược lại và tớ chưa từng bất ngờ về câu trả lời của cậu lần nào, quá quen thuộc rồi mà.
+Tớ cứ nhắc cậu học hành cẩn thận, chăm chỉ mà đâu để ý rằng ai cho tớ quyền đó chứ. Trong khi đó thì tớ lại nhắn tin với cậu. không để cho cậu học hành gì cả. 
+Cậu còn cái gì xấu nữa không nhỉ, để tớ nghĩ xem nào........ à, cậu tàn nhẫn lắm. hic, nhiều lần cậu cố tình làm như thế để chọc tức tớ, để tớ buồn đúng không? 
+Thích cậu để rồi tớ lạnh lùng với ng khác, biết làm tổn thương người khác nhiều hơn. Nhưng dù sao cũng cảm ơn cậu vì đã cho tớ biết đến những càm nhận mà tớ chưa từng có với bất kỳ ai, không phải đi hỏi bạn là nó ntn nữa. ♥ 
+Thỉnh thoảng tớ lại lôi đt ra, đọc lại tin nhắn của cậu và mỉm cười một mình. Nhưng cũng có tn làm tớ buồn lắm ý, tớ cứ giữ lại để mà đọc cho nhớ rằng cậu đã đối xử với tớ ntn >.<. 
+Mặc dù nt với cậu rất nhiều nhưng cậu chưa hề chia sẻ chuyện gì của cậu cho tớ nghe, có khi nào cuộc sống của cậu quá bình yên, chẳng có gì bận tâm hay cậu không muốn nói cho ai biết mà ích kỷ giữ cho riêng mình để ng khác phải quan tâm tới cậu nhiều hơn. Nhưng cũng có thể chắc chắn rằng cậu chỉ coi tớ là bạn là xã giao,bạn bè bình thường, không phải là bạn thân hay là bạn tốt.  Nhưng dù cậu có mạnh mẽ đến đâu thì cậu vẫn cần lắm một ai đó để có thể chia sẻ mọi điều và chỉ cho cậu nên làm gì, cậu sai chỗ nào.Mà thôi kệ.hj, nói ra thì bảo tớ nói nhiều 
+Có lần tớ nói cậu sẽ up mỗi ngày một truyện ngắn lên wall cho tớ đọc chứ, cậu uhm rồi. thế mà được mỗi một lần.
+Cậu vẫn quan tâm tới tớ và tớ cũng thế. Nhưng tớ và cậu vẫn là một mối quan hệ không tên, không phải là tình bạn nhưng cũng chưa đủ để nói là tình yêu. Thời gian gần đây, tớ bận ôn thi học kỳ ở trường, còn cậu thì bắt đầu ôn thi Đại học. Chẳng còn nhiều thời gian mà nhắn tin nữa. Thế mà thỉnh thoảng tớ lên face vẫn thấy cậu post stt, toàn những stt tâm trạng, tại sao cậu không nhắn tin cho tớ. Cậu không nhớ tớ à và đọc những stt đó, tớ chợt nhận ra rằng hình như cậu không có tình cảm gì với tớ thì phải. Tớ không thể cứ mãi thích một người mà người đó không thích mình, xung quanh tớ cũng có ai đó, quan tâm tớ, lo lắng cho tớ nhưng tớ lại luôn tỏ ra thờ ơ, lạnh lùng cũng chỉ vì cậu mà thôi. 
+Cậu luôn chê tớ trẻ con mà cậu cũng có lớn hơn ai chứ. Bề ngoài tớ tạo cho mình một con người mạnh mẽ, luôn cười trước mặt mọi người. Nhưng có ai biết được rằng mỗi khi về tới phòng trọ tớ lại thấy cô đơn, đến đêm ngủ không ít lần tớ khóc vì nhớ cậu, vì tất cả những gì mà cậu đã đối xử với tớ. Tớ sống nội tâm nhưng cậu cũng vậy mà. Chúng ta thuộc cung Song Ngư nhưng tớ lại không thể hiểu được con người cậu. Mỗi khi nhớ cậu là tim tớ lại nhói đau, đi học trên xe bus hay đi trên đường ai đó nhắc đến tên cậu tớ cũng quay lại nhìn rồi mỉm cười mà lòng đau nhói. Tớ ghét cái cảm giác ấy và tớ ghét cả cậu nữa. Tại sao người đầu tiên tớ có những cảm giác đó lại là cậu chứ, nó đơn phương, đúng không cậu? tớ không biết cậu nghĩ gì về tớ nữa nhưng bây giờ tớ thực sự mệt mỏi lắm rồi, tớ không muốn khóc, không muốn đau vì cậu nữa. Nhưng khó quá cậu à, tớ đã thử nhiều lần nhưng tớ đều không làm được. Cậu hãy nói suy nghĩ của cậu đi……..tớ nhớ cậu . Và tớ yêu cậu mất rồi. 
+Mà cậu này, một năm nữa, chúng ta có gặp nhau không nhỉ? Có đi thăm Lăng Bác, đi công viên nước, đi sở thú, đi ăn kem cùng nhau không cậu? Và cậu sẽ hát cho tớ nghe nữa chứ???
+----ad Cá he0---- Hội những người cung Song Ngư

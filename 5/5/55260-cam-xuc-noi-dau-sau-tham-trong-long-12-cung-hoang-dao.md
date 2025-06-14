@@ -1,0 +1,60 @@
+---
+title: "Cảm xúc Nỗi đau sâu thẳm trong lòng 12 cung hoàng đao"
+date: 2025-06-13T15:18:33Z
+slug: cam-xuc-noi-dau-sau-tham-trong-long-12-cung-hoang-dao
+draft: false
+---
+
+## Cảm xúc Nỗi đau sâu thẳm trong lòng 12 cung hoàng đao
+
+## Snake19
+
+BẠCH DƯƠNG :
+
+- Nhìn bề ngoài mà nói, Bạch Dương rất vui vẻ hòa đồng, nhưng đến lúc buồn bã lại im lặng đến lạ thường, tự mình chữa trị vết đau, tự mình hồi phục, tự mình cố gắng để quên đi nỗi đau của bản thân. Trái tim Bạch Dương một khi đã bị thương thì sẽ làm ra những việc hoàn toàn ngược lại với hằng ngày. Đừng nhìn Bạch Dương lúc nào cũng hi hi ha ha cười thoải mái, nhưng thực ra họ cũng có lúc rất bi quan đấy.
+
+ KIM NGƯU :
+
+- Kim Ngưu lấy “hiện thực, tính toán, tiền tài, bảo thủ” làm đầu, thực ra Kim Ngưucó lúc cũng rất lãng mạn và ngây thơ. Chỉ cần gặp phải tình yêu thực thụ của mình là rất dễ xấu hổ, nhưng có đánh chết cũng không nhận. Bởi lẽ tác phong của họ rất cẩn thận, dễ khiến người khác cảm thấy tâm trạng của họ là rất tốt nhưng thực tế thì lại không phải, họ yếu mềm nhưng lại rất trách nhiệm. Sau khi bị tổn thương đều tự lừa dối bản thân, họ cần những người hiểu họ, cho họ sự quan tâm và yêu thương.
+
+ SONG TỬ :
+
+- Song Tử thường do dự, đa nghi, quan trọng thái quá thực tế, khôn vặt, không muốn nói chuyện với người khác về chuyện của bản thân. Song Tử đa phần sẽ hạn chế tối đa bí mật của bản thân, thực ra họ bình tĩnh, kiên định giống như sắt bị đập mà không méo. Song Tử nhìn thì rất chín chắn,thực tế thì lại không có nhiều kinh nghiệm sống, không có sự đeo đuổi mãnh liệt. Nhưng họ lại nguyện chờ đợi với tấm lòng chân thật. Coi như có biết rằng thời gian đã trôi qua rất nhanh nhưng Song Tử cũng chỉ duy trì sự im lặng và ngụy trang cho sự cô đơn kiêu ngạo của mình. Điều Song Tử sợ nhất chính là bị tổn thương, nên họ đều lấy phương pháp sống của bản thân đặt vào góc độ của trái tim mà nhìn ra, có người nói chỉ cần tỏ tình với Song Tử thôi cũng khiến họ cả đời không quên.
+
+ CỰ GIẢI :
+
+- Cự Giải là một cung rất có sức hút, có một số Cự Giải bị người khác phát hiện là nhát gan, muốn trốn tránh, tính cách cố chấp, thực ra họ mang trên mình một bề ngoài cứng chắc nhưng tâm hồn lại vô cùng yếu đuối. Họ có một ý thức bảo về bản thân rất mãnh liệt, tính cách lương thiện, không biết từ chối, không muốn nói không với đối phương, Cự Giải sẽ âm thầm toàn tâm toàn ý trao trọn tình yêu. Họ sẽ thấu hiểu được hết nỗi buồn của những người bạn, nhưng tuyệt đối đừng biến họ thành một người giải sầu đa năng, trái tim của của Cự Giải đôi lúc cũng cần người quan tâm và thấu hiểu đấy nhé!
+
+ SƯ TỬ :
+
+- Sư Tử rất đặc biệt chính là khiến người khác cảm thấy rằng họ rất kiêu, hơi cứng về việc thể hiện tình cảm, có chút sĩ diện, có một số người còn cho rằng Sư Tử khiến người ta không biết phải làm thế nào để tiếp xúc được. Vậy thì tôi chỉ có thể nói rằng, nếu bạn nghĩ Sư Tử như vậy có nghĩa là bạn không hiểu một chút gì về Sư Tử cả, họ rất thương người, chỉ cần bị tổn thương thì Sư Tử sẽ rất bi quan, suy nghĩ lung tung, nhưng lại làm ra vẻ là rất đỗi bình thường. Hơn nữa Sư Tử rất hay nhận trách nhiệm về mình, họ không muốn làm tổn hại đến người khác, nếu như lỡ làm tổn hại người khác, họ sẽ tự trách bản thân mình cho đến ngày tận thế của thế giới cũng không cách nào cứu chữa.
+
+ XỬ NỮ :
+
+- Xử Nữ làm việc rất điên cuồng, kén chọn và có chút cẩn thận quá. Người máy móc là biệt hiệu mà mọi người đặt cho Xử Nữ, thực ra theo đuổi sự hoàn mỹ hoặc tính cách ưa sạch sẽ đều là những áp lực cuộc sống tinh thần xung quanh Xử Nữ tạo ra cho họ. Xử Nữ có một trái tim nhạy cảm lại yếu ớt, chỉ cần gặp phải đau khổ họ sẽ khiến bản thân đau cho đến chết hoặc mượn rượu giải sầu. Cái mong ước tự bảo vệ lấy bản thân của Xử Nữ lúc này đã bị hạ xuống đến 0, nhìn quen họ với những mặt mạnh, nhưng chỉ cần lột bỏ mặt nạ xuống tự khắc sẽ lộ ra mộtcon người yếu đuối, cần người khác đến bảo vệ và cho họ một cảm giác an toàn.
+
+ THIÊN BÌNH :
+
+- Nói đến Thiên Bình mọi người đều sẽ nghĩ đến trai thanh gái đẹp, một người của công chúng. Đúng là như vậy, diện mạo của Thiên Bình cao sang, tính cách ôn hòa, tiếp xúc với họ bạn có thể sẽ cảm thấy tính cách của họ không bao giờ bị cực đoan, nhưng nhìn Thiên Bình quả quyết là vậy thực ra cũng rất tự ti, làm việc gì cũng do dự không dứt khoát. Nếu bạn là một người hiểu họ thì bạn sẽ biết cái gì là thực sự bi quan nhất. Lúc buồn bã, mọi việc của tương lai Thiên Bình đều không dám nghĩ đến, đau khổ này tiếp đau khổ khác, cuộc sống biến thành màu xám xịt không biết phải đi tiếp thế nào nữa.
+
+ THẦN NÔNG :
+
+- Thần Nông ngoài mặt hòa hảo nhưng không biết trong lòng họ nghĩ những gì, họ là thuộc người mang nhiều mặt, máu lạnh….tất cả những viên đạn nặng nhất đều bị mọi người cho là rơi vào Thần Nông. Nhưng bi thương của Thần Nông thì rất ít người cảm nhận được, bởi vì sự kiên cường và cứng đầu của Thần Nông đã che lấp tất cả. Thần Nông có thể nói là một tiêu biểu của những người đau thương, bản tính yếu mềm đến tận xương tủy bị lấp đi bởi tính cách mạnh mẽ khiến Thần Nông sau khi bị tổn thương càng thêm khó chịu, rất khó để cân bằng, càng đau thì họ lại càng dùng cái đuôi độc của mình để làm tổn thương bản thân, tổn thương chính người mình yêu thương. Hi vọng những người ở bên cạnh Thần Nông sẽ biết trân trọng họ bởi họ không phải là người không có trái tim thương người chỉ là họ chọn đau thương đẻ làm phương thức thể hiện yêu thương.
+
+ NHÂN MÃ :
+
+- Nhân Mã có thể nói là một người rất có cá tính, thích mới nới cũ, dễ dãi, dục vọng lớn đến mức có lúc bị mù quáng và thỉnh thoảng hờn giận vặt, thực ra hình dạng nửa người nửa thú được gọi là sự tiến hóa của nguyên thủy, nhưng tính cách của Nhân Mã lại hoàn toàn là một đứa trẻ, rất dễ kết luận chỉ sau ấn tượng đầu tiên, nên chia chia hợp hợp hoặc một kết quả không có sự bắt đầu là chuyện thường thấy. Nhân Mã rất khó khiến người ta liên tưởng đến bi quan, nhưng đừng có vội chỉ quan tâm đến mặt này của Nhân Mã, đau thương tiếp sau sẽ khiến Nhân Mã hoàn toàn bị chôn vùi. Vẻ mặt lạc quan yêu đời nhưng lại bị cô đơn
+
+ MA KẾT :
+
+- Ma Kết là một tượng trưng cho sự kiên nhẫn. Nhẫn nại và đau thương là chỉ số rất cao trong Nhân Mã. Tình bạn và tình yêu đủ để đạt đến một cái kết khó có thể tưởng tượng ra được, không vứt bỏ, không chia lìa, cho dù không phải là tình yêu của đối phương nhưng cũng vẫn vấn vương không dứt. Ma Kết thẳng thắn khiến lộ ra rất nhiều mặt mềm yếu, cũng hạn chế không được những bi quan ông trời tạo ra cho Ma Kết. Nếu như yêu Ma Kết, bạn sẽ nhận được một sự ấm áp và một tình yêu vĩnh hằng, nếu như bạn không yêu Ma Kết, họ sẽ âm thâm đem đến cho bạn tự do và tương lai mà bạn hằng mơ ước.
+
+ BẢO BÌNH :
+
+- Bảo Bình theo đuổi cuộc sống của bản thân, mang một chủ nghĩa cá nhân muôn màu muôn vẻ, tính cách đặc biệt, đôi lúc sẽ lộ ra những cái hơi vô tâm. Nếu bên cạnh bạn có một Bảo Bình bác ái, bạn sẽ phát hiện thứ gì là thực sự khó để chạm được vào nhất. Bảo Bình rất coi trọng bí mật, cẩn thận với mọi việc, rất khó có tiếng sét ái tình. “Xa” là Bảo Bình định nghĩa cho tình cảm, họ lạnh nhạt không muốn đi sâu vào đời tư người khác. Thực tế tâm trạng của họ cũng thường bị đảo lộn và bí bách, đối với những vết đau của quá khứ khó có thể quên, Bảo Bình dễ bị tan vỡ tuy rằng tôn sùng tự do nhưng nhất nhất không thể từ bỏ được tình yêu cũ.
+
+ SONG NGƯ :
+
+- Song Ngư trước giờ không che đậy sự mềm yếu và u uất của bản thân, có lúc họ nhút nhát có lúc lại nín nhịn. Nhưng lúc gặp phải bất cứ chuyện gì đa phần đều biểu hiện ra sự kiên cường, họ không cam tâm tình nguyện hi sinh cho tình yêu. Một Song Ngư tâm tư có thể sẽ khiến người xung quanh bị mê hoặc nhưng đừng vì thế hiểu nhầm họ. Hãy thấu hiểu cái đau thương của họ và chia sẻ nhé.
+
+St

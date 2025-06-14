@@ -1,0 +1,13 @@
+---
+title: "Từ điển động từ đi với giới từ OF, TO, FOR"
+date: 2025-06-13T14:07:47Z
+slug: tu-dien-dong-tu-di-voi-gioi-tu-of-to-for
+draft: false
+---
+
+## Từ điển động từ đi với giới từ OF, TO, FOR
+
+## carnation V3
+
+From HCD with love​ ​Từ điển động từ đi với giới từ OF, TO, FOR ​ ​1.OF ​ ​Ashamed of : xấu hổ về… ​Afraid of : sợ, e ngại… ​Ahead of ; trước ​Aware of : nhận thức ​Capable of : có khả năng ​Confident of : tin tưởng ​Doublful of : nghi ngờ ​Fond of : thích ​Full of : đầy ​Hopeful of : hy vọng ​Independent of : độc lập ​Nervous of : lo lắng ​Proud of : tự hào ​Jealous of : ganh tỵ với ​Guilty of : phạm tội về, có tội ​Sick of : chán nản về ​Scare of : sợ hãi ​Suspicious of : nghi ngờ về ​Joyful of : vui mừng về ​Quick of : nhanh chóng về, mau ​Tired of : mệt mỏi ​Terrified of : khiếp sợ về ​ ​2.TO ​ ​Able to : có thể ​Acceptable to : có thể chấp nhận ​Accustomed to : quen với ​Agreeable to : có thể đồng ý ​Addicted to : đam mê ​Available to sb : sẵn cho ai ​Delightfull to sb : thú vị đối với ai ​Familiar to sb : quen thuộc đối với ai ​Clear to : rõ ràng ​Contrary to : trái lại, đối lập ​Equal to : tương đương với ​Exposed to : phơi bày, để lộ ​Favourable to : tán thành, ủng hộ ​Grateful to sb : biết ơn ai ​Harmful to sb (for sth) : có hại cho ai (cho cái gì) ​Important to : quan trọng ​Identical to sb : giống hệt ​Kind to : tử tế ​Likely to : có thể ​Lucky to : may mắn ​Liable to : có khả năng bị ​Necessary to sth/sb : cần thiết cho việc gì / cho ai ​Next to : kế bên ​Open to : cởi mở ​Pleasant to : hài lòng ​Preferable to : đáng thích hơn ​Profitable to : có lợi ​Responsible to sb : có trách nhiệm với ai ​Rude to : thô lỗ, cộc cằn ​Similar to : giống, tương tự ​Useful to sb : có ích cho ai ​Willing to : sẵn lòng ​ ​3.FOR ​ ​Available for sth : có sẵn (cái gì) ​Anxious for, about : lo lắng ​Bad for : xấu cho ​Good for : tốt cho ​Convenient for : thuận lợi cho… ​Difficult for : khó… ​Late for : trễ… ​Liable for sth : có trách nhiệm về pháp lý ​Dangerous for : nguy hiểm… ​Famous for : nổi tiếng ​Fit for : thích hợp với ​Well-known for : nổi tiếng ​Greedy for : tham lam… ​Good for : tốt cho ​Grateful for sth : biết ơn về việc… ​Helpful / useful for : có ích / có lợi ​Necessary for : cần thiết ​Perfect for : hoàn hảo ​Prepare for : chuẩn bị cho ​Qualified for : có phẩm chất ​Ready for sth : sẵn sàng cho việc gì ​Responsible for sth : có trách nhiệm về việc gì ​Suitable for : thích hợp ​Sorry for : xin lỗi / lấy làm tiếc cho​ 
+Kenhdaihoc.com

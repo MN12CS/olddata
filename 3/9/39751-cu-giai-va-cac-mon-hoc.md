@@ -1,0 +1,12 @@
+---
+title: "Cự Giải và các môn học"
+date: 2025-06-13T01:34:13Z
+slug: cu-giai-va-cac-mon-hoc
+draft: false
+---
+
+## Cự Giải và các môn học
+
+## Fiona Dao
+
+Cự Giải và các môn học ​ ​​ ​ ​Theo Toán học: Cự Giải là một mệnh đề đã có điều kiện cần là NHỮNG NGƯỜI XUNG QUANH CỰ GIẢI nhưng chưa có điều kiện đủ là HIỂU HẾT VỀ CỰ GIẢI nên vẫn chưa thể xác định được tính chất đúng sai.​ ​Theo Sử học: Cự Giải là một trận chiến lớn, day dưa, giằng co và không bao giờ kết thúc giữa một bên lý trí và một bên tình cảm.​ ​Theo Vật lý học: Dòng điện xoay chiều Cự Giải là dòng điện có tính cách cùng tâm tình thay đổi theo thời gian và không tuân theo bất kỳ quy luật tuần hoàn nào cả.​ ​Theo tâm lý học: Cự Giải là một hội chứng yêu gia đình và cuồng việc tự kỉ.​ ​Theo địa lý: Cự Giải là một khoáng vật vô giá nằm sâu bên trong vùng đất TÂM HỒN phải dùng một mũi khoan bằng sự KIÊN NHẪN & CHÂN THÀNH mới có thể chạm đến được những hiện nay có rất ít người tìm được.​ ​Theo dân số học: Cự Giải là những ông bố bà mẹ tuyệt vời giúp nâng cao chất lượng cuộc sống của gia đình.​ ​Theo hóa học: Cự Giải là một chất không màu, có mùi, vị thì chưa nếm qua, nằm nơi ngõ ngách gì gì đó trong bảng tuần hoàn, là một chất trơ ở điều kiện bình thường nhưng dưới tác dụng của chất xúc tác, nhiệt độ,… sẽ phản ứng mãnh liệt.​ ​Theo sinh học: Cự Giải là một hiện tượng đột biến gen: Người mà mang bản chất của loài Cua.​ ​Theo mỹ thuật học: Cự Giải là một tác phẩm nghệ thuật xuất sắc theo trường phái “trừu tượng không tưởng” mà đòi hỏi người xem phải có óc phán đoán và trái tim mẫn cảm mới có thể cảm nhận được.​ ​Theo triết học: Cự Giải là một mâu thuẫn khách quan mà chưa ai tìm ra được lời giải thích, ngay cả bản thân Cự Giải cũng không rõ.​ ​Theo tội phạm học: Cự Giải là một bè đám tội phạm đặc biệt nguy hiểm và láu cá nhưng trẻ con, chỉ toàn ném đá giấu tay và có thể rất tàn nhẫn giết người bằng lời nói, nhưng bản chất vốn là hiền lành, lương thiện do bị ép buộc hoặc có lý do gì gì đó…​ ​Theo y học: Cự Giải là căn bệnh mà triệu chứng của nó là thất thường, ngang bướng, cố chấp nhưng đáng yêu. Không chỉ thế Cự Giải còn là một phương thuốc đặc biệt công hiệu dành cho một số người đặc biệt.​ ​Nguồn : Hội những người cung Cự Giải (Cancer)​

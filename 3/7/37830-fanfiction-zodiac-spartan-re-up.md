@@ -1,0 +1,86 @@
+---
+title: "[Fanfiction] Zodiac Spartan [Re-up]"
+date: 2025-06-13T00:56:14Z
+slug: fanfiction-zodiac-spartan-re-up
+draft: false
+---
+
+## [Fanfiction] Zodiac Spartan [Re-up]
+
+## NeroSquall
+
+Tên truyện: ZodiacSpartan​Tác giả: Nero Squall​Disclaimer: 12 chòm sao không thuộc về TG, nhưng số phận thì có.​Thể loại: Hành động, tình cảm, hài.​Rating: [M]​Tình trạng: Posting​Tốc độ Post: 2 tuần/chap (Đang làm đồ án tốt nghiệp TwT) ​Nội dung: Nói về cuộc chiến của loài người và Covenant​Nơi thảo luận truyện (Spamzone): http://forum.matngu12chomsao.com/threads/zodiac-spartan-spamzone.37989/​ ​--------------------------------------------------------------------------------------------------------------------------------​Zodiac Spartan Chapter 1​Zodiac Spartan Chapter 2​Zodiac Spartan Chapter 3​Zodiac Spartan Chapter 4​Zodiac Spartan Chapter 5​Zodiac Spartan Chapter 6​Zodiac Spartan Chapter 7​Zodiac Spartan Chapter 8​Zodiac Spartan Chapter 9​Zodiac Spartan Chapter 10​Zodiac Spartan Chapter 11​Zodiac Spartan Chapter 12​Zodiac Spartan Chapter 13​Zodiac Spartan Chapter 14​Zodiac Spartan Chapter 15​Zodiac Spartan Chapter 16​Zodiac Spartan Chapter 17​Zodiac Spartan Chapter 18​Zodiac Spartan Chapter 19​Zodiac Spartan Chapter 20​Zodiac Spartan Chapter 21​Zodiac Spartan Chapter 22​Zodiac Spartan Chapter 23​Zodiac Spartan Chapter 24​Zodiac Spartan Chapter 25​Zodiac Spartan Chapter 26​Zodiac Spartan Chapter 27​Zodiac Spartan Chapter 28​ Zodiac Spartan Chapter 29​--------------------------------------------------------------------------------------------------------------------------------​ ​Zodiac Spartan​(Profile + Picture)​ ​Tên: Bạch Dương
+Tuổi: 25
+Giới Tính: Nam
+Sơ lược: Là một SPARTAN có nhiều kinh nghiệm trận mạc và chính kinh nghiệm là thứ giúp anh vẫn còn tồn tại cho tới bây giờ một chiến binh SPARTAN xuất sắc, anh là người duy nhất trong đội sở hữu thể lực lúc bình thường ngang ngửa với các SPARTAN lúc mặc giáp MJOLNIR, trên chiến trường anh cùng Kim Ngưu kết thành một đôi Tanker bất khả chiến bại, vũ khí ưa thích của anh là Combat Shotgun.
+ 
+ ​ ​Tên: Kim Ngưu
+Tuổi: 25
+Giới Tính: Nam
+Sơ lược: Trong đội, anh chàng to con này được ví như một chiếc xe tăng hạng nặng, hay một tường thành vững chắc bảo vệ cho những thành viên khác, được trang bị giáp hạng nặng đặc biệt được chế tạo riêng kèm theo Khẩu đại liên mà trong đội chỉ mình anh vác nổi. Với hỏa lực này anh chàng này đã gây nên những cơn ác mộng cho phe Covenant.
+ 
+ ​ 
+Tên: Song Tử
+Tuổi: 25
+Giới Tính: Nam
+Sơ lược: Là một ODST nhưng sở trường của anh không phải là chiến đấu mà là Hacking, Song Tử có thể Hack gần như 100% công nghệ của Covenant, anh còn có cả khả năng Hack cả những con Robot của phe Covenant từ xa làm cho chúng nổi điên tấn công lại phe Covenant và sau đó tự hủy vì vậy mà không ít lần mà nhờ Song Tử nên cả nhóm SPARTAN mới có thể sống sót trở về, vũ khí ưa thích là cây súng lục chuyên dùng của ODST.
+ 
+ ​ 
+Tên: Cự Giải
+Tuổi: 20
+Giới Tính: Nữ
+Sơ lược: Là một ODST sự có mặt của cô trong đội được ví như “nữ thần”, cô thuộc vào nhóm quân nhân có siêu năng lực và siêu năng lực của cô chính là chữa lành vết thương, chính điều này đã làm tăng tính “liều mạng” của cả đội (bị thương thì có cua chữa mà) nhưng vết thương càng nặng càng tốn nhiều sức lực và thời gian để chữa lành, bên cạnh đó nếu cố sức chữa lành những vết thương nặng mà thể lực không đủ có thể lấy đi sinh mạng của cô, vũ khí của cô là cây súng lục tự động chuyên dùng của ODST .
+ 
+ ​ ​ 
+Tên: Sư Tử
+Tuổi: 19
+Giới Tính: Nữ
+Sơ lược: Em út Sư Tử là một phi công sở hữu kỹ năng lái máy bay thuộc hàng “ảo” của đội Zodiac Spartan, tuy hơi “ồn ào” nhưng sự có mặt của Sư Tử lúc nào cũng đúng lúc đúng chỗ kèm theo hỏa lực mà cô đem theo đủ để san bằng một ngôi làng “nho nhỏ”, cô sẵn sàng bay vào nhưng vùng tưởng chừng như là không thể để làm nhiệm vụ cũng như giải cứu đồng đội.
+ 
+ ​ 
+Tên: Xử Nữ
+Tuổi: 24
+Giới Tính: Nữ
+Sơ lược: Là hoa khôi trong số ít những SPARTAN nữ, cũng như là đội phó của Zodiac Spartan, chị nuôi của Thiên Yết , cô chuyên lãnh những nhiệm vụ trinh sát vẽ bản đồ, khả năng của cô đã hỗ trợ rất nhiều cho Ma Kết trong việc triển khai chiến thuật cũng như tìm ra con đường rút an toàn nhất cho cả đội, cô và Ma Kết đã nhiều lần vào sinh ra tử cùng nhau nên cả hai có mối “liên kết” rất lớn, vũ khí của cô là Sniper Rifle, khẩu súng
+với một luật lệ bất thành văn là “One Shot One Kill”.
+ 
+ ​ 
+Tên: Thiên Bình
+Tuổi: 23
+Giới Tính: Nữ
+Sơ lược: Là người dõi theo từng bước chân của đội Zodiac Spartan trên tàu không gian UNSC Valkyrie, từng là một ODST nhưng trong một trận tập kích của Convenant cô đã bị thương và mất khả năng đi lại và hiện giờ cô là đô đốc của tàu UNSC Valkyrie, cô có nhiệm vụ truyền đạt mệnh lệnh từ cấp trên xuống cho Zodiac Spartan và phổ biến nhiệm vụ cho Ma Kết, và nếu được Ma Kết yêu cầu cô có thể dùng Obital Cannon (Pháo bắn từ ngoài khí quyển vào) có chính xác cao và sức công phá cũng được xếp vào loại “top”.
+ ​ 
+Tên: Thiên Yết
+Tuổi: 20
+Giới Tính: Nam
+Sơ lược: Là một cậu bé bình thường sống trong một gia đình trung lưu, yếu đuối hay bệnh tật nhưng từ khi chính mắt nhình thấy gia đình mình bị Covenant sát hại cậu đã thay đổi, tình nguyện tham gia vào chương trình đào tạo các SPARTAN, xém mất mạng mấy lần do chương trình huấn luyện khắc nghiệt và nhất là những lần bài xích thuốc của những lần chích thuốc kích thích tiềm năng, đau đớn đến tận xương tủy. Nhưng do lòng căm thù với Covenant cậu đã vượt qua và trở thành một SPARTAN xuất sắc nhất trong việc chiến đấu ở cự ly trung bình và cận chiến. Vũ khí của Thiên Yết có thể là bất cứ thứ gì kể cả tay không.
+ 
+ ​ 
+Tên: Nhân Mã
+Tuổi: 20
+Giới Tính: Nữ
+Sơ lược: Thiên tài nhưng ham chơi, lo chơi hơn lo làm nhưng lại sở hữu một bộ óc có IQ là 230, là tiến sĩ trẻ tuổi nhất trong UNSC được UNSC tin tưởng giao cho việc chế tạo áo giáp cũng như vũ khí cho Zodiac Spartan, rất ít khi chịu làm việc nhưng một khi đã làm thì toàn chế ra “bảo bối” giúp bảo vệ tính mạng cho các SPARTAN
+ 
+ ​ 
+Tên: Ma kết
+Tuổi: 25
+Giới Tính: Nam
+Sơ lược: Được tuyển chọn làm SPARTAN từ năm 6 tuổi và được đào tạo bài bản từ UNSC, Ma Kết sở hữu một đầu óc chiến lược hơn người điều đó khiến anh được giao cho trọng trách lãnh đạo nhóm Zodiac Spartan, chính nhờ tài chiến lược đó mà nhiều lần anh đã giúp cho cả đội mình sống sót và hoàn thành những nhiệm vụ có tỷ lệ tử vong là 100% . Vũ khí ưa thích của anh là Marsman Rifle.
+ 
+ ​ ​ ​ ​ ​ ​ 
+Tên: Bảo Bình
+Tuổi: 24
+Sơ lược: Là một ODST kỹ sư, anh có nhiệm vụ sửa chữa phương tiện, đảm bảo chúng luôn sẵn sàng mọi lúc, nhưng về mặt chiến đấu của anh chàng này cũng không thể xem thường, chiếc cặp sau lưng anh không chỉ để chứa dụng cụ mà khi cần thiết anh có thể nhấn nút biến nó thành một con Rôbốt được trang bị vũ khí tận răng.
+ ​ ​ 
+Tên: Song Ngư
+Tuổi: 20
+Sơ lược: Là một cô gái đa nhân cách chung đội ODST với Cự Giải, nếu nói cự giải là “nữ thần chữa lành mọi vết thương” thì với Song Ngư thì lại khác, sở hữu siêu năng lực dịch chuyển đồ vật bằng ý nghĩ cô có thể bóp nát bất cứ thứ gì trong vòng bán kính 10m, lúc nhân cách Bạch Ngư hiện hữu cô rất nhút nhát và hiền lành, nhưng lúc Hắc Ngư giá lâm thì cô rất nổi loạn và tinh ranh. Hắc Ngư trong một lần nổi giận đã dùng siêu năng lực bóp nát cả một chiến thuyền loại trung của Covenant.
+ 
+ 
+ ​ ​P/S: Tất cả các SPARTAN trong truyện này đều là SPARTAN III (SPARTAN thế hệ thứ III)​ ​ ​ ​SPARTAN​ ​Được mệnh danh là những “Siêu Chiến Binh” trong quân đội UNSC và là “Demon” trong đế chế Covenant. Họ được trải qua các kì huấn luyện gắt gao, cường độ lớn suốt hàng năm trời, đặc biệt với SPARTAN II và SPARTAN III là huấn luyện từ nhỏ. Thêm vào họ còn được tiêm thuốc để tăng cường khả năng thể chất, việc này đã khiến cho quân số từ lúc bắt đầu tham gia huấn luyện cho đến khi hoàn tất huấn luyện giảm sút đáng kể, cơ thể họ không thích ứng được với thuốc khiến họ bị tàn phế hoặc chết. SPARTAN được xem là nguồn động lực, niềm tin chiến thắng của quân đội vì vậy cái chết của Spartan luôn bị che giấu và đặt tình trạng M.I.A. (Miss in Action – Mất tích trong chiến tranh) thay vì là K.I.A. (Killed in Action – Chết trong chiến tranh)​ 
+ ​ ​UNSC - United Nation Space Command - Tổ Chức Chỉ Huy Không Gian Liên Hợp Quốc​ ​Bộ chỉ huy vũ trụ liên hợp quốc (UNSC-United Nations Space Command) là một nhánh của chính phủ liên hợp quốc hoạt động trong lãnh vực quân sự, thăm dò và khoa học. UNSC được thành lập vào năm 2160, khoảng thời gian những tư tưởng văn hoá cũ còn tồn dư và tranh giành quyền lực trong hệ mặt trời. UNSC phục vụ chủ yếu như một đơn vị giám sát các hoạt động quân sự của liên hợp quốc trong vũ trụ. Sau sự thông báo về việc thành lập một tổ chức quân sự khổng lồ ở mọi nơi con người có mặt, thông qua UNSC liên hợp quốc đã lần lượt đánh bại hai đảng phái: Cộng Sản và Phát Xít trong một cuộc xung đột nhiều năm được chủ yếu biết đến với cái tên: Chiến tranh liên hành tinh - Interplanetary War, cuộc xung đột này bao gồm nhiều cuộc chiến nằm rải rác ở sao Hoả, các mặt trăng của sao Mộc và rừng mưa Nam Mỹ. Dù vậy cuộc chiến này vẫn mang lại một sự thống khổ to lớn đè nặng lên dân số ở Trái Đất và các thuộc địa của con người. Nhưng nó cũng đã liên kết các đội quân của con người làm thành một đội quân hoàn chỉnh và thống nhất vào cuối thế kỉ 22.​ ​ ​ ​ODST - Orbital Drop Shock Trooper – Đội Phản Ứng Nhanh Chuyên Đột Kích Từ Ngoài Quỹ Đạo​ ​Trong hàng ngũ quân đội UNSC, họ đã từng có một thời gian chinh chiến cùng các chiến binh SPARTAN và đóng góp không ít công sức vào những chiến thắng của lực lượng này. Mặc dù không có được những khả năng chiến đấu phi thường như những chiến binh SPARTAN nhưng các thành viên của biệt đội ODST đều đã phải trải qua một khóa huấn luyện vô cùng ngặt nghèo không kém gì các SPARTAN.​ ​Covenant​ ​Covenant là tổ chức điều hành tôn giáo của nhiều loài sinh vật ngoài hành tinh khác nhau, nắm quyền điều khiển một khu vực không gian rộng lớn trong dải ngân hà Milky Way. Đặc biệt hơn,chính phủ của chúng là một loạt các cấp vụ chính trị tôn giáo, chúng có một hệ thống các giai cấp và được lãnh đạo bởi những cá thể đơn lẻ. Chính chúng đã thúc đẩy chiến dịch diệt chủng chống lại loài người trước khi bị đánh bại bởi nhiều nguyên nhân mà điểm nhấn lớn nhất là sự xung đột nội bộ. Sau khi bị đánh bại bởi đội quân của UNSC và Covenant Separatist, có vẻ những thành viên còn lại của Covenant đã trở về hành tinh quê hương của chúng cũng như tổ chức này hoàn toàn bị tan rã.​ 
+​ 
+MJOLNIR ARMOR​ ​Bước tiến lớn nhất của chương trình SPARTAN-II so với các chương trình đào tạo siêu chiến binh trước đó là phát minh của bộ giáp MJOLNIR. Trong thần thoại Bắc Âu, MJOLNIR là tên của một trong những loại vũ khí ghê gớm nhất - chiếc búa sấm sét của thần Thor. Trong thế giới của Halo, bộ giáp này giữ một vai trò không hề nhỏ trong khả năng chiến đấu của những chiến binh SPARTAN. Nó có thể tăng cường một cách đáng kể cả sức mạnh, tốc độ, sự linh hoạt lẫn khả năng phản ứng của người sử dụng. Không chỉ vậy, lớp giáp năng lượng có khả năng tự phục hồi của MJOLNIR là một trong những yếu tố khiến các chiến binh SPARTAN-II có thể chống chịu lại hỏa lực kinh hoàng của loài Covenant. Tuy nhiên, phát minh tối tân nhất này của con người lại không phải là một thứ mà bất cứ quân nhân nào cũng được trang bị. Để thiết kế ra một thiết bị tiên tiến như vậy, chính phủ phải tiêu tốn một khoản tiền tương đương với việc chế tạo một phi thuyền cỡ nhỏ. Không chỉ vậy, bên trong bộ giáp này cũng có chứa nhiều vật chất nguy hiểm có khả năng gây sát thương nặng đối với người bình thường. Chỉ những chiến binh SPARTAN-II với khung xương được kích thích phát triển mới có thể “vác” được “tảng kim loại” nặng nửa tấn này.​ 
+Vũ Khí
+ 
+​

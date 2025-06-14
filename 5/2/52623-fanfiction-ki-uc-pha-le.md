@@ -1,0 +1,12 @@
+---
+title: "[Fanfiction] Kí ức pha lê"
+date: 2025-06-13T13:49:11Z
+slug: fanfiction-ki-uc-pha-le
+draft: false
+---
+
+## [Fanfiction] Kí ức pha lê
+
+## peheongoc
+
+​ ​~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~​ ​Title: [Fanfiction] kí ức pha lê.​ ​ ​Author: Piu​ ​ ​Disclaimer: Nhân vật không thuộc về tác giả, nhưng tôi muốn cho ai chết thì do tôi quyết định.​ ​ ​Rating: T​ ​ ​Genre: Humor, High school, Drama, Romance.​ ​ ​Length: longfic​ ​ ​Status: on-going.​ ​ ​~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~​ ​Warning:​ ​ ​ ♫ Không Spam hay gây War.​ ​ ​ ♫ Không xin xỏ giới tính.​ ​ ​ ♫ Nếu các bạn thấy không hay thì cứ phi gạch thoải mái, mình đã kêu mẹ chuẩn bị hòm rùi.​ ​ ​~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~​ ​ ​Summary:​ ​ ​Nửa ly nước cũng làm vơi cơn khát,​ Nửa vầng trăng cũng đủ để mộng mơ,​ Nửa sự thật không còn là sự thật​ Và tình yêu không có nửa bao giờ..​ ​Thức trắng đêm nay nhớ một người​ Một người tôi nhớ một người thôi​ Đêm nay,đêm mai..đêm mai nữa...​ Tôi nhớ một người không nhớ tôi..​ ​ Thôi tim ạ...nín đi đừng khóc nữa​ Bởi tình yêu không chọn lựa được đâu​ Cũng như ai...tôi từng có nỗi đau​ Cũng mềm lòng vì những câu họ nói.​ ​ Đắng cay nhờ gió , cuốn đi rồi​ Nổi nhớ niềm thương , rồi cũng nguôi​ Vùi chôn đau đớn , cùng quá khứ​ Vửng bước đi qua , nổi đau này.​ ​ Uống cho say để quên đi tất cả​ Quên nỗi buồn,sự cô độc,cô đơn​ Chợt nhận ra trong giấc ngủ chập chờn​ Đời vô vị khi tâm hồn đã chết !​ ​Vẫn biết khóc là vô cùng mềm yếu.​Nhưng nỗi buồn biết chia sẻ cùng ai?​Nước mắt ơi cho ta mượn mi nhé.​Để giải sầu trong những lúc cô đơn!​ ​ Tại sao nước mắt lại tràn​Hi vọng quá nửa tàn phai đã đành​ Tại sao uống rượu ngàn ly​ Nhưng lại không thể quên đi một người.​ ​ ​Thêm một ngày thả nỗi nhớ đi hoang.​ Ta lang thang trên vỉa hè ký ức.​ Nhặt nỗi buồn biết niềm đau có thật.​ Và bất chợt ta cảm thấy cô đơn.!​ ​ ​Ai vẫn nhớ ai, ai có biết...​Ai thương ai nhớ, nhớ ai hoài...​Ai hay ai hiểu, tình ai đó...​Ai cứ vô tình, ai có hay...​ ​Bỗng một ngày tôi nhận ra điều đó.​ Cơn gió kia không phải của riêng tôi.​ Đó là của trời xanh và mặt đất.​ Chẳng bao giờ có thể thuộc về tôi.​ ​ ​~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~​ ​ ​ ​ ​

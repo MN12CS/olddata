@@ -1,0 +1,12 @@
+---
+title: "[Thảo luận] Vạn Kiếp Điêu Tàn"
+date: 2025-06-13T01:04:30Z
+slug: thao-luan-van-kiep-dieu-tan
+draft: false
+---
+
+## [Thảo luận] Vạn Kiếp Điêu Tàn
+
+## o0oCHAOSo0o
+
+​5 điều bạn nên biết về VKĐT​=w= LINK TRUYỆN =w=​1. Đây là tên một truyện trong box MBM, không phải ngôn tình sến súa, cũng không phải tình cảm lãng mạn hiện đại. Theo như một bạn trẻ nào đó đã com, nó giống Drama và Detective hơn 0w0.​2. Truyện có hàm chứa ba đến năm chòm sao, chủ yếu là nhân vật phụ hoặc slave của nhân vật chính. Nói thẳng ra, đây là một cái động HCS trá hình.​3. Vạn Kiếp Điêu Tàn là một chương trình được mã hóa. Không hề mang vẻ dị kì và đầy sức tưởng tượng như tên gọi, VKĐT giống một loại Virus "thân tặng" cơ quan đầu não của các chính phủ đương thời, đánh bật các FireWall mà họ cố gắng đưa ra.​4. Địa điểm trong VKĐT rất lộn xộn. Có khả năng nhiều nhất đoạn kết sẽ ở một thành phố lớn của Ý hoặc Đại Lộ Danh Vọng thuộc Hoa Kì. Một vụ xả súng đẫm máu hay những cái bắt tay thân thiện cuối cùng, tất cả còn tùy thuộc vào tác giả *cười bỉ*.​5. Không xác định nhân vật chính. Truyện giống như những mảnh ghép theo mục quang của những người đại diện cho HCSM. Một mảnh ghép không thể giúp ta hình dung toàn bộ sự việc, nhưng 10 mảnh ghép sẽ đưa ta đến kết luận sai lầm. Vì thế, không bao giờ đoán trước sự việc nếu không muốn bị troll như chong chóng bởi bạn Au *cười bỉ*.​ ​Vì sao có mục Thảo Luận này ở đây 0w0?​ ​Đơn giản và dễ hiểu, các Reader nói không hiểu.  Mình thì biết cái tính mình, viết thì văn chương từ ngữ đều ổn, cơ mà ghép lại với nhau thì đọc siêu khó hiểu, nếu không muốn nói là chẳng hiểu gì . Điều này, về chủ quan thì là do mình không bao giờ lên trước điều gì cho truyện, nghĩ cái gì viết cái đó, nên ý tưởng sắp xếp rất lộn xộn và chưa thực sự thống nhất. Nguyên nhân khách quan là sự loãng đến điên cuồng của truyện, đơn giản vì số lượng nhân vật tăng lên gấp đôi theo từng chap. Tin mình đi, có thể nó sẽ được đẩy lên đúng với số Mem HCS và thêm một vài bạn trẻ dễ mến của mình 0w0. ( Dưng nhớ đến Trăm năm cô đơn 0w0).​Nhưng nếu các bạn không thích thì cũng đơn giản thôi, mình sẽ giảm tối đa số nhân vật xuống. Điều này đồng nghĩa với việc cảnh trong truyện sẽ bị thu hẹp, giảm sự gay cấn li kì. Cũng đồng nghĩa luôn, truyện sẽ còn thêm nhiều vụ troll nữa.​ ​Yêu cầu​Không SPAM. Không nổi máu anh hùng bàn phím.​ ​Cháo Sò thăng .​ ​ ​

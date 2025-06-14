@@ -1,0 +1,15 @@
+---
+title: "weekly Tình hình nổi bật của 12 chòm sao từ 21/10 đến 27/10/2013"
+date: 2025-06-13T14:43:34Z
+slug: weekly-tinh-hinh-noi-bat-cua-12-chom-sao-tu-2110-den-27102013
+draft: false
+---
+
+## weekly Tình hình nổi bật của 12 chòm sao từ 21/10 đến 27/10/2013
+
+## Danielle1992
+
+Mỗi người một kiểu... Phân nào cũng vẹn ​ 
+​ 
+Bạch Dương: Tuần này có lợi cho bản thân nhiều ghê nha! Chuyện gì mà làm mình tổn thương long tự trọng thì nhớ tránh né. Giữa tuần sẽ khá tích cực ! Mọi người sẽ đề cao Bạch Dương lắm đây!​ ​ ​Kim Ngưu: Nhìn chung tuần này đối với Kim Ngưu khá ổn. Đầu tuần sẽ nhận được nhiều lợi nhuận. Bạn có khi sẽ nhận được tin hay ho từ 1 người bạn ở xa, hoặc liên lạc lại với 1 người bạn đã lâu không gặp. Về vấn đề tài chính cần cẩn thận.​ ​ ​Song Tử: Có thể Song Tử được đi trải nghiệm du hí trong tuần! Trong gia đình sẽ có chuyện căng thẳng​ ​ ​Cự Giải: Đầu tuần sao tự dưng ảo tưởng gì tùm lum vậy Cua? Chậc, thực ra thì cũng dễ hiểu thôi, khi mà Cua trở nên tâm trạng vì người khác phái. Có làm gì thì cũng phải cẩn thận từng bước nhé. Giữa tuần vấn đề tài chính không tốt như lúc đầu tuần. Bạn có thể sẽ vung tiền quá đà đấy!​ ​ ​Sư Tử: Mọi chuyện sẽ rất suôn sẻ, kể cả chuyện tài chính. Bạn sẽ hỗ trợ tốt cho anh chị em ruột hoặc vài người bạn. Cuối tuần có thể sẽ có vài vấn đề, nhớ phải giữ kiên nhẫn!​ ​ ​Xử Nữ: Đầu tuần được đi chơi xa luôn nha! Là 1 học sinh giỏi, trong tuần này có thể bạn sẽ tìm được hướng đi đúng cho việc học tập của mình. Tổ chức tiệc gia đình sẽ tránh được rắc rối!​ ​ ​Thiên Bình: Đầu tuần sẽ có vài rắc rối đó Thiên Bình à! Đừng quyết định chuyện gì vội vàng cả. Cũng đừng chấp nhận thử thách mà bạn biết chắc sẽ ảnh hưởng tới “danh tiếng” của mình.​ ​ ​Thần Nông: Các mối quan hệ có vẻ tiến triển tốt và đem về lợi ích, nếu đối tác là phụ nữ thì…nên cẩn thận vì có thể sẽ bị thu hút đấy! Giữa tuần làm gì cũng phải thận trọng. Chuyện học tập của Bọ Cạp tuần này khá ổn!​ ​ ​Nhân Mã: Đầu tuần có vẻ khiến Nhân Mã khoái chí! Sẽ gặp thành công trong những việc đang dự định làm; hmm nhưng cũng phải có kế hoạch dụ trừ nhé! Chuyện tình yêu tình báo tuần này có nhiều tích cực! Giữa tuần cần phải thận trọng, cuối tuần có thể đi du hí!​ ​ ​Ma Kết: Đầu tuần không được tích cực cho lắm Kết Kết ạ. Đầu óc sẽ có chút ít căng thẳng. Nhưng vẫn sẽ nhận được lợi nhuận về tài chính. Nếu làm việc theo đúng kế hoạch, giữa tuần sẽ cực ổn và mọi thứ sẽ hoàn hảo. Đừng dính vào nhiều rắc rối của gia đình quá nhé, nên giữ cho đầu óc thảnh thơi!​ ​ ​Bảo Bình: Đầu tuần sao mà tâm trạng dữ vậy? Hình như Bảo Bình có trục trặc hoặc căng thẳng với người yêu. Giữa tuần sẽ trở về tình trạng ổn định và nhiều tích cực. Nếu có đối thủ nào bây giờ, Bảo Bình cũng sẽ thắng thôi!​ ​ ​Song Ngư: Hầu hết cả tuần đều tuyệt vời. Đầu tuần có thể sẽ được đi chơi. Cố gắng rồi sẽ được đền đáp nha Cá! Giữa tuần tâm trạng có chút bấp bênh rồi J! ​ ​3B​Mật Ngữ 12 Chòm Sao​ 
+ ​

@@ -1,0 +1,12 @@
+---
+title: "Thịt bò cay tẩm vừng"
+date: 2025-06-13T12:29:53Z
+slug: thit-bo-cay-tam-vung
+draft: false
+---
+
+## Thịt bò cay tẩm vừng
+
+## Wind of Aquarius
+
+​ ​From [Host Club Street] with "Love"?​ ​Thịt bò cay tẩm vừng nhậu ngon cuối tuần​ ​ ​ ​Từng miếng thịt bò cay tẩm vừng đậm đà, thơm phức hương vừng rang hấp dẫn khiến bạn vừa nhìn đã muốn ăn ngay lập tức.​ ​​ ​​​ ​Bạn cần những nguyên liệu sau để làm thịt bò cay tẩm vừng:​- 500g thịt bò (chọn loại thịt bò có lẫn gân thì khi ăn sẽ ngon hơn và không bị khô)​- 1 cây hành lá​- 1 củ gừng lớn​- 15g ớt khô​- 15g tiêu sọ​- 1 bát con nước chấm vừng trắng rang vàng​- Gia vị: 2 muỗng canh rượu nấu, 1 muỗng canh nước tương; 1 muỗng canh đường; 2 muỗng cà phê muối; 1 muỗng canh nước xốt nướng BBQ; 1 muỗng cà phê bột gia vị gà​ ​ ​​​ ​Thịt bò rửa sạch, lau khô rồi cắt thành những dải dày cỡ 1cm.​Ớt khô cắt thành khoanh nhỏ. Gừng cạo vỏ thái lát. Hành lá cắt khúc cỡ 1cm.​ ​​ ​Cho thịt bò ra bát, ướp với rượu trắng, 1 muỗng cà phê muối, hành tây, gừng trong khoảng 30 phút cho thấm.​ ​​ ​Cho xì dầu, đường, phần muối còn lại, nước xốt thịt nướng và bột gia vị gà vào bát con, trộn đều.​ ​​ ​Đun nóng dầu ăn trong nồi nhỏ, cho ớt và tiêu sọ vào xào thơm rồi tắt lửa. Trút phần gia vị này vào nồi hầm (hoặc nồi áp suất) cùng với thịt bò đã tẩm ướp.​ ​​ ​Kế đó đổ bát gia vị đã trộn ở bước 3 vào nồi thịt rồi trộn đều. Đậy nắp vung, bật chế độ hầm trong 40 phút. Nếu đun bằng nồi áp suất, bạn đun sôi, khi thấy hơi nước trong nồi bắt đầu xì ra thì hạ nhỏ lửa, đun liu riu trong khoảng 40 phút.​​Múc thịt ra bát, rắc hạt mè rang và hành lá thái nhỏ lên trên mặt.​ ​ ​​Không chỉ là món mặn ngon cơm, thịt bò cay tẩm vừng còn là một món nhậu khá “đã” cho các anh xã lai rai những khi rỗi rãi. Thịt bò chín mềm nhưng không khô xác, lại lẫn chút deo dẻo nhờ những gân bò trong thịt. Từng miếng thịt đậm đà, thơm phức hương vừng rang hấp dẫn khiến bạn vừa nhìn đã muốn ăn ngay lập tức.​ ​​ ​Những ngày mưa hay se lạnh, ăn thịt bò cay tẩm vừng rất hợp. Bạn sẽ cảm thấy ấm bụng với vị cay xé của ớt, cay nồng của gừng và cay thơm của tiêu sọ dậy lên khi thưởng thức. Nếu bạn ăn cay kém thì có thể điều chỉnh lượng ớt cho phù hợp với khẩu vị nhé!​ ​​ ​Chúc bạn thành công và ngon miệng với món thịt bò cay tẩm vừng này nhé!​ ​Sưu tầm​Wind​ ​

@@ -1,0 +1,24 @@
+---
+title: "Những bộ phim 'không thể bỏ qua' mùa thu này"
+date: 2025-06-13T13:29:34Z
+slug: nhung-bo-phim-khong-the-bo-qua-mua-thu-nay
+draft: false
+---
+
+## Những bộ phim 'không thể bỏ qua' mùa thu này
+
+## rubytran547
+
+Bộ phim lãng mạn About Time với sự góp mặt của Rachel McAdams ra mắt ngày 8/8/2013, sẽ mở màn cho mùa phim thu của Hollywood. Ở tuổi 21, Tim được tiết lộ một thông tin bí mật từ cha mình rằng: tất cả những người đàn ông trong gia đình của mình có khả năng đi xuyên thời gian. Anh có thể thay đổi những gì đã xảy ra trong cuộc sống riêng của mình và cố gắng thay đổi quá khứ để có một tương lai tốt hơn 
+​Phần tiếp theo của bộ phim kinh dị Insidious Chapter 2 trở lại với khán giả vào ngày 13/9 tới. Cách đây 3 năm, câu chuyện về gia đình nhỏ bé Lambert bị quỷ ám trong bộ phim Insidious đã khiến hàng triệu khán giả trên thế giới phải rùng mình, ám ảnh. Sang phần 2, lúc này, vợ chồng Renai (Rose Byrne) – Jossh (Patrick Wilson) đã có cậu con trai thứ 2 nhưng họ vẫn bị các thế lực ma quỷ theo đuổi khi thể xác người chồng Josh vẫn bị quỷ nhập.
+Don Jon là bộ phim đầu tay trong vai trò đạo diễn của anh chàng diễn viên nổi tiếng Joseph Gordon-Levitt, sẽ ra rạp ngày 19/9/2013. Don Jon do Joseph Gordon-Levitt thể hiện, là một nhân vật luôn quan tâm đến hình thức bên ngoài. Anh ta có khả năng hấp dẫn phụ nữ, thường xuyên hẹn hò với các cô gái khác nhau và “tín đồ” của phim khiêu dâm trực tuyến.
+​Kết thúc tháng 9, khán giả sẽ đón nhận bộ phim hoạt hình hài Cloudy with a Chance of Meatballs 2 (ra mắt ngày 27/9). Trong phần 2 của Cloudy with a Chance of Meatballs, Flint Lockwood đã trở thành một nhà phát minh nổi tiếng, làm việc cho Công ty Live Corp. Khi nhận ra phát minh biến nước thành thực phẩm của mình tiếp tục tạo ra những con quái vật thực phẩm bất thường, Flint và những người bạn cũ phải chung tay chấm dứt sự điên cuồng này. 
+Phim khoa học viễn tưởng Gravity với sự góp mặt của hai ngôi sao nổi tiếng George Clooney và Sandra Bullock sẽ mở màn loạt phim tháng 10 của Hollywood (ra rạp ngày 4/10). Tiến sĩ Ryan Stone (Sandra Bullock), một kỹ sư y khoa tài năng lần đầu tiên tham gia vào chuyến du hành không gian cùng với cựu phi hành gia Matt Kowalsky (George Clooney), trong lần bay cuối cùng của ông trước khi về hưu. Trong một cuộc đi bộ ngoài không gian thì thảm họa xảy ra. Tàu con thoi bị phá hủy. 
+​Cùng ngày, Out of the Furnace do anh chàng “Người Dơi” Christian Bale đóng vai chính cũng sẽ ra lò. Trong phim, Christian Bale vào vai Russell Blaze, cựu công nhân nhà máy thép vừa được ra tù với ý nghĩ mọi việc sẽ trở nên tốt đẹp hơn. 
+​Romeo & Juliet - bộ phim dựa trên tác phẩm kinh điển của William Shakespeare sẽ ra rạp ngày 11/10/2013. Romeo do ngôi sao trẻ/người mẫu sáng giá của Anh - Douglas Booth, đóng, còn Juliet do nữ diễn viên từng được đề cử Oscar-  Hailee Steinfeld, thể hiện.Bộ phim của đạo diễn Carlo Carlei kể lại câu chuyện lãng mạn nhưng bi thương giữa hai người trẻ tuổi, con cái của hai gia đình có mối thù truyền kiếp - Montague và Capulet.
+12 Years a Slave của đạo diễn Steve McQueen lấy bối cảnh New York những năm 1800, kể về một người đàn ông da đen tên là Solomin Northup  bị bắt cóc và bán làm nô lệ ở miền Nam nước Mỹ. Anh gặp được Bass (Brad Pitt), một người Canada theo chủ nghĩa bãi nô. Hai người đàn ông tham gia vào cuộc hành trình giành lại tự do đầy gian nan. 
+​Mùa thu hoặc tháng 10 sẽ không bao giờ kết thúc mà không có ít nhất một bộ phim kinh dị. Cho khán giả sẽ mãn nhãn với phim kinh dị siêu nhiên Carrie vào ngày 18/10. Bộ phim có sự tham gia của nữ diễn viên kỳ cựu Julianne Moore và nữ diễn viên tuổi teen được coi là minh tinh tương lai của Hollywood - Chloë Grace Moretz. Carrie là một học sinh nhút nhát hay bị bạn bè trêu chọc, bắt nạt. Đến tuổi dậy thì, cô gái trẻ sở hữu một sức mạnh thần bí khủng khiếp, giúp cô trả thù lại các bạn cùng lớp.
+​Thần sấm Thor (Chris Hemsworth) và người yêu Jane Foster (Natalie Portman) sẽ trở lại trong phần phim tiếp theo mang tên Thor: The Dark World, ra rạp ngày 8/11/2013. Sau các sự kiện trong The Avengers, vị thần sức mạnh Thor đã trở lại vương quốc Asgard. Giờ đây, anh sẽ phải đối mặt với một số nhân vật phản diện mới tàn ác được gọi là Dark Elves. Để cứu Trái Đất và Cửu Giới thoát khỏi những thảm họa từ thế lực hắc ám, Thor phải đi vào một hành trình nguy hiểm nhất từng trải qua.
+​The Hunger Games: Catching Fire, phần tiếp theo của “bom tấn” The Hunger Games năm 2012,
+sẽ ra rạp ngày 22/11. Sau khi trở thành quán quân của Đấu trường sinh tử lần thứ 74, Katniss và Peeta trở lại quê nhà cùng gia đình và bạn bè và sau đó là Tour lưu diễn mừng chiến thắng tại tất cả 12 quận của Panem. Họ phải tham gia vào The Quarter Quell, trận đấu dành cho những đối thủ là quán quân của Đấu trường sinh tử. Cả cô và Peeta đều giấu nhau và tìm mọi cách để đưa người kia trở về.
+Theo Pooh/Baodatviet.vn

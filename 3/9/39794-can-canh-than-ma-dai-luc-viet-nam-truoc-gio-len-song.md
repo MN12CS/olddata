@@ -1,0 +1,26 @@
+---
+title: "Cận cảnh Thần Ma Đại Lục Việt Nam trước giờ lên sóng"
+date: 2025-06-13T01:36:11Z
+slug: can-canh-than-ma-dai-luc-viet-nam-truoc-gio-len-song
+draft: false
+---
+
+## Cận cảnh Thần Ma Đại Lục Việt Nam trước giờ lên sóng
+
+## Dream2012
+
+Phải đến ngày 05/05 tới đây, Thần Ma Đại Lục mới được CMN Entertainment chính thức mở cửa thử nghiệm lần đầu tiên cho người chơi game online tại Việt Nam.​
+
+Tuy nhiên mới đây, GameK đã có cơ hội được tận tay chạm vào phiên bản Việt hóa của Thần Ma Đại Lục, tựa game nhập vai từng tạo sóng trong cộng đồng vào khoảng giữa năm 2012 vừa qua, khi server private của tựa game được mở cửa nhưng không tồn tại được lâu do nhiều lý do chủ quan lẫn khách quan.
+​Tuy rằng là một tựa game có xuất xứ từ Trung Quốc, thế nhưng cốt truyện của Thần Ma Đại Lục (tên tiếng Anh Forsaken World: War of Shadows) không hề đi theo mô típ kiếm hiệp hoặc tiên hiệp, vốn đã có rất nhiều game khai thác hiện đang hoạt động tại thị trường Việt Nam.  Thay vào đó, người chơi sẽ được đặt vào thế giới đậm chất thần thoại Tây phương với câu chuyện của hai vị thần.
+​​Vị thần Dyos khám phá ra một thế giới trong vũ trụ và đặt tên nó là Eyrda. Và rồi vị thần thứ hai, Nyos xuất hiện. Trong khi một vị muốn xây dựng nên thế giới, thì vị còn lại chỉ có ý định phá hủy nó. Thế nhưng may mắn thay, Dyos đã dẫn dắt Nyos đi theo con đường của mình. Thế nhưng chính đứa con của Dyos, Mylvada, với sức mạnh phá hủy và sự thèm khát hủy diệt thế giới, cộng thêm sự lảng tránh của các vị thần, đã đẩy thế giới Eyrda vào cuộc xung đột không hồi kết.
+​Để bắt đầu, người chơi có thể lựa chọn một trong số 5 chủng tộc trong game: Human, Elf, Dwarf, Stonemen và Kindred. Nếu như ba chủng tộc đầu tiên đã quá quen thuộc với không ít game thủ Việt thông qua những tựa game mang nội dung thần thoại, thì Stonemen là sản phẩm được tạo ra từ những lễ tế thần, những viên đá được thổi hồn. Trong khi đó, Kindred là hậu duệ của “cặp đôi hoàn hảo”: Bán thần Shylla và chàng trai phàm trần Herghevid.
+​Năm chủng tộc này sẽ được chia thành nhiều lớp nhân vật khác nhau, từ chiến binh, sát thủ, pháp sư,… Tuy nhiên mỗi chủng tộc sẽ chỉ có một vài lựa chọn nhất định về lớp nhân vật, chẳng hạn như chỉ có Stonemen mới được trở thành Protector gánh dam cho cả party, hoặc cũng chỉ có những người lùn mới được lựa chọn phát triển lớp nhân vật xạ thủ (Marksmen). Theo trải nghiệm của GameK, Thần Ma Đại Lục khá phóng khoáng trong việc tinh chỉnh ngoại hình khuôn mặt và tóc của nhân vật, trong khi toàn bộ cơ thể nhân vật được áp dụng số đo mặc định.
+​Lối chơi của Thần Ma Đại Lục tập trung nhiều vào khía cạnh action, với những đòn đánh đầy sức mạnh và khả năng nắm bắt hệ thống skill nhuần nhuyễn của game thủ, thay vì việc chọn quái và để nhân vật tự thi triển những kỹ năng đã học được của mình. Có thể đó là những đòn đánh vật lý lên những con quái vật, nhưng bạn cũng có thể thi triển những tuyệt chiêu AoE sát thương từ những pháp sư cao tay ấn (và dĩ nhiên là bạn phải đủ sức mạnh để làm việc đó).
+​Việc khám phá các quest trong Thần Ma Đại Lục khá phù hợp với những game thủ mức độ trung bình. Ban đầu bạn sẽ chỉ cần lắng nghe những câu chuyện của NPC, sau đó làm một vài nhiệm vụ nhỏ đại loại như tiêu diệt quái vật hay kiếm một vài phương thuốc cứu chữa cho những binh lính đang đóng quân.
+​Dần dần, khi đã quen với nhịp độ game, bạn sẽ được tiếp cận với những chức năng mới hấp dẫn hơn, và cũng là thứ đem lại bản sắc cho tựa game online này. Chẳng hạn, ở level 30, bạn sẽ được tham gia những trận đánh PvP hoặc trận đấu tổ đội đầy máu lửa giữa những người chơi với nhau. Hoặc bạn cũng có thể bỏ thời gian cày kéo để tăng level cho một nghề nghiệp nào đó như Alchemist hay Merchant. Ngoài ra, hệ thống thú nuôi và thú cưỡi cũng là một trong những điểm hay để người chơi khám phá.
+​Đồ họa 3D trong game nhìn chung có thể làm hài lòng đại đa số người chơi game online tại Việt Nam. Nhân vật được tạo hình giàu tính thẩm mỹ, cộng thêm cử động trong game khá uyển chuyển. Tuy nhiên ở độ phân giải cao, và thiết lập đồ họa cao nhất, game không cung cấp cho người chơi tùy chọn khử răng cưa, khiến vẻ đẹp của thế giới Eyrda, những bộ cánh diêm dúa cũng như những đòn đánh đẹp mắt phần nào bị giảm chút xíu chất lượng.
+​Auto trong game vẫn xuất hiện. Dĩ nhiên với những nhiệm vụ dài, đòi hỏi người chơi tìm đường thì việc nhờ game trợ giúp tìm kiếm nhân vật trả nhiệm vụ vẫn rất được game thủ khen ngợi và đánh giá cao. Thật may mắn là auto trong Thần Ma Đại Lục chỉ dừng ở mức độ tìm đường giúp game thủ. Tất cả những thao tác còn lại đều phụ thuộc vào chính người chơi.
+​Phiên bản game được nhà phát hành cung cấp đã được Việt hóa khá kỹ lưỡng. Hầu như không tìm thấy bất kỳ lỗi font hay lỗi ký tự tiếng nước ngoài nào trong những đoạn hội thoại cũng như nhiệm vụ của game. Chỉ có điều cách dịch một số đoạn chuyện kể trong game có phần hơi ngây ngô, đọc khó rõ nghĩa.
+​Nói tóm lại, với việc Thần Ma Đại Lục được phát hành chính thức tại Việt Nam, game thủ làng game Việt sẽ có được một luồng gió mới, đặc biệt là khi những tựa game client đình đám đã ra mắt nhưng chưa đủ thỏa mãn cơn khát game dịp đầu hè của cộng đồng. Những thông tin nhận định trong ngày ra mắt chính thức cũng như nhận định của cộng đồng game thủ về Thần Ma Đại Lục sẽ được GameK đăng tải trong thời gian sớm nhất.
+Nguồn: http://gamek.vn/mmo.chn​

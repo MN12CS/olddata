@@ -1,0 +1,50 @@
+---
+title: "[12 Chòm sao trong cuộc chiến giành tài sản]"
+date: 2025-06-13T15:17:26Z
+slug: 12-chom-sao-trong-cuoc-chien-gianh-tai-san
+draft: false
+---
+
+## [12 Chòm sao trong cuộc chiến giành tài sản]
+
+## Snake19
+
+Mười hai chòm sao nếu rơi vào hoàn cảnh được sinh ra trong một gia đình vô cùng giàu có và đông anh em, người nắm quyền của gia đình này đã gần tới lúc 'đi về nơi xa' nên những người nằm trong vùng được thừa kế đã bắt đầu đấu đá lẫn nhau để tránh số tài sản bị chia nhỏ ra, 12 chòm sao sẽ hành động ra sao để trụ vững trong cuộc chiến này (sẵn xem độ nham hiểm trước sức hút tiền bạc của các sao ).
+
+Bạch Dương
+Bạch Dương sau khi xác định mình sẽ tham gia giành tài sản thì cũng đồng thời xác định tất cả những người có khả năng hưởng tài sản khác là kẻ thù. Bạch Dương sẽ lập tức trở mặt và bỏ đi hoàn toàn những mối quan hệ trước kia, công khai chống đối và tất nhiên cũng trở thành phần tử "gây chuyện xào xáo trong nhà" và mạnh dạng tấn công nên luôn luôn ở thế thượng phong, khiến đôi khi người khác không kịp trở tay.
+
+Kim Ngưu
+Kim Ngưu sẽ không ra mặt tranh đấu mà đánh vào tâm lí của vị 'tướng' theo hướng "lấy nhu chế cương", chú trọng đánh thẳng vào người sẽ quyết định phần tài sản của mình, tạo niềm tin cho họ, lấy lòng họ, cho họ thấy mình chính là 'nhân vật chính diện trong những phim cùng thể loại' (nhân vật chính diện luôn luôn là người chiến thắng). Mọi thứ ở trên gọi chung là 'lấy điểm', và đương nhiên điểm này tỉ lệ thuận với số tài sản được nhận. Vì vậy Kim Ngưu sẽ đặt vấn đề lợi ích đến cho những người hợp tác với mình khiến họ không thể từ chối giúp đỡ, nhất là những cô dì chú bác không liên quan gì đến cuộc chiến này (đây tuy là một thành phần không liên quan nhưng vô cùng nguy hiểm, chắc ít nhiều mọi người đã thấy sự lợi hại của họ qua phim ảnh ) để họ nâng hình ảnh của ngưu lên đồng thời dìm hàng những người kia và cung cấp những thông tin cần thiết cho ngưu.
+
+Song Tử
+Song Tử sẽ tự biến mình thành đồng minh của tất cả anh em trong nhà, tuy luôn phải xoay sở để chiếm lấy niềm tin của họ nhưng đồng thời cũng sẽ đâm chọt thêm mắm thêm muối khiến mối bất hòa của họ càng thêm sâu sắc để tạo nên cảnh anh em trong gia đình vì gia sản mà đấu đá nhau, đến khi tất cả không chết thì bị thương, cả hai bên cùng suy yếu không còn sức chống trả là sẽ một dao tiễn đi hết, nói gọn chính là "trai cò đánh nhau, ngư ông đắc lợi".
+
+Cự Giải
+Cự Giải chính là chân nhân bất lộ tướng chuyên mượn dao giết người, bề ngoài sẽ đối tốt với mọi người trong gia đình (nhất là dady hoặc grandfa vì đây là những người sẽ quyết định phần tài sản của cô ) nhưng cùng một lúc sẽ ở nhiều phe và 'vô tình' gợi ra những kế hoạch hại người để họ đối phó lẫn nhau, đến khi bị phát hiện thì kẻ chết cũng chỉ có họ mà thôi. Tóm lại đây chính là một quả bom nổ chậm, lúc chưa nổ thì có thể hù dọa người khác, nhưng lúc nổ rồi sẽ có kẻ thiệt mạng.
+
+Sư Tử
+Sư Tử sẽ tìm mọi cách thể hiện năng lực của bản thân trước cha/ông bằng cách tham gia quản lí gia nghiệp và cố làm nó phát triển một cách thật ngoạn mục. Đối với Sư Tử đây là cuộc chiến của những 'chính nhân quân tử', có tài sẽ được, bất tài tự hiểu.
+
+Xử Nữ
+Xử Nữ sẽ áp dụng phương pháp "4 không", không bất hòa, không tranh chấp, không động tay chân, không động khẩu, hoàn toàn như một người bên lề để mọi người lơi lỏng phòng bị sau đó tỉ mỉ quan sát + theo dõi để nắm bắt điểm yếu của đối phương, đợi thời cơ thích hợp thì đem ra uy hiếp khiến đối phương phải tự động rút lui khỏi cuộc chơi.
+
+Thiên Bình
+Thiên Bình trong trường hợp đặc biệt này sẽ tự động phân tích ưu nhược điểm của bản thân từ đó cho ra những kế hoạch thích hợp và cũng biết tính sẵn cả đường lui. Bình nhi sẽ tạo ra một bè phái vững chắc sau đó gây áp lực lên những anh em khác trong nhà, dùng số đông để loại từng người một, nếu bè phái này bắt đầu có dấu hiệu lục đục thì tiện tay đâm một nhát cho đi hết một lượt, đường nào cũng có lợi.
+
+Thiên Yết
+Thiên Yết nhất định sẽ đi theo chủ nghĩa "giảm một người là tăng một phần" trong cuộc chiến này. Yết yết sẽ tìm mọi cách (99% tai nạn đỗ máu đều do Thiên Yết sắp đặt) để anh em của mình mất quyền thừa kế (cần thì loại tên ra khỏi sổ hộ khẩu luôn ) để biến bản thân thành người thừa kế duy nhất.
+
+Nhân Mã
+Nhân Mã sẽ vào vai một thiếu gia ăn chơi trác táng khiến mọi người không xem trọng, thoạt nhìn sẽ tưởng mã mã không quan tâm đến cuộc chiến gia sản này, nhưng 85% tai họa từ trên trời rơi xuống một người nào đó trong nhà (bị vu khống bởi những việc không thể tha thứ) cũng đều do Nhân Mã ngấm ngầm sắp đặt.
+
+Ma Kết
+Trường hợp của Ma Kết chính là tranh giành gia sản mà không cần làm gì cả, bởi vì đơn giản kết kết từ đầu đã quản lí các hoạt động kinh doanh trong gia đình và tích cóp một 'quỹ đen' không nhỏ cho bản thân đủ để tạo lập một sự nghiệp riêng, nếu sau này có hưởng được phần nào tài sản thì cũng chỉ coi như là 'nhận thêm' mà thôi.
+
+Bảo Bình
+Bảo Bình luôn tự tin với trí thông minh của mình cho nên "một là lấy hết, hai là không có gì cả" vì vậy đã tạo ra một kế hoạch vô cùng tinh vi. Bảo bảo sẽ liên lạc với những thế lực bên ngoài, ngấm ngầm thu tóm cổ phiếu của công ty nhà mình, từ từ điều khiển hoạt động kinh tế của nó. Đến khi đã nắm được một khoản kha khá Bảo Bình sẽ bằng một cách nào đó (lừa gạt) đá đít đối tác ngoại gia kia và một mình sở hữu số tài sản kia, còn phần sau khi chia gia sản, mặc kệ được hưởng bao nhiêu thì bảo bảo vẫn dùng tiềm lực kinh tế mà mình đã gầy dựng từng bước "đoạt hết" phần của những người kia (tuy nhiên đây vẫn chỉ là một kế hoạch). Không uy hiếp, không làm loạn, không hại người, nhẹ nhàng nhưng chắc chắn,... cuối cùng Bảo bảo luôn chiến thắng 1 cách toàn diện "tâm phục khẩu phục".
+
+Song Ngư
+Song Ngư bề ngoài sẽ tỏ ra yếu đuối nhu nhược khiến mọi người không đề phòng nhưng bên trong đang ngầm cười gian trá. Ngư ngư sẽ chủ động để người khác lợi dụng mình, tin mình chỉ là con cờ trong tay họ, đến khi kẻ lợi dụng đó muốn hi sinh bé cờ này để tiêu diệt những người khác thì ngư ngư sẽ đảo ngược lại tình thế, khiến kẻ đó rơi vào chính bẫy của mình, người nào đáng ra sẽ bị hại vẫn sẽ bị hại, nhưng quân tốt thí lại trở thành tên đã lợi dụng Song Ngư.
+
+ST

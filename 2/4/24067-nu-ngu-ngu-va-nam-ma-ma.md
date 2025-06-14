@@ -1,0 +1,15 @@
+---
+title: "Nữ Ngư Ngư và Nam Mã Mã"
+date: 2025-06-12T22:56:34Z
+slug: nu-ngu-ngu-va-nam-ma-ma
+draft: false
+---
+
+## Nữ Ngư Ngư và Nam Mã Mã
+
+## nhimbien
+
+Mình viết câu chuyện này có thể là để chia sẻ, giải tỏa nỗi lòng 7 năm nay luôn giấu kín, cũng có thể là để mong nghe được những ý kiến của các bạn.
+Mình là 1 nữ SN,cậu ấy là 1 nam NM. Cách đây 7 năm(lúc đó tụi mình học cấp III), mình và Nm gặp nhau,ngay lần đầu mình đã cảm tình với cậu ấy, 1 chàng trai hiền lành,nhẹ nhàng. Có lẽ NM cũng vậy,sau 1 thời gian ngắn cộng tác với nhau về Đoàn,cậu ấy ấp úng mang hoa tỏ tình mình trước cổng nhà mình. Vì ngại quá mình đuổi cậu ấy về mặc dù đêm ấy đã không ngủ được vì trái tim quá đỗi vui mừng cứ đập rộn ràng,mình biết mình đã yêu(lần đầu tiên).Mình kể chuyện cho con bạn thân và tình cờ NM là bạn thân của bạn trai nó,mình được biết thêm về NM,1 cậu trai nhút nhát,lần đầu can đảm tỏ tình. Và quả thật cậu ấy nhút nhát đến mức sau lần tỏ tình tưởng như không thành công đó thì mất tích nguyên 1 tuần (theo lời mấy đứa bạn thì là ngại quá vì bị từ chối)  Và khi NM trở lại,mình vẫn chưa trả lời,NM cũng không hỏi gì thêm,2 đứa mình cứ bên nhau,trò chuyện hàng ngày vui vẻ và hạnh phúc. Mình biết mình đã thật sự yêu chàng trai NM này,vì lần đầu tiên 1 SN bên ngoài ngốc nghếch bên trong kiêu ngạo như mình có thể chủ động gọi điện,chủ động tặng 1 trái táo cho chàng trai yêu mình  Vui vẻ chưa lâu,thì vào ngày đó,mấy đứa bạn hội cấp 2 của mình nói rằng cậu NM đó rất đa tình, trước khi tỏ tình mình 1 tháng,đã tặng khăn cho 1 cô bé khác. Hụt hẫng vì cho rằng mình là người đầu tiên, lòng tự trọng của 1 SN là hơn hẳn những thứ khác,là không cần biết đúng hay sai,không cần nghe giải thích(mà có sai đâu mà giải thích). Ngày 13/2 năm đó mình chính thức trả lời NM "Tớ không thể đến với cậu,mình dừng lại nhé". NM níu kéo rất nhiều,còn SN mình hụt hẫng,tự trọng hão đã cuốn hết tính cảm. Cho đến bây giờ mình vẫn tự hỏi,mình có phải đã thật sự yêu hay chưa ?
+Cậu ấy dần im lặng,không còn nhắc đến nữa,chúng mình vẫn đi chơi với nhau suốt 3 năm cấp III nhưng là đi chơi chung. Mình nghĩ NM đã thất vọng,đã từ bỏ.Sau này,mình mới biết,NM vẫn luôn yêu mình 3 năm sau đó.
+Và chúng mình ít gặp lại nhau kể tử ngày tốt nghiệp,và từ hôm đó cho đến nay đã 4 năm, NM đã không còn là 1 NM rụt rè,nhút nhát mà SN này đã từng quen,từng biết nữa,qua bạn bè,mình biết NM đã yêu rất nhiều người,đã thực sự là 1 NM đa tình. Còn SN mình 7 năm nay vẫn chưa hề yêu ai, đã có lúc xao động, đã có lúc muốn yêu đi, nhưng thật lòng không thể. 7 năm nay, chưa hề chủ động nhắn tin,điện thoại, chưa hề nói câu chúc ngủ ngon cho 1 ai khác ngoài NM năm xưa. (Bạn bè ai cũng đặt dấu chấm hỏi tại sao đến giờ vẫn độc thân  ) Trên đường đời có lúc gặp lại nhau trong 1 cuộc nhậu, 1 bữa cà phê, trong những tin nhắn trò chuyện đêm khuya, cảm xúc của cả 2 vẫn thật rất khác,vẫn câu nói nhẹ nhàng của năm xưa,vẫn nhắc lại những kỷ niệm,vẫn chúc ngủ ngon và nhớ mang ấm nhé. Có rất nhiều lần tự hỏi chính bản thân có nên chờ đợi 1 lần nữa, tự hỏi bản thân cho đến nay có phải thật sự là yêu chưa? Tự hỏi liệu với NM, SN là gì, có tồn tại 1 góc nào đó không, hay năm xưa chỉ là gió thoảng?

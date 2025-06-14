@@ -1,0 +1,45 @@
+---
+title: "Khi 12 đạo tặc lẻn vào tẩm cung của cẩu hoàng đế"
+date: 2025-06-13T15:28:00Z
+slug: khi-12-dao-tac-len-vao-tam-cung-cua-cau-hoang-de
+draft: false
+---
+
+## Khi 12 đạo tặc lẻn vào tẩm cung của cẩu hoàng đế
+
+## o0Bocapcon0o
+
+Thập nhị đương gia nổi tiếng hành hiệp trượng nghĩa chuyên cướp của cường đạo chia cho lê dân, trừng trị bọn tham quan ác bá. Một hôm Đạo soái Gia Cát Tiểu Bảo bàn với 11 huynh muội trong trại hạ sơn, vào cung cẩu hoàng đế “hành đạo” một chuyến. Cao kiến vừa đưa ra Đạo soái Công Tôn Tiểu Yết và huynh đệ Mộ Dung Song Tử đã đập bàn đập ghế tán dương: “Kế này hay đó, ta chọn ngày lành tháng tốt hạ sơn hành hiệp thôi!”. Vậy là 12 hảo hán gia bỏ lại Lương Sơn quyết vào cung một chuyến…
+
+Tết Nguyên Tiêu, Canh 3 đêm. Trong tẩm cung…
+
+Bạch Dương: Giục mọi người “Cẩu hoàng đế đang mê mẩn dạ yến ở Ngự Hoa Viên, các huynh đệ hành sự thật nhanh để còn rút”. Miệng vừa nói tay vừa hối hả vơ hết các món bảo vật nhét vào một cái bao thật to, Tiểu Bạch luôn đặt hiệu suất công việc lên trên… hiệu quả công việc nên cố gắng lấy thật nhiều mang đi. Ngoài ra những món cồng kềnh như tranh khảm thảm lụa Tiểu Bạch không đem đi được thì cũng không để cho cẩu hoàng đế dùng, cái thì đem bút mực vẽ hoa vẽ vượn lên, cái thì dùng dao nguệch ngoạc dăm bảy đường. Nói chung là dạo khắp một vòng rồi mới đi.
+
+Kim Ngưu: A Ngưu bắt đầu cầm từng món bảo vật lên để… định giá, cứ cầm lên rồi đặt xuống: “Thôi khỏi, món này bản đại gia cũng có. Thì ra cẩu hoàng đế cũng chỉ đến thế thôi à.” Không phải tại cẩu hoàng đế xài đồ đụng hàng, mà tại những món bảo vật hiếm có Kim Ngưu cũng có cả một bộ sưu tập đồ sộ. Có khi A Ngưu còn lắc đầu ngán ngẩm: “Thì ra cẩu hoàng đế cũng nghèo, mang tiếng chơi hàng hiệu còn sưu tập đồ giả”. Nghe A Ngưu bình phẩm cũng đủ mở mang tầm mắt trăm lần, ghê gớm tình yêu ạ…
+
+Song Tử: Chạy khắp trong ngoài tẩm cung để tìm cái gì đó, rồi cáu gắt: “Bảo vật thì cái gì cũng có, mà mĩ nhân thì không thấy đâu. Hóa ra cẩu hoàng đế là cái loại bạc bẽo, không coi mĩ nhân là bảo vật”. Hậm hực một lúc rồi tiểu Mộ Dung lại xua tay: “Lần tới bổn đại gia sẽ đến tìm mĩ nhân của mi, lần này coi như mi làm ta mất hứng”. Nói xong lại hồn nhiên đi tham quan một lượt, thấy món nào kì công điêu luyện thì đem bỏ hết vào túi. Nhưng hầu như tham quan là chính ăn trộm là chơi…
+
+Cự Giải: Tiền bạc có thể mua binh hùng tướng mạnh không thể bình thiên hạ, học thức uyên thâm cao đạo phổ chúng mới được lòng lê dân. Giải Giải nghĩ vậy bèn tìm vơ hết kinh thư binh pháp kì điển dị tự cho vào túi đồ, miệng còn thì thầm: “Ta đọc không hết thì Tiểu Bảo đọc, có khi lại đổi được cả số bảo vật của đệ ấy. Ý này không tồi”. Nghe đồn quyển Dịch Cân Kinh này là bảo điển quý trong võ lâm hiếm người luyện thành, cũng không tồi, ta đem về luyện, luyện không được cho Tiểu Bảo. Suốt buổi mọi người cứ nghe Giải Giải lầm bẩm mấy câu như vậy: “Cũng không tồi, ta đem về xài, xài không được cho Tiểu Bảo”.
+
+Sư Tử: “Haha. Ông nội mày đang ngồi trên Ngự điện của mày đây tiểu súc sinh à, xem ta oai vệ chưa”. Mục đích chính của Sư Huynh không phải là ăn trộm mà là thể hiện uy thế ai phong. Ngồi một lúc thấy chán lại đem bút ra phê mấy câu kinh điển lên tấm bình phong của hắn, rồi lại lôi tập tấu chương cảu cẩu hoàng đế định viết bậy lên, nào ngờ mở ra đã thấy bút tích của Tiểu Bảo phê duyệt hết trên đó nên Sư Huynh bỏ xuống: “Đồ Tiểu Bảo đã chơi, ta không chơi của đệ ấy” nói rồi bỏ đi, “Ta phải phải làm hắn tức điên mới hả dạ”. Những “chiêu thức” của Sư Huynh không tiện nói ra sợ mọi người đỏ mặt, song đến lúc đứng lên ra về, ai nấy nhìn vào đám “chiến trường” của hắn cũng đều phải lắc đầu ngán ngẩm thay cho cẩu hoàng đế.
+
+Xử Nữ: Dò xét một lượt Xử đường chủ bỗng phát hiện ra cơ quan mật đạo, tìm thấy vô số mật thất và cách thức đóng mở của chúng. “Chất vẫn hơn lượng”, ta vào mật thất cuối cùng lấy món bảo vật quan trọng nhất”. Nói là làm, nhưng làm hơi chậm, vì đi đến đâu xem xét cái gì đường chủ cũng phải thốt lên: “Ôi cái thằng cẩu hoàng đế hóa ra ở dơ như vậy, chỗ này bụi bẩn quá”. Ngoài ra Xử Xử cũng không quên vừa đi vừa vẽ lại bản đồ để tiện cho lần tới còn hành sự. Rồi cuối cùng cũng tìm được đến mật thất tối trọng, nhưng bất ngờ đã xảy ra… (Muốn biết điều gì xảy ra hãy theo dõi tiếp)
+
+Thiên Bình: Bình Nhi thấy ai làm gì cũng tò mò ra xem, hỏi người này một câu người kia một câu. Xem chỗ này một cái chỗ kia một cái. Đến lúc mở túi đồ ra lại đứng rất lâu phân vân không biết nên lấy cái này hơn hay cái kia hơn, thế là lại chạy đến hỏi A Ngưu xem nên lấy cái nào. A Ngưu phán cho một câu: “Cái này ở nhà ta cũng có” thì Binh Nhi thở dài bỏ đó đi tìm cái khác. Lúc cả nhóm ra về cứ thấy Bình Nhi ôm khư khư một bức họa. Hỏi sao không lấy gì, Bình Nhi chỉ thẫn thờ buông tiếng thở dài: “Quan Âm Ngọc Nữ, nàng là ai…”. Mà không hay biết bức họa trên tay mình chỉ là bí kíp “Ngọc Nữ Tâm Kinh” của Lâm Chiêu Anh phái Cổ Mộ trăm năm trước.
+
+Thiên Yết: Tiểu Yết bước vào tẩm cung đã phán ngay một câu: “Làm gì thì làm, trộm gì thì trộm, cứ phải lấy ngọc ấn của Cẩu hoàng đế đã, sau này thuận cơ làm phản. Hehe”. Ngọc ấn để ở đâu có trời mới biết, tìm khắp những chỗ tình nghi không thấy, bóp trán một lúc Tiểu Yết này ra ý: “Cứ đi theo Xử Xử, muội ấy thạo mật đạo cứ điểm hơn ta. Đằng nào ta cũng phải tìm bộ Võ Mục Di Thư và Cửu Âm Chân Kinh nữa”. Tiểu Yết quả là biết dự tính trước những món quan trọng nhất và đặt mục tiêu vào đó thôi. Thế là Công Tôn đường chủ đi theo sau lưng Xử đường chủ, vừa đi vừa xem hết một lượt các món bảo vật trong mật thất lộ ra.
+
+Nhân Mã: “Ngự tửu ngon thật, đúng là rượu quý trăm năm, haha, bổn đại gia trúng mánh lớn rồi. Yà hú…”. Thay vì mất công mang vác về, Mã Mã lại chẳng ham bảo vật, cứ có cái gì tận hưởng được thì tận hưởng hết mình đi. Những món cao lương thượng phẩm được tiến cống cho cẩu hoàng đế giờ đây chỉ còn là hàng second hand. Lúc ra về mọi người còn phải tròn mắt nhìn Mã Mã dáng đi xiêu vẹo, mình đầy mùi rượu lẫn mùi phấn thơm, rồi thì vòng vàng nhẫn ngọc với các món lụa là mặc đầy người. (Lúc say không phải trộm cũng thành trộm)
+
+Ma Kết: Điều quan trọng nhất là không được để lại dấu vết, không được để cẩu hoàng đế lần theo. Kết đường chủ cứ cặm cụi đi theo nhằm xóa dấu vết cho các huynh đệ rồi nổi cáu lên: “Sư Huynh, Mộ Dung, Mã Mã, bày vừa thôi, đi ăn trộm chứ không phải đi ăn tiệc. Hrrrr…”. Can giải mãi không được A Ma bực mình: “Làm không lại thì ta phá luôn vậy”. Nói xong đường chủ Bí Hiểm Đường đi lượm một lúc đủ thứ vật dụng lỉnh kỉnh về rồi xếp xếp lắp lắp, miệng lẩm bẩm: “Cẩu hoàng đế đội ơn ta, hôm nay ta biến tẩm cung của mi thành thiên la địa võng, về nhà như bước vào cạm bẫy. Cho mi một trận nhớ đời”. Vừa làm vừa quát tháo: “Đừng có qua đây, dẫm phải bẫy giờ”.
+
+Thủy Bình: Tiểu Bảo sau khi phê hết tấu chương, mở tung mật đạo thì ngồi chiễm chệ nơi mật thất sau cùng mà thở dài: “Hóa ra cuốn Võ Mục Di Thư này chỉ thuận cho Liêu binh không dành cho địa hình Trung Nguyên, đã thế phần nhiều yếu quyết là dựa trên Tam Kì Quý Điển đời Đường, bổn đại gia thuộc làu. Bộ Cửu Âm Chân Kinh này nếu tách ra luyện thì khó mà hợp lại thì tưởng không có ý nghĩa gì, mang về nội trong nửa năm là luyện thành. Còn cái ngọc ấn này sao giống ngọc ấn giả lần trước Mã Mã đem đi rồi bỏ quên thế nhỉ, thôi chắc tiểu tử này đem ngọc ấn thật đi bán lầy tiền uống rượu rồi cũng nên. Haizz”. Đột nhiên ngoài cửa có động: “Ặc, thì ra là Xử muội, Tiểu Yết. hai người làm ta giật hết cả mình”…
+
+Song Ngư: Ngư Ngư thong dong tiến vào nội điện, chọn chỗ nào bày nhiều báu vật đẹp nhất để dừng chân. Bắt đầu nhìn loạt mĩ phẩm cống tiến mà phán: “Cẩu hoàng đế nhan sắc tầm thường có dùng bao nhiêu mĩ phẩm đi nữa cái bản mặt của mi cũng chẳng tốt đẹp hơn, cái này nên dành cho ta thì hơn”, nói rồi chọn mấy món bỏ vào túi. Bước tiếp đến tủ gấm lụa: “Thứ phàm phu tục tử ngươi thật không xứng để khoác những thứ này lên người, nên dành cho ta thì hơn”, nói xong lại chọn một ít bỏ vào túi. Lại mở hòm thượng phẩm rồi trầm ngâm: “Linh Chi Tuyết Sơn, Nhân Sâm Ngàn Năm, Hà Thủ Ô Trăm Năm, Vạn Xuân Đơn Vạn Kiếp Hoàn. Ôi. Thứ cẩu hoàng đế mi có sống thêm nghìn năm thì có ích lợi gì cho bá tánh thiên hạ. Thứ này dành cho ta còn tốt hơn”. Nói xong thì vơ hết bỏ vào túi. Chợt, Ngư Ngư phát giác ra một chiếc bảo rương, mở ra xem thì…: “Chao ôi, Ngũ Độc Tán, Vạn Khốc Hoàn, Thất Phách Quy Lạc Hoàn, Bi Tô Thanh Phong Tán, Dị Mộng Hương. Mi… mi thật là… Lại gì nữa đây, ặc, còn cả Nam Thận Bảo Khởi Đơn Dương, Xuân Dược Tình Thảo. Mi… mi được lắm. Loại cầm thú mi cũng có những thủ đoạn này, hôm nay ta xem, ta đổi hết mấy thứ này với nhau xem mi sẽ như nào. Đáng chết đáng chết”.
+
+Không lâu sau trong hoàng cung xảy ra dị án li kì với quá nhiều dấu vết lẫn bằng chứng lộn xộn khiến thám tử Bộ Hình quá nản mà bó tay. Nguyên nhân hoàng đế băng hà về sau được lưu truyền như là một vụ án bí ẩn nhất lịch sử…
+
+
+Nguồn: Kênh 14
+
+​

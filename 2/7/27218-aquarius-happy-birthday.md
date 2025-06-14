@@ -1,0 +1,12 @@
+---
+title: "Aquarius Happy birthday"
+date: 2025-06-12T23:52:37Z
+slug: aquarius-happy-birthday
+draft: false
+---
+
+## Aquarius Happy birthday
+
+## Tourist
+
+Luật trước khi bước vào nhà-Tôn trọng chủ nhà-Không mang xích mích cá nhân vào-Vui vẻ chúng mình tiếp vui vẻ còn kẻ thù đã biết mà cứ vào gây chuyện tụi mình cũng sẽ không tha !Còn bây giờ mời mọi người cùng nhảy theo điệu nhạcBảo Bảo là những con sâu lười biếng, chỉ khoái cuộn tròn ngọ ngoe trên giường thôi. Nhưng một khi đã hứng chí làm cái gì, thì nhất quyết phải làm tới cùng, và đừng hòng có ai ngăn cản được họ. Quyết định đó dù ở trong đầu Bảo Bảo 10 phút hay 10 ngày thì cũng đã được họ suy xét hết mọi mặt rồi. Vậy cho nên lời bạn ngăn cản cũng chỉ như tiếng ruồi bay ngang thôi :vChúc mừng xin nhật hơi muộnXin lỗi mọi người ~~Dành cho những ai đang yêu BB nam- Bảo Bình nam ban đầu có thể ít thể hiện tình cảm với bạn, nhưng càng về sau thì tình yêu đó sẽ lớn dần lên, và bạn sẽ choáng ngợp vì sự lãng mạng bất ngờ- Bảo Bình nam khá bảo thủ, chỉ cần bình tĩnh nhẹ nhàng thì cậu ấy sẽ hiểu cho bạn- Bảo Bình nam luôn quan tâm đến đối tượng khác giới, sẵn sàng chia sẻ nhưng khi yêu chỉ có một người duy nhất, nếu không hiểu và kiểm soát, BB nam sẽ cảm thấy bị gò bó. Đối với cậu ấy, người cần giúp đỡ thì sẵn sàng giúp và quên mất đương kim người yêu đang nhặng xị- Hãy nói thẳng và thật với BB nam vì cậu ấy không được tinh tế cho lắm- Dành thời gian quan tâm cậu ấy mỗi ngày, vì cậu ấy rất thích cảm giác được ai đó nhớ đến mình- Bảo Bình nam không thích trễ hẹn, cậu ấy luôn cau có với đối phương khiến cậu ấy phải chờ*Nhược điểm:- Cứng đầu- Như trẻ con - Lâu lâu thay đổi tâm tính- Thích quan tâm bạn khác giớiCho giai nào đang yêu aquarius girl này- Làm một cô gái Bảo Bình vuisướng đôi khi chỉ cần những điềuđơn giản lắm. Và làm cô ấy buồn,đôi khi cũng dễ dàng như vậy. BảoBình đa cảm, dễ vui vu vơ vàbuồn vu vơ. - Các cô gái Bảo Bình, hoặc làtuyệt đối chung thủy, hoặc là tựmình kết thúc khi cảm thấy không thể chung thủy được nữa. Vì vậykhi yêu một Bảo Bình, xin đừngnghi ngờ. - Con gái Bảo Bình có thể đàohoa, nhưng không bao giờ trănghoa, nhớ nhéBánh sinh nhậtMón khai vịiiiiiiiiiiiiiiMón chínhVà các đồ uốngVà cuối cùng Tráng miệng

@@ -1,0 +1,17 @@
+---
+title: "[Geminikid98]Khoảnh khắc đổi thay \"hết hồn\" của biển cả"
+date: 2025-06-13T11:53:28Z
+slug: geminikid98khoanh-khac-doi-thay-het-hon-cua-bien-ca
+draft: false
+---
+
+## [Geminikid98]Khoảnh khắc đổi thay "hết hồn" của biển cả
+
+## Lost Child
+
+Ở cùng một địa điểm nhưng quang cảnh "sáng một đằng, chiều lại một nẻo"…
+
+Biển cả luôn ẩn chứa nhiều bí ẩn thú vị, đôi khi có phần kỳ quái. Có lúc thanh bình, tĩnh lặng, nhưng cũng nhiều khi dậy sóng, mưa bão gào thét. Đặc biệt là thủy triều, một hiện tượng thiên nhiên trên biển cực kỳ lý thú. 
+Với sự lên xuống đều đặn, hàng ngày, nó có thể thay đổi hoàn toàn cảnh quan bên bờ biển mà bạn chưa một lần nhận ra…Nhiếp ảnh gia Michael Marten là số ít người nhận ra sự kỳ diệu ấy. Trong suốt 8 năm ròng, ông đã chu du khắp các bờ biển nước Anh, ghi lại nhịp điệu hàng ngày của thủy triều.Trong suốt một ngày chụp ảnh, Michael đã phát hiện ra rằng: bờ biển buổi sáng và buổi tối, với cùng một góc máy, một khuôn hình lại cho ra một cảnh quan hoàn toàn khác nhau. Nguyên nhân chính là do sự lên xuống của thủy triều.
+Thủy triều được tạo ra từ sự thay đổi lực hấp dẫn của Mặt trăng (phần chủ yếu) và các thiên thể khác như Mặt trời (phần nhỏ) tại một điểm bất kỳ trên bề mặt Trái đất trong khi Trái đất quay. Thủy triều không chỉ diễn ra ở biển như mọi người lầm tưởng mà thực tế diễn ra ở cả sông nữa.Thường thì người ta chia thủy triều ra thành 2 loại là nhật triều và bán nhật triều. Nhật triều tức là nước lên một lần và nước xuống một lần trong ngày, còn bán nhật triều thì mỗi ngày có hai lần triều lên, hai lần triều xuống.
+Riêng đối với nhật triều, chu kỳ nước lên mỗi ngày lại bị chậm hơn 52 phút. Tức là nếu thủy triều lên lúc 10 giờ sáng nay thì vào ngày hôm sau, phải 10 giờ 52 phút bạn mới được chứng kiến khung cảnh tương tự. Đó là quãng thời gian Trái đất quanh quay trục và Mặt trăng quay quanh Trái đất quay lại vị trí ban đầu của lần triều trước.Khi thủy triều lên, nước dâng cao, tạo nên một khung cảnh kỳ vĩ…. nhưng khi nước xuống đây lại là một bãi cát bao quanh bởi các mỏm đá vô cùng lãng mạn.Buổi sáng, khi triều rút, bờ biển này là nơi vui chơi, du lịch và nghỉ ngơi của rất nhiều người…. nhưng bỗng chốc biến thành một vùng nước rộng lớn mênh mông với chiếc cầu cô đơn chỉ từ 6 - 18 tiếng sau đó.Một khung cảnh hoang tàn, trơ lại sỏi đá vụn, cát và bùn với cây cầu cũ kỹ… lột xác thành bức tranh phong cảnh thủy mặc rất có hồn tuyệt đẹp.Các loài sinh vật biển thường di chuyển theo dòng nước lên. Từ xa xưa, các cư dân ven biển đã dựa vào điều đó để đánh bắt hải sản sinh sống. Mực nước lên xuống không phải hôm nào cũng bằng nhau. Thường thì vào tuần trăng mới, sẽ có một ngày gọi là ngày “nước phát”, tức là mực triều lên cao nhất.Sau khoảng 15 ngày từ ngày “nước phát”  đó gọi là ngày “nước sinh”, tức thời điểm mà nước thủy triều lên thấp nhất. Khi thủy triều rút thường làm lộ ra một vùng cát trải dài rộng lớn tùy theo địa hình, là một nơi lý tưởng để dạo chơi tận hưởng gió mát từ ngoài khơi thổi vào.Bên cạnh hiện tượng thủy triều thường còn có một số hiện tượng thiên nhiên khác như thủy triều đỏ với sự nở hoa của các loại tảo, gây chết đột ngột các loài sinh vật biển, hay như “Moses Miracle” khi thủy triều rút chia biển làm đôi từng xảy ra tại Hàn Quốc. Đó chính là sự đa dạng, phong phú và bí ẩn của thiên nhiên.Thủy triều lên xuống theo dòng và hướng xác định và sức xói mòn của nước biển là rất lớn. Chúng đã vô tình tạo nên cảnh quan một bãi đá lạ như trong hình ảnh trên.Nguồn: kenh14.

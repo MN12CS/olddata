@@ -1,0 +1,13 @@
+---
+title: "[Fanfiction] Behind blue eyes"
+date: 2025-06-13T12:11:30Z
+slug: fanfiction-behind-blue-eyes
+draft: false
+---
+
+## [Fanfiction] Behind blue eyes
+
+## InSaNiTy
+
+​ ​Tên truyện: Behind blue eyes​Tác giả: Insanity​Disclaimer: Các nhân vật và hình ảnh trong truyện không thuộc về tác giả, tác giả chỉ mượn tạm để sáng tác "nghệ thuật"​Thể loại: Shounen ai (Nam x Nam), Action, Supernatural, có Angst nhưng không phải Tragedy, tùy lúc có thể là Comedy​Rating: K+​Độ dài: Longfic​Tình trạng: Chưa hoàn thành​Tốc độ sáng tác: sẽ cố gắng khoảng 2 chương hoặc 1 chương dài/ tháng​Warning:​- Không spam, không gây war trong topic.​- Vì đây là thể loại Nam x Nam nên tớ biết nhiều người sẽ có ác cảm với thể loại này, tớ không bắt các bạn thay đổi sở thích được, nhưng đây là truyện của tớ và sở thích của tớ nên xin hãy tôn trọng tớ, nếu không thích các bạn cứ im lặng rời khỏi, xin đừng vào gây war. ​- Vì là thể loại Nam x Nam nên tất cả các nhân vật chính đều là nam, các bạn không cần comment xin giới tính đâu.​- Các cặp tớ cũng quyết định hết rồi nên cũng đừng comment xin cặp nhé, nhưng mà có thể xin hint cặp nào đó thì được, tùy tình hình tớ có thể thêm vào.​- Đừng comment thúc giục nhé, tớ tự biết phải làm thế nào mà.​Summary:​ Đây là câu chuyện về chúng tôi. Cho dù nó không phải là một câu chuyện đáng tự hào về những chiến tích lẫy lừng của các vị anh hùng giải cứu thế giới, hay về một tình bạn cao cả bất diệt, không, thậm chí tôi có thể nói ngay với bạn rằng, nó là một câu chuyện chẳng hề tốt đẹp gì, thế nhưng, nó là tất cả những gì chúng tôi có, kể từ cái ngày định mệnh ấy.
+Link đến các chương:​Chương 1: Phần 1 Phần 2 Phần 3​Giới thiệu nhân vật:​Phần 1​ ​Một số chú thích:​- Hệ thống tổ chức của trường Cozdia: Gồm 3 khối lớp: ​ + Stella: Năm nhất (Giống kiểu lớp 10 ở Việt Nam)​ + Luna: Năm hai (Giống kiểu lớp 11 ở Việt Nam)​ + Sol: Năm ba (Giống kiểu lớp 12 ở Việt Nam)​(Note: 2 nhân vật xuất hiện ở phần 1 chương 1 là thuộc khối Stella nhé)​- Mỗi khóa của trường Cozdia sẽ tổ chức một lớp học đặc biệt cho các thiên tài ở các lĩnh vực khác nhau:​ + Stella: Lớp A (Lớp chuyên về hội họa, điêu khắc,...)​ + Luna: Lớp S (Lớp chuyên về khoa học tự nhiên)​ + Sol: Lớp M (Lớp chuyên về Âm nhạc)​ ​Tác giả lảm nhảm tí về cái tựa đề: Có ai biết bài Behind Blue Eyes của The Who mà được Limp Bizkit cover lại không? Cái bài đấy đại khái nội dung nói về mấy thằng phản diện (theo tác giả thì là vậy), mà truyện này nói chung cũng nói về mấy nhân vật được coi là phản diện ấy, nên mới lấy tên đấy, chứ nội dung chả liên quan gì đến bài đấy đâu.​

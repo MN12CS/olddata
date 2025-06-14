@@ -1,0 +1,23 @@
+---
+title: "Bí quyết nói chuyện trước đám đông"
+date: 2025-06-12T23:32:35Z
+slug: bi-quyet-noi-chuyen-truoc-dam-dong
+draft: false
+---
+
+## Bí quyết nói chuyện trước đám đông
+
+## HoangDann
+
+Phần lớn mọi người xem việc phải nói chuyện trước đám đông là nỗi sợ hãi kinh khủng nhất. Nỗi sợ đó còn hơn cả sợ rắn, sợ đi máy bay, hoặc ngay cả sợ cái chết. Nhưng chúng ta không thể trốn tránh nó mãi. Nhiều người trong chúng ta có thể được mời ra trình bày một báo cáo, phát biểu trong buổi họp phụ huynh học sinh, nói lời chúc mừng trong lễ cưới. Làm sao để bạn có thể vượt qua những thử thách đó. Thật đơn giản chỉ với một chút thời gian luyện tập.
+
+- Quy tắc quan trọng nhất trong việc nói chuyện trước đám đông là bạn phải biết mình nói gì. Điều này nghe có vẻ ngớ ngẩn, nhưng thông thường các “diễn giả” không hề có một ý niệm rõ ràng về những gì họ truyền đạt đến người nghe. Bạn cần phải biết chính xác bạn sẽ đưa người nghe đến đâu. Một khi đã biết, hãy liệt kê nó thành 3 hay 4 điểm chính và soạn bài nói của mình tập trung vào những điểm này thôi. Bạn không phải là một cuốn từ điển sống, việc đưa ra quá nhiều thông tin hay không đủ thông tin cũng đều dở như nhau.
+
+- Thực hành, nhưng không cần quá nhiều: Liệt kê ra những gì bạn sẽ nói và tập nói 1 hay 2 lần. Sẽ rất hay nếu như bạn canh thời gian trong khi tập, việc đó sẽ giúp bạn kiểm soát được thời gian nói mà không sợ bị lố. Có thể sẽ có những phút ngẫu hứng tình cờ xảy ra làm bạn bất ngờ và làm khán giả thích thú. Bạn sẽ không còn muốn xuất hiện trước đám đông nếu bạn đã nói về một đề tài cả ngàn lần rồi, bạn sẽ cảm thấy chán và chẳng thèm để ý tới khán giả nữa. Bạn cũng nên lập kế hoạch sẽ mặc những gì. Chú ý rằng đó phải là bộ đồ mà bạn cảm thấy thoải mái khi mặc vào. Và điều quan trọng nhất, đó phải là bộ đồ mà bạn biết sẽ làm mình nổi bật. Quyết định trước việc mình sẽ mặc gì trong ngày diễn thuyết sẽ làm bạn bớt lo lắng hơn.
+
+- Hãy là chính mình! Nhiều người cảm thấy cần phải rập khuôn theo phong cách của ai đó khi nói trước đám đông, đó là vì họ cảm thấy họ không đủ tự tin để lôi cuốn sự chú ý của khán giả. Một số cảm thấy bị “khớp” và nghiêm túc quá mức và quên rằng tính hài hước cũng là một công cụ quan trọng của diễn giả. Đừng nên chỉ tập trung vào vấn đề chính, đôi khi những giai thoại cá nhân hay những mẩu chuyện nhỏ cũng là một cách rất tốt để hòa nhập với khán giả.
+
+- Khán giả là bạn bè! Khán giả luôn ở đó, bởi vì họ quan tâm tới những gì bạn sẽ nói và muốn nghe bạn nói về vấn đề đó. Họ muốn bạn phải làm tốt. Đừng nghĩ khán giả như là một khối người thù địch, hãy xem họ chỉ là một nhóm cá nhân riêng lẻ. Hãy cố gắng nhìn vào một ai đó một lúc. Khi nói chuyện với khán giả, tiếp thu những ý kiến phản hồi của họ để hoàn thành bài nói chuyện của mình.
+
+- Bạn sẽ vượt qua thôi mà! Tôi chưa bao giờ từng nghe thấy có ai chết trên bục diễn thuyết cả. Bạn cũng không bị thở dốc, hụt hơi, quên mất tên mình hay bị nổi nóng. Đấy là những chuyện gây ám ảnh cho bất cứ ai phải đứng trước đám đông. Người ta gọi đó là cơn ác mộng của diễn viên. Việc đó hoàn toàn bình thường. Sử dụng một số kỹ thuật thư giãn trước khi bắt đầu. Bạn có thể tìm một nơi để nhảy lên nhảy xuống hoặc dậm chân thật manh, điều này sẽ giúp bạn cảm thấy vững vàng và giảm bớt căng thẳng. Lắc bàn tay và co duỗi nắm tay. Điều này sẽ làm tay bạn bớt run. Nếu run tay thực sự là một vấn đề thì hãy nắm lấy một tấm danh thiếp hay nắm vào bục diễn thuyết khi nói chyện. Lè lưỡi ra, trợn mắt và há miệng to hết cỡ, sau đó nhăn tít mặt lại. Việc này sẽ làn thư giãn các cơ mặt của bạn. Hít thật sâu và thở mạnh ra tiếng để làm ấm giọng của bạn. Tưởng tượng như bạn đang ở trên một đám mây, không gì có thể làm hại đến bạn khi bạn đang ở trong đó. Hãy cố gắng giữ hình ảnh ấy trong đầu khi bạn đang đứng trên diễn đàn. Sẽ trở nên dễ dàng hơn! Nói chuyện trước công chúng càng nhiều, việc đó càng trở nên dễ dàng hơn. Có khi bạn còn cảm thấy thích nữa ấy chứ!
+Nguồn: www.diendankienthuc.net

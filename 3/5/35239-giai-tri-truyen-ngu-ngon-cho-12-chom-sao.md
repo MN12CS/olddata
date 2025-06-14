@@ -1,0 +1,171 @@
+---
+title: "Giải trí Truyện ngụ ngôn cho 12 chòm sao"
+date: 2025-06-13T00:37:44Z
+slug: giai-tri-truyen-ngu-ngon-cho-12-chom-sao
+draft: false
+---
+
+## Giải trí Truyện ngụ ngôn cho 12 chòm sao
+
+## muahoa
+
+Truyện ngụ ngôn cho 12 chòm sao​ 
+
+ 
+ 
+Bạch Dương : chuyện 2 chiếc túi
+ 
+ 
+Prometheus tạo ra con người và treo ở cổ mỗi người 2 chiếc túi; túi đựng lỗi lầm của người khác thì treo trước ngực, còn túi chứa lỗi lầm của chính bản thân người đó thì treo ra sau lưng. Vì vậy, người đời luôn có thể nhanh chóng nhìn thấy những lỗi lầm của người khác, mà như “mù” trước lỗi lầm của mình.
+ 
+ 
+Câu chuyện này minh họa cho việc mọi người thường rất nhạy bén với những lỗi lầm của người khác, nhưng lại bỏ qua thiếu sót của mình.
+ 
+Bạch Dương thường rất nhanh chóng chỉ trích và trách móc người khác, nhưng trước khi làm vậy cũng nên nhìn lại mình một chút.
+ 
+
+ 
+ 
+Kim Ngưu : Góa phụ có con gà mái
+ 
+ 
+Có 1 bà góa phụ sở hữu con gà mái đều đặn đẻ mỗi ngày 1 trứng. Nghĩ rằng cho gà ăn nhiều thì mỗi ngày nó sẽ đẻ được nhiều hơn, bà nâng khẩu phần của con gà lên gấp đôi. Sau 1 thời gian nó trở nên béo ú và tịt đẻ.
+ 
+ 
+Câu chuyện này minh họa: một số người muốn nhận được nhiều lợi ích hơn vì lòng tham, kết quả là không được gì mà còn bị mất.
+ 
+Kim Ngưu nên ghi nhớ: Tích lũy của cải là quan trọng, nhưng đừng quên rằng, dục tốc thì bất đạt, cái gì cũng phải từ từ.
+ 
+ 
+
+ 
+Song Tử: Người chăn ngựa và chú ngựa
+ 
+ 
+Có 1 người chăn ngựa thường bí mật trộm bớt 1 phần lúa mạch của ngựa để đem bán, tuy nhiên ngày nào cũng vẫn đến vuốt ve, chải lông cho nó, khen nó thật đẹp mã. 1 lần nọ, con ngựa nói với anh chàng: “Nếu anh thật sự muốn tôi xinh đẹp, thì đã không ăn bớt khẩu phần của tôi”.
+ 
+ 
+Câu chuyện này ý nói: Có những người sử dụng thuật hùng biện và những ân huệ nho nhỏ để hối lộ những người khác, nhưng cuối cùng cũng chẳng thể che mắt họ mãi.
+ 
+Sẽ rất hữu ích nếu Song Tử hiểu được rằng: bạn có thể quyến rũ một người bằng sự hấp dẫn và những lời mật ngọt, nhưng chỉ có thể chinh phục được trái tim người đó bằng sự chân thành.
+ 
+ 
+
+ 
+Cự Giải: Kiến và ve sầu
+ 
+ 
+Mùa hè, các loài động vật khác có cuộc sống nhàn nhã, hưởng thụ. Kiến chăm chỉ thu thập lúa mì và lúa mạch, dự trữ thức ăn cho mùa đông. Ve sầu ngạc nhiên và hỏi “Tại sao anh phải làm việc khó khăn như vậy?”, và chế giễu kiến không biết thưởng thức cuộc sống. Kiến im lặng. Mùa đông đến, ve sầu không có thức ăn, phải đến xin ăn kiến . Kiến nói “Hey, nếu vào mùa hè, bạn không chỉ trích tôi mà cũng lo dự trữ lương thực thì bây giờ không lo đói.”
+ 
+ 
+Chuyện này nói lên rằng: mặc dù tình hình có thay đổi thì lo xa và lập kế hoạch trước vẫn có thể giúp ta tránh thảm họa.
+ 
+Cự Giải thường rất sợ đối đầu với sự thay đổi và thường không có sự chuẩn bị kỹ càng, nước tới chân mới nhảy. Hãy khắc phục nhé.
+ 
+ 
+
+ 
+Sư Tử: Quạ giả Công
+ 
+ 
+Thượng đế triệu tập tất cả muông chim tham dự đại hội để lập Điểu vương. Tất cả các loài chim đều lo chải chuốt, trang điểm để dự hội. Quạ đen biết mình chẳng thể sánh kịp, bèn đi xin mỗi chú chim 1 chiếc lông và cắm rất cẩn thận lên người. Khi ngày hội tới, Thượng đế nhìn khắp muông chim xinh đẹp và nhận thấy Quạ có bộ cánh lộng lẫy khác thường, bèn cho truyền lập hắn làm Điểu vương. Các loài chim khác tức giận và lấy lại lông của mình, thế là Quạ lại trơ trọi với bộ lông đen xấu xí.
+ 
+ 
+Ý nghĩa: Bề ngoài sửa soạn lộng lẫy để che mắt người khác nhưng bên trong thực chất là rỗng tuếch thì sớm muộn gì cũng bị lật tẩy
+ 
+Sư Tử nên ghi nhớ là không nên đánh giá người khác qua vẻ bề ngoài, cũng như đừng quá chú trọng chăm sóc ngoại hình mà quên đi việc nuôi dưỡng tâm hồn – vẻ đẹp bên trong.
+ 
+
+ 
+ 
+Xử Nữ: Động đất
+ 
+ 
+Có một lần, một ngọn núi lớn xảy ra chấn động, âm thanh rất lớn. Nhiều người tập hợp ở dưới chân núi xem xét, lo lắng không biết có chuyện gì xảy ra. Mọi người đang nhốn nháo thì thấy thì chân núi chạy ra một con chuột.
+ 
+ 
+Câu chuyện nói rằng: không phải tất cả dấu hiệu xấu đều dẫn tới bi kịch.
+ 
+Vì vậy Xử Nữ không nên quá quan trọng hóa mọi vấn đề, dẫn đến mất thời gian và tâm sức vô ích.
+ 
+ 
+
+ 
+Thiên Bình: Con cáo và chùm nho
+ 
+ 
+Con cáo nhìn thấy chùm nho chín mọng ngon lành, thèm nhỏ dãi, muốn ăn nhưng hiềm nỗi với không tới. Nhìn một hồi không thấy có cách, hắn hất đuôi bỏ đi, tự an ủi “Nho còn xanh lắm”
+ 
+ 
+Đúng là năng lực hạn hẹp nhưng chẳng muốn thừa nhận, liền lấy lý do là thời cơ chưa chín muồi.
+ 
+Thiên Bình hay mắc lỗi tự an ủi mình và bằng lòng với hoàn cảnh như vậy, hãy biết nhìn thẳng vào điểm yếu của mình và khắc phục nó, bạn sẽ tiến bộ hơn.
+ 
+
+ 
+ 
+Thiên Yết: Cậu bé và Chuột nhắt
+ 
+ 
+Cậu bé thấy chuột nhắt bị mắc kẹt chân trong bẫy chuột, thấy tội nghiệp nên định thả chuột ra. Chuột thấy người đụng vào liền lập tức cắn. Cậu bé khóc thét lên và chạy đi, lát sau mèo đi qua, thấy chuột nhắt liền vồ lấy ăn thịt.
+ 
+ 
+Nhiều khi, có những cơ hội, những người tốt đi qua định chìa tay giúp đỡ ta, nhưng chính ta lại gạt bỏ cơ hội và lòng tốt đó đi.
+ 
+Thiên Yết nên biết cách mở lòng đón nhận tình cảm chân thành của người khác hơn.
+ 
+ 
+
+ 
+Nhân Mã: Con chó già
+ 
+ 
+Có con chó săn cự phách nổi tiếng khắp vùng, giúp chủ săn được bao nhiêu thú. Khi về già, nó trở nên chậm chạp, làm sổng mất con mồi của chủ. Chủ tức giận, đánh mắng, chó thều thào mà rằng “Ông chủ à, lòng dũng cảm của tôi qua bao nhiêu năm vẫn vậy, có điều cơ thể này chẳng thể trẻ mãi”
+ 
+ 
+Câu chuyện này nhắc chúng ta rằng: sinh lão bệnh tử là quy luật mà chẳng ai trốn tránh được
+ 
+Nhân Mã tràn trề sinh lực và trẻ trung, hầu như rất chủ quan với sức khỏe của mình, cứ nghĩ phong độ và sức sống mãnh liệt này sẽ theo mình mãi. Bạn nên nhớ là bệnh tật không chừa 1 ai đâu nhé !
+ 
+
+ 
+ 
+Ma Kết: Đá quý và Thóc
+ 
+ 
+Đá quý bị rớt trên sân thóc, vênh váo nói với thóc rằng ta đây là vật quý giá mà kẻ tầm thường như các người chẳng mơ đến được. Gà trống đang nhặt thóc , nghe Đá quý nói vậy bèn bảo “Với ta thóc mới là thứ quý giá nhất lúc này, còn ngươi chẳng có giá trị gì hơn 1 hạt cát cả”.
+ 
+ 
+Câu chuyện ý nói: 1 vật, 1 việc có thể rất quý giá và quan trọng với 1 người, nhưng lại là tầm thường với kẻ khác.
+ 
+Ma Kết hay có xu hướng áp đặt suy nghĩ và quan điểm của mình lên người khác mà quên mất rằng mỗi người có cách nhìn khác nhau.
+ 
+
+ 
+ 
+Bảo Bình: Sư Tử, Cáo và Sói
+ 
+ 
+Sư Tử đang bệnh nặng và rất lo sợ các con vật khác thừa cơ ám hại mình để chiếm ngôi. Nó đặc biệt dè chừng Sói và dặn cận vệ tin cẩn là Cáo phải canh gác cẩn thận. Nào ngờ, chính Cáo đã lén lút mở cửa sau cho Sói đang đêm vào hạ sát Sư Tử.
+ 
+ 
+Đặt niềm tin phải đặt đúng chỗ, khi người bạn thân thiết mà mình tin cậy lại là kẻ thù thì đó lại là kẻ thù đáng sợ nhất.
+ 
+Bảo Bình sống vì bằng hữu rất nhiều và thường không phòng bị nhưng có những đối tượng ta không thể đặt hết niềm tin vào được.
+ 
+
+ 
+ 
+Song Ngư: Rắn và Gà mái
+ 
+ 
+Gà mái tìm thấy 1 ổ trứng rắn bèn nằm ấp. Chim bồ câu bay ngang thấy vậy bèn chê trách “Chị thật là ngốc, khi chúng nở ra rồi, thì chính chị và các con của chị sẽ bị chúng cắn đầu tiên”
+ 
+ 
+Có những đối tượng không thể cảm hóa nổi, chúng sẵn sàng phản lại ân nhân của mình không chút xót thương.
+ 
+Lòng nhân từ không thể cứu vớt và thay đổi bản chất của tất cả mọi người. Đây là bài học cay đắng của Song Ngư.
+ 
+ 
+ 
+Nguồn: ST

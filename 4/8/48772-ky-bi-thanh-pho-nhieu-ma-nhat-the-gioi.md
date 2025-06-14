@@ -1,0 +1,22 @@
+---
+title: "Kỳ bí thành phố nhiều ma nhất thế giới"
+date: 2025-06-13T12:24:48Z
+slug: ky-bi-thanh-pho-nhieu-ma-nhat-the-gioi
+draft: false
+---
+
+## Kỳ bí thành phố nhiều ma nhất thế giới
+
+## AriesMio
+
+Nếu tìm hiểu lịch sử có nhiều điều rùng rợn của thành phố thời Trung cổ này, cộng với khu trung tâm mà cuộc cách mạng công nghiệp dường như chẳng để lại dấu vết nào thì thật ra chẳng có gì là lạ khi ở đây có nhiều ma hơn những nơi khác.
+Vào thời của những cuộc Chiến tranh Hoa hồng tranh giành ngai vàng giữa 2 dòng họ York và Lancaster trong thế kỷ 15, người ta đã chặt đầu địch thủ rồi cắm lên trên cọc nhọn của chiếc cổng thành đồ sộ Micklegate Bar.
+Ở York gần như không một ngõ hẻm hay một quán rượu nào mà lại không có một con ma riêng. Có đến nửa tá công ty chuyên dẫn du khách đi tham quan ma ("Ghost Walk Companies"). Cuộc tìm kiếm bắt đầu ngay trong Nhà thờ lớn của York, ngôi nhà thờ theo lối kiến trúc Gothic lớn nhất của Anh quốc mà người ta đã phải mất 250 năm mới xây xong.
+Khi vẫn đang còn chiêm ngưỡng các tác phẩm vẽ trên kính tuyệt đẹp của nhà thờ, những cái được gọi là Five Sisters Windows, 5 cửa kính chị em cao 17 m lớn nhất trong Anh quốc, người hướng dẫn mặc y phục đen sẽ thầm thì kể về một đạo quân La Mã về đêm thường mang áo chẽn với mũ sắt lang thang trên con đường La Mã Via Decumana xuyên qua khu phố cổ.
+Cách đây khoảng 50 năm, Harry Martindales, lúc đấy là một thợ học việc mới 17 tuổi, đang làm việc trong tầng hầm của ngôi nhà thuộc nhà thờ lớn. Ông bất chợt nhìn thấy một kỵ binh người La Mã mang quân phục xanh cùng một vài người lính đi xuyên qua tường về hướng nhà thờ. Bạn bè và họ hàng chẳng ai tin câu chuyện bí ẩn này. Ngược lại họ còn cho rằng ông đã bị điên. Nhưng 15 năm sau đó, khi phải tiến hành đào xới trong nhà thờ lớn, người ta đã phát hiện được di tích của một con đường La Mã ngày xưa ở dưới nhà thờ lớn và ngôi nhà mà Harry đã làm việc.
+Nhưng York không chỉ có ma La Mã. "Mad Alice" ở ngõ Lund 's Court rất nổi tiếng. Năm 1825 người ta đã treo cổ bà trong Pháo đài York (York Castle) vì cho rằng bà bị điên. Đáng thương hơn là "Grey Lady", bóng ma ẩn hiện ở những hàng ghế đầu trong Nhà hát Hoàng gia mà thời Trung cổ vẫn còn thuộc Bệnh viện Thánh Leonard của các nữ tu sĩ. Ngày xưa người ta đã chôn một nữ tu sĩ ngay trong tường vì đã dan díu với một vị quý tộc. Câu chuyện rùng rợn là vậy nhưng nếu người phụ nữ mang bộ áo tu màu xám này xuất hiện thì đó lại là điều tốt cho lần trình diễn sắp đến.
+Có cả một ma hoàng hậu trong King's Manor thuộc Đại học York ngày nay nữa. Ngày xưa đây là nhà của tu viện trưởng của Tu viện St. Mary thuộc dòng Biển Đức. Năm 1541, Queen Catherine Howard, vợ thứ tư của Vua Henry VIII, đã hẹn hò người yêu của bà là Thomas Culpeper ở đây. Việc này đã rút ngắn cuộc đời của bà một cách đáng kể. Mang trên tay một đóa hoa hồng, bà thường hay xuất hiện ở nơi ngày xưa là vườn hồng của lâu đài.
+Cũng hay được thuật lại là câu chuyện của một con ma biết ăn năn sám hối thường tìm về St. William's College ở phía sau Nhà thờ lớn. Hắn đã cùng người em trai cướp và giết chết một vị linh mục giàu có, lạnh lùng phản bội đồng phạm sau đó rồi còn đứng xem người này bị treo cổ như thế nào nữa.
+Còn có "Bá tước không đầu": Năm 1572 người ta đã chặt đầu Thomas Percy, bá tước của Northumberland, người trung thành với Công giáo mưu hại Nữ hoàng Elizabeth I theo Tin Lành. Đầu của ông được cắm để bêu rếu trên Micklegate Bar. Đến một lúc nào đấy cái đầu được mang đi chôn vội vả ở đâu đó trong nghĩa địa của Holy Trinity Church và từ đó thân hình của vị bá tước đêm đêm đi tìm cái đầu của chính mình.
+Phía nữ cũng có "người đàn bà không đầu": Trong thế kỷ 18 một người phụ nữ giàu có đã bị cướp giết chết. Nhiều ngày sau đó, khi phát hiện ra thì đầu bà đã rời thân mình. Và từ đó ma không đầu này thường hay xuất hiện trong khu phố Bishopthorpe, nơi bà bị giết chết. Nhiều năm trước đây người dân ở Middlethrope và Bishopthorpe ai nấy đều cho rằng mình đã từng nhìn thấy con ma không đầu này.
+Không có nơi nào là an toàn không có ma cả, trong quán rượu lại càng không. Trong The Old Starre Inn (số 40 Stonegate) khách đến quán có thể nghe được tiếng rên rỉ của những người lính bị thương. Đặc biệt táo bạo là con ma trong quán The Cock and Bottle (số 61 Skeldergate) mà người ta đã nhận dạng được chính là George Villiers, công tước thứ hai của Buckingham. Kẻ độc thân không biết ngượng này, "người hôn phụ nữ và làm cho họ kêu thét lên", chỉ xuất hiện trước phụ nữ và đôi khi còn chọc ghẹo họ nữa.
