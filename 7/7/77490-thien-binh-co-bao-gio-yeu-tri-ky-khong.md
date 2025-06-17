@@ -1,0 +1,12 @@
+---
+title: "Thiên Bình có bao giờ yêu tri kỷ không?"
+date: 2025-06-14T08:01:11Z
+slug: thien-binh-co-bao-gio-yeu-tri-ky-khong
+draft: false
+---
+
+## Thiên Bình có bao giờ yêu tri kỷ không?
+
+## onepiece
+
+Một Thiên Bình có thể kể hết tất cả mọi chuyện (dù là thầm kín nhất) cho một người con gái nghe. Thiên Bình ấy thậm chí rơi nước mắt trc mặt cô ấy. Thiên Bình ấy cảm thấy an toàn, bình yên và dc là chính mình khi bên cạnh bạn nữ này, nhờ cô ấy dội một gáo nước lạnh cho tỉnh mộng, đã giúp TB hay đắn đo đã dứt khoát đưa ra quyết định về mối quan hệ đang trên đà tuột dốc với người yêu (và không hối hận, dù đau vẫn không lập lờ thay đổi) Cô gái đã nói với TB, rằng cô ấy thích TB, cô đã tạm thời gác trái tim sang bên và dùng logic phân tích cho TB hiểu (điều mà cô rất ghét, vì với cô, yêu là bằng trái tim chứ không phải khối óc) TB ấy trong lúc yếu đuối nhất, đã nói với cô gái ấy. "Tui sẽ cố giữ lấy bạn, tui đưa quyết định này cũng vì bạn"...và hôm nay nhìn thấy TB rơi nước mắt vì nói lời cay đắng với người yêu, TB đã rưng rưng nói rằng...mối quan hệ của TB không cứu vãn được nữa, người yêu của TB muốn níu kéo, nhưng TB đã thay đổi, k tìm được ngọn lửa lúc đầu. Cô gái ấy đau lắm, cái "đau dùm" cho bạn, cho kẻ đã chiếm trái tim cô, nhưng trên hết cô đau cho chính bản thân mình khi thấy TB vẫn quan tâm cô gái kia lắm. Và cô sợ...cô bắt đầu sợ người đàn ông thiếu quyết đoán này sẽ lại làm tổn thương trái tim đã chằng chịt sẹo của cô, hoặc giả lợi dụng sự quan tâm của cô mà chính người đó cũng không biết mình đang lợi dụng. Cô sợ nếu cô liều tiến tới, liệu TB ấy có đáp lại tình cảm của cô không? TB đã nhiều lần bóng gió trái tim mình cũng có hình bóng của cô. Cô hiểu, quyết định chuyện giữa mình và người yêu đau lắm chứ, TB cần thời gian, cô vẫn có mặt khi TB cần bờ vai để dựa, như là thói quen, bất cứ đâu TB cũng lôi cô vào cuộc cứ như cô đã trở thành một lối sống thường ngày. Vì sợ đau là thế, cô cũng lưỡng lự, cũng nước đôi, vừa muốn tiến vừa muốn lùi, TB thấy rõ điều này, và mỗi lần cô muốn thụt lùi là TB cũng lùi lại, cũng cái kiểu "tui xem bạn như tri kỷ". Cô gái ấy tự hỏi. "TB ấy xem mình như tri kỷ, có ai lại yêu tri kỷ của mình đâu? Hay do mình cứ lấp lửng kiểu đó nên TB cũng sợ?" thế, chuyện người ta thì giõi, đến phiên mình thì cũng vậy thôi. TB à, sớm cho tớ cây trả lời nhé!

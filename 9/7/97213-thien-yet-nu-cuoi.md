@@ -1,0 +1,12 @@
+---
+title: "Thiên Yết - Nụ cười"
+date: 2025-06-14T10:43:55Z
+slug: thien-yet-nu-cuoi
+draft: false
+---
+
+## Thiên Yết - Nụ cười
+
+## Dark Scorpio BSWO
+
+Cười là một biểu hiện trạng thái của con người, nói nụ cười biểu hiện cảm xúc không hẳn đúng, vì nụ cười có thể làm vỏ ngụy trang, hay trấn an người khác.. vân vân và mây mây. Tuy nhiên, mỗi người đều có một nụ cười khác nhau, và cách thể hiện khác nhau. Các bạn biết không, một nụ cười thật sự rất hiếm hoi trên khuôn mặt của TY, cười lớn, cười khẩy, cười mỉm... tự nhiên hết sức, chẳng có một sự thật trên nụ cười ấy. Vì sao? Vì nụ cười đó dẽ dàng biến mất, không chú đọng lại. Ừ thì vui thật đấy , nhưng cũng chỉ là phù du mà thôi. Tôi, một TY luôn muốn phá cách , tôi nghiên cứu về cung hoàng đạo, về cung của mình thật kĩ, tôi chống lại bản thân. Tôi thay đổi, không dựa dẫm cảm xúc vào ai, tự hứa với bản thân không được phép khóc một lần nào nữa, dù là một mình. Đau khổ trong gần 4 tháng, tôi từ bỏ điện thoại, nghe nhạc, chơi game, và tôi từ bỏ đứa bạn thân nhất. Đau đớn trong những giấc mơ, luôn thấy đứa bạn nhìn mình trách móc, đi học gặp nhau làm ngơ dù khác lớp. Con tim đau nhói, tự nói với lòng không được khóc, mình phải vượt qua giới hạn của một TY. Không một lời nói chuyện trên lớp, không quan tâm ăn mặc, đầu tóc bù xù. Rồi mình gặp lại đứa bạn, và mình quyết thay đổi trong tích tắc đó. Mình đã cười thật lòng, một nụ cười không chút giả tạo, và mình cũng nhận lại một nụ cười không hơn không kém. Nhưng tình bạn sâu đậm kết thúc từ đó, giá như mình không đi vào con đường đó thì những cảm xúc của tình bạn đó sẽ không bao giờ mất. Nhưng nụ cười cuối đó cũng khiến mình sống hòa đồng trở lại. Chỉ có một điều, điều này sau này mình mới phát hiện. Đó là hậu quả của gần 4 tháng đó. Mình tưởng mình đã quên được, nhưng con tim nhắc nhở mình. Những đêm chợt tỉnh giấc, con tim đau nhói, nước mắt muốn trào ra, nhưng tự mình nhắc nhở ,không được khóc, mày đã hứa rồi mà, rồi lại phải gặng một nụ cười mếu máo trên môi. Sáng mai lại cười như chưa có chuyện gì, cười đùa trên lớp. Trên đường đi học về, con đường bí mật của riêng tôi, bật nhạc:" until you" ..." nobody nobody, until you"   " không có ai, không có ai, cho đến khi em đến'' không ai muốn chạm vào tôi, không ai muốn yêu tôi, cho tới khi em đến. Tôi lại thở dài , chưa có một ai như vậy đối với tôi, và có lẽ sẽ không bao giờ tồn tại một người như vậy trong cuộc đời tôi. Rồi tôi lại cười, một nụ cười nhẹ nhàng. Dark Wolf BSWO

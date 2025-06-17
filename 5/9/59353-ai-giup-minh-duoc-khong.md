@@ -1,0 +1,33 @@
+---
+title: "Ai giúp mình được không...?"
+date: 2025-06-14T04:23:10Z
+slug: ai-giup-minh-duoc-khong
+draft: false
+---
+
+## Ai giúp mình được không...?
+
+## LittleWings
+
+Là thế này...
+Mình là Thiên Bình, người ta cứ bảo mình hợp với Song Tử, hợp lắm ấy, thế nhưng mình ghét hết tất cả Song Tử cả nam lẫn nữ luôn..
+Cho đến khi khoảng cuối năm lớp 7, mình thì hay chơi nét, 1 nhóc nhỏ hơn mình 1 tuổi (chưa biết cung gì) tự dưng làm quen vs mình  mà nói chuyện thấy vui lắm ấy, cảm giác thân thuộc từ lâu hay sao vậy. Hôm đó ở net rất vui.
+Từ đấy mình với nhóc không nói chuyện nhiều, cứ 2 3 tháng thấy nhau 1 lần vì nhà gần thì mình chào, nó cũng cười chào lại, tuyệt nhiên chẳng ai đứng lại hỏi han nói chuyện gì cả.
+Khoảng 2 tuần nay mình với nó bắt đầu nói chuyện lại, đầu tiên là fb xong nhóc đó ra cái quán cũ mà mình hay chơi bảo ở đấy rồi và kêu mình ra cùng. Mình từ chối vì lười dắt xe đi, nó hỏi địa chỉ quán mình đang chơi hiện tại để nó tìm rồi bọn mình hẹn hôm sau gặp, rồi chơi game. Mình đã nghĩ nó không tìm ra được, bởi vì quán mình chơi rất kín, khó tìm.
+Thế mà hôm sau nó tìm được, sau khi mình đi học thêm về, chả biết mình bị làm sao, đạp xe nhanh như sợ nó chờ, nó giận. Hôm đấy 2 đứa ngồi chơi rồi nói chuyện, về nhà cùng đường rồi chào nhau ở ngã tư. Lúc mình đang quét nhà lúc về, nó đi qua, cười cười "chăm nhỉ". MÌnh và nó đã nhận nhau là chị em 1 nhà.
+Thế là cứ vậy, mình cũng chủ động hẹn gặp nó.
+Đến thứ 7 mình rảnh, mình với nó chơi game mấy tiếng liền rồi đạp xe vòng quanh đủ mọi chỗ tận 2h. Nó kể nhiều, mình cũng cười cười theo. Đến lúc đấy mình biết mình đang quý một Song Tử... mà lại còn là Song Tử nhiều người yêu (nó kêu nó có hơn 20 đứa)..
+Thứ bảy tuần trc mình vs nó hẹn nhau đi chơi tối, ba mẹ mình k ở nhà nên cũng buồn. Đang đi đến chỗ ngã tư thì mẹ mình đi xe máy về. Thế là mẹ k cho mình đi, bảo cho ST vào nhà mình chơi. Mẹ thẩm vấn nó, nó trả lời ấp úng, cứ xong 1 câu là nó quay sang mình, mặt sợ sệt ^^ Mình xin phép lôi nó ra ngoài.
+Tối đấy mặc dù bị tóm là xui xẻo, nhưng vui lắm bởi vì mình vs nó ngồi tâm sự suốt mấy tiếng...
+Mình biết là mình thích nó luôn rồi...
+Nhưng mình không nói.. vì ST yêu đơn phương 1 Sư tử chưa tán được.
+Mình cười , đùa cợt, hành động tự nhiên như chẳng có gì với nó... nhưng thực ra bên trong đổ vỡ hết sạch... 
+Mình nói với nó... "chị giấu em 1 điều đấy, sau này e mới biết được..."
+Mình có nói bóng gió vs nó là mình đơn phương 1 người  ... thằng đó có khả năng khiến tim chị nhảy ra ngoài và tẩy sạch trí nhớ chị lúc chị ở cạnh... Mình đã quên mất phải đi học thêm khi đi về cùng nó sau lúc chơi game...
+Hôm nay nó nói Sư cũng thích nó ..
+Mình cười... mình chúc nó... dặn dò nó...
+lúc đấy mình muốn khóc... nhưng vì nó cười vui vậy... nó hỏi hồn nhiên, chỉ vào cái stt fb của mình "tôi yêu 1 người, nhưng tên đó đơn phương ng khác..." mà hỏi "ai đấy chị?" nên mình nín lại...
+___
+Mình biết đến lúc phải dừng lại rồi,  một người chị gái không bao giờ có thể thích thằng em mình vậy được ^^ mặc dù mình vẫn cười vì nó bảo mật khẩu nhật kí nó: tên người nó thân nhất bây giờ là mình...
+Nhưng không đâu nhỉ... mình sẽ giả vờ...
+Mình giỏi đóng phim lắm ấy...

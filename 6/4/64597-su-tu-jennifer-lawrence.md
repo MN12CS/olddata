@@ -1,0 +1,18 @@
+---
+title: "[Sư Tử ] Jennifer Lawrence"
+date: 2025-06-14T05:33:33Z
+slug: su-tu-jennifer-lawrence
+draft: false
+---
+
+## [Sư Tử ] Jennifer Lawrence
+
+## RoyalTaurus
+
+​Jennifer Shrader Lawrence[1][2][3] (sinh ngày 15 tháng 8 năm 1990) là một nữ diễn viên điện ảnh người Mỹ với tuổi đời còn rất trẻ nhưng đã sớm gặt hái được nhiều thành công vang dội trong sự nghiệp diễn xuất và là một trong những tên tuổi nổi bật nhất Hollywood hiện nay. Vai diễn đầu tiên của cô là một trong những nhân vật chính của loạt phim truyền hình The Bill Engvall Show (2007–2009) phát trên kênh TBS. Từ đó trở về sau cô xuất hiện trong các bộ phim độc lập như The Burning Plain (200 và Winter's Bone (2010) - bộ phim đã mang lại cho Jennifer Lawrence đề cử giải Oscar đầu tiên trong sự nghiệp ở hạng mục Nữ diễn viên chính xuất sắc nhất vào năm 2011 khi vừa mới tròn 20 tuổi, giúp cô lập kỷ lục khi trở thành người trẻ tuổi thứ hai được đề cử ở hạng mục này tại thời điểm đó.
+
+Năm 22 tuổi, qua bộ phim Silver Linings Playbook (2012), Lawrence vào vai Tiffany Maxwell - một phụ nữ trưởng thành nghiện tình dục với nhiều diễn biến tâm lý phức tạp đã mang về cho cô giải Quả cầu vàng cùng một tượng vàng Oscar đầu tiên, giúp cô trở thành diễn viên trẻ nhất từng hai lần được đề cử giải Oscar cho hạng mục Nữ diễn viên chính xuất sắc nhất và là người trẻ tuổi thứ hai trong lịch sử giành được giải thưởng danh giá này.[4] Đến năm 2013, thành công tiếp tục đến với cô gái trẻ, với vai Rosalyn Rosenfeld - cô vợ của một tay lừa đảo thiên tài chuyên thực hiện các phi vụ có liên quan đến những tác phẩm nghệ thuật trong bộ phim hài của đạo diễn David O. Russell - American Hustle (2013) lại tiếp tục giúp cô mang về giải Quả cầu vàng, giải BAFTA và nhận được đề cử giải Oscar thứ ba trong sự nghiệp ở hạng mục Nữ diễn viên phụ xuất sắc nhất.[5][6][7][8]
+
+Jennifer Lawrence cũng được biết đến nhiều hơn khi vào vai dị nhân Raven Darkhölme / Mystique qua bộ phim ăn khách X-Men: First Class (2011) và cô sẽ quay lại với vai diễn này trong X-Men: Days of Future Past (2014). Năm 2012, cô trở nên nổi tiếng trên toàn thế giới nhờ vai diễn Katniss Everdeen trong The Hunger Games - bộ phim chuyển thể từ cuốn tiểu thuyết cùng tên bán chạy nhất của nhà văn Suzanne Collins. Vai diễn được các nhà phê bình khen ngợi nhiệt liệt, The Hunger Games nằm ở vị trí thứ 3 trong danh sách những bộ phim có doanh thu phòng vé mở màn cao nhất mọi thời đại,[9] giúp Lawrence phá vỡ thế độc tôn của hình tượng các nam anh hùng trong phim hành động Hollywood khi trở thành Nữ anh hùng màn ảnh mang lại doanh thu cao nhất mọi thời đại.[10][11]
+
+Đến thời điểm hiện tại, sở hữu vẻ đẹp hài hòa, tài năng, hàng loạt những vai diễn thành công của Jennifer Lawrence ở cả hai lĩnh vực thương mại và nghệ thuật, cùng với một ngai vàng vững chắc ở tuổi 23 khi liên tiếp mang về rất nhiều giải thưởng danh giá đã khiến tạp chí Rolling Stone gọi cô là "Nữ diễn viên trẻ tài năng nhất nước Mỹ."[12] Năm 2013, tạp chí Time đã đưa tên cô vào danh sách 100 người có ảnh hưởng nhất trên thế giới.[13] Vào năm 2014, Jennifer Lawrence tiếp tục vượt mặt rất nhiều ngôi sao nổi tiếng khác để đứng đầu hạng mục Nữ diễn viên quyền lực nhất Hollywood và xếp vị trí thứ 12 trong danh sách "Celebrity 100" (100 người nổi tiếng) được thống kê hàng năm của công ty truyền thông và xuất bản Hoa Kỳ - Forbes.[14] Bên cạnh đó, cô còn được tạp chí danh tiếng dành cho phái mạnh của Vương Quốc Anh - FHM vinh danh là Mỹ nhân quyến rũ nhất thế giới năm 2014.[15]

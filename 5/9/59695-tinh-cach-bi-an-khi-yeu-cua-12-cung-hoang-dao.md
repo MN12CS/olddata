@@ -1,0 +1,123 @@
+---
+title: "Tính Cách \"Bí Ẩn Khi Yêu\" Của 12 Cung Hoàng Đạo"
+date: 2025-06-14T04:28:28Z
+slug: tinh-cach-bi-an-khi-yeu-cua-12-cung-hoang-dao
+draft: false
+---
+
+## Tính Cách "Bí Ẩn Khi Yêu" Của 12 Cung Hoàng Đạo
+
+## Thanh Táo Tợn
+
+TÍNH CÁCH "BÍ ẨN KHI YÊU" CỦA 12 CUNG HOÀNG ĐẠO
+
+
+BẠCH DƯƠNG :
+
+- Nhìn bề ngoài có vẻ Bạch Dương là 1 người cứng rắn mạnh mẹ .... nhưng khi yêu thì hơi bị yếu đuối >.<
+
+- Dám yêu ==> nên cũng dám hận =.=
+
+- Èo >..< )
+
+
+KIM NGƯU :
+
+- Hơi bị động =.= ko biết thể hiện tình cảm như thế nào >.<
+
+- À mà nếu 1 khi Kim Ngưu đã yêu si mê điên cuồng rồi thì sẽ ko ngại ngần mà bày tỏ tình cảm 1 cách quyết liệt =.=
+
+- Khi yêu, rất có chủ kiến
+
+
+SONG TỬ :
+
+- Èo >.< hay nói ngược những gì đang nghĩ để thăm dò tình cảm của đối phương =.= [ đôi khi bị phản tác dụng =.= hối hận ko kịp ]
+
+- Khi yêu, rất lý trí =.= đôi khi cũng bị những cái lãng mạn lôi kéo =.=
+
+- Khi kết hôn rồi thì là 1 người gương mẫu
+
+
+CỰ GIẢI :
+
+- Đôi lúc (nên nhớ chỉ là đôi lúc nhé) cũng hay "sớm nắng chiều âm u tối mưa khuya bão =.
+
+- Quan tâm người yêu 1 cách thái quá >.<
+
+- Cảm thấy nếu đối phương ko còn yêu mình nữa thì Cự Giải sẽ chọn 1 biện pháp rút lui an toàn để tránh tổn thương cho cả 2 >.< [mà nói gì nói chứ những lúc thế này là lúc tâm trạng pé Cua nhà ta buồn nhất đấy  hichic ]
+
+
+SƯ TỬ :
+
+- Aizzz nhìn bề ngoài có chủ kiến, mạnh mẽ thế thôi chứ nội tâm Sư Tử hơi bị yếu đuối đấy =.=
+
+- Khó gần Sư Tử nhưng gần rồi thì khó xa Sư Tử lắm nha =.= mà xa rồi thì đừng mong gần lại nha
+
+- Sư Tử cũng thích 1 tình yêu lãng mạn như trong phim =.= sến sến cũng được =.=
+
+
+XỬ NỮ :
+
+- Yêu nhưng ít khi dám tỏ tình ==> F.A ==> nhìn người ta bên nhau mà buồn =.=
+
+- Nếu yêu thì thích kiểu mưa dầm thấm lâu ==> đầu tiên là bạn xong rồi yêu và cuối cùng chia tay thì 2 người 2 ngã coi như xa lạ
+
+- Tình cảm cho đối phương quá nhiều nên thường tổn thương 1 cách trầm trọng sau khi chia tay ==> nhưng thường dấu trong lòng....bề ngoài cười nhưng lòng thì tan nát
+
+
+THIÊN BÌNH :
+
+- Có khá nhiều người thầm thương trộm nhớ Thiên Bình ==> khá kén chọn ==> F.A (chờ người xứng đáng để yêu =.
+
+- Đôi lúc quan tâm người yêu 1 cách quá đà =.= sau đó lại lơ là người yêu 1 cách quá đáng =.=
+
+- Dù có cãi nhau cũng ko bao giờ nói nặng người yêu dù chỉ 1 câu =.=
+
+
+BÒ CẠP :
+
+- Rất dễ có tình yêu nên cũng hay đánh mất tình yêu =.=
+
+- Nhiểu khi có cảm giác cô độc trong tình yêu >.<
+
+- Khó có thể hiểu được chính xác Bò Cạp đang nghĩ gì >.<
+
+
+NHÂN MÃ :
+
+- Rất thích thay đổi vì người yêu =.=
+
+- Tính tham vọng của Nhân Mã trong tình yêu đôi khi khiến cho người yêu ngạt thở >.<
+
+- Rất ghét thứ tình cảm dỡ dỡ ương ương >..<
+
+
+MA KẾT :
+
+- Yêu nhưng vô cùng TỈNH TÁO
+
+- Đôi khi vô tình làm người ta buồn mà ko biết =.=
+
+- Ít khi thể hiện tình cảm lắm >.< vì Ma Kết nghĩ , quan trọng là tấm lòng cơ =.= còn biểu hiện làm gì, vì người ta yêu mình thì sẽ hiểu mình cơ mà =.=
+
+
+BẢO BÌNH :
+
+- Bảo Bình ghét tình cảm mập mờ >..<
+
+- Ghét nhất bị thử thách trong tình yêu >.. tự động biến mất ko lý do
+
+- Chia tay ko mong làm bạn
+
+
+SONG NGƯ :
+
+- Song Ngư làm cho đối phương điên đảo =.= bằng tình cảm lãng mạn và vô cùng chân thành
+
+- Song Ngư hay THA THỨ ..... nhưng nên nhớ là Song Ngư tha thứ chứ ko có nghĩa là Song Ngư sẽ BỎ QUA nha >.< [nguy hiểm nè]
+
+- Vì Song Ngư dịu dàng với tình cảm của mình nên Song Ngư thường không rõ ràng trong những mối quan hệ, luôn sợ mất lòng người này người kia, sợ làm tổn thương người yêu quý mình =.=
+
+
+Nguồn Zing Blog

@@ -1,0 +1,391 @@
+---
+title: "[ Fanfiction ] Lớp học siêu quậy"
+date: 2025-06-14T08:06:16Z
+slug: fanfiction-lop-hoc-sieu-quay
+draft: false
+---
+
+## [ Fanfiction ] Lớp học siêu quậy
+
+## Happy Snowman
+
+♦ Title : Lớp học siêu quậy
+
+♦ Author : Happy Snowman
+
+♦ Category :School life , romance.
+
+♦ Status : On-going
+
+♦ Rating : T
+
+♦Length : Long-Fic
+
+♦ Warning :
+
+- Đọc kĩ và tuân thủ quy định của BOX MBM , không spam và nhớ comment trên 15 từ nha
+
+- Chấp nhận mọi nhắc nhở , góp ý và gạch đá của mọi người.
+
+- Đây là fanfic đầu tay , mình chưa có kinh nghiệm viết nhiều nên nếu có thiếu sót mong mọi người thông cảm .
+
+- Ai không thích đọc truyện này thì có thể click back .
+
+♦ Speed : Khi nào viết xong mình sẽ đăng
+
+
++ Casting
+
+1. Bạch Dương  : Nam  - 16 tuổi  
+
+Một chàng trai liều lĩnh và quyết đoán , tính cách khá nóng nảy . Mạnh mẽ và có tố chất lãnh đạo . Là bạn thân của Thiên Bình .​ 
+
+2.  Kim Ngưu :  Nữ – 16 tuổi  
+
+Hiền lành , có phần “ngố tàu”  nhưng rất đa tài . Mang trong mình tình yêu vô tận đối với đồ ăn . Bạn thân số một của Nhân Mã .
+
+
+
+​ 
+3.  Song Tử : Nam – 16 tuổi  
+
+Một chàng công tử hào hoa phong nhã . Vui tính , hay cười nhưng một khi mở miệng thì khó ai ngăn anh chàng nói được .​ 
+4. Cự Giải : Nữ - 16 tuổi  
+
+Sáng tạo và có vẻ hồn nhiên trong sáng nhưng khi nghịch ngu thì thâm không ai bằng . Thích nấu ăn và đôi khi mắc bệnh tự kỉ . Bạn thân nhất của Xử Nữ .​ 
+5. Sư Tử : Nam – 16 tuổi  
+
+Luôn tự tin kiêu hãnh , lòng tự trọng rất cao và tài đối đáp tranh cãi thì giỏi miễn bàn . Cậu là bạn chí cốt của Bảo Bình .
+
+6. Xử Nữ : Nữ - 16 tuổi  
+
+Là một cô nàng nữ tính , nghiền tiểu thuyết  và rất nhanh trí .Thích trượt patin và thỉnh thoảng có những ý tưởng khác người . Cô là bạn thân của Cự Giải .​ 
+7. Thiên Bình : Nữ – 16 tuổi  
+
+Tích cách khá ôn hòa , có khả năng thiên bẩm về hội họa và trí tưởng tượng phong phú. Là bạn thân của Bạch Dương .
+http/data:image/jpeg;base64,/9j/4AAQSkZJRgABAQAAAQABAAD/2wCEAAkGBxQTEhUSExQWFhUXFhgWFxcYGBYYFRgaFxcWGBYXGBoYHCggGB0oHBoYIjEiJSksLi8uGB8zODMsNygtLisBCgoKDg0OGxAQGiwlHyQsLCwsLCwsLCwsLCwsLCwsLCwsLCwsLCwsLCwsLCwsLCwsNywsLCwsLCwsLCwsLCwsLP/AABEIAQsAvQMBIgACEQEDEQH/xAAcAAEAAgIDAQAAAAAAAAAAAAAABQYEBwIDCAH/xABHEAACAQIDBAcDCQUGBgMBAAABAgADEQQSIQUxQVEGEyJhcYGRBzKhQlJicoKSscHRFCNTwvAXM5OisuEWJFRj0vElc6MV/8QAGQEBAAMBAQAAAAAAAAAAAAAAAAIDBAEF/8QAKBEAAgICAgEEAQQDAAAAAAAAAAECEQMhEjEEMkFRYXEigbHxEyOR/9oADAMBAAIRAxEAPwDd9RwouZqzpn7YKOHdqWHXrnU2Yg2pqdxBb5R7hyOonf7aOln7NRXDo+V61xcGxCLbPY8CbgeZ5Tz5STMpA3lxYcSLNwnLttF8MVpS+X0X+r7ZseWuFogcBlb49qWjov7bVZwmLp9WDYdYpug+sDqo79d81XT2BUKt2TdSVYWNwdeG/gfQyKNLK1jxDDXT5Jtv77SuE1J1ZflwVG6PZWCxqVUDowKkAggggg7iDMjMJ5Q2d0wx2CoU1pVctNsxUMqtuYg5b7he+n6zt/tV2l/HX/DT9JNSTVmTJBwlTPVWYRmE8q/2q7T/AIy/4afpH9qu0/4y/wCGn6SRCz1VmEZhPKv9qu0/4y/4afpH9qu0v46/4afpAs9VZhPs8q/2q7T/AIy/4afpNzexnpVXx+GdsQQXSqUuBa4yowJG6/at5QDYkREAREQBERAEREAREQBERANCe3ZaTVwr36wIhp2sT71QMDroNxvb5Imuqez8RhlWrUw7ClUVWVmU5SCRlKuNFO7yPIz0V0y6JUMRicPiK65kpllcblIaxTPzUMACPpa6XlE6fbXGHy4U1a9q+dQAaZpKpY03DC2ZgLmyG+4DSZpOUZV3ZrhKPFVpou3RfZ2zqmGFXDohSqCWNyTcjtK2uhB0K8LTS3tEq4MYg08EiClTHVll1zMCWcg311YLff2Tw32epgcNhP2bDtUqU84X9oAbsZSuYMx5Mx4bgTutKb01oIuMqpTAUKbWAAtcA2NrAsDcHkRa5IMilTL4R672R+2MYlRcFSpsodFysXFkVmZSMxYZSOJO60ue1sDRxgydcuQMEUk0xVDUnagH1tlpOhFZm1zEgC2SQGK2TXxWEoLh8O9TIz52UaDWwFzxtb0E6zsPbFrdViN1uG71luH0f9/kyeUqyvZI4XophEYVhWWoq3dadR01I656QqqFvlcLSUpa92qC+ih47bfRehTpVmpvUepTdQP7sJUDM4zoqAkr+7OgOnWLfdduR2Ntkm/V4i9wb6X0Fhx5aTg+wdsHfSxB1vrbfYjnyJHnLTOS1fobhnWkOvRDTog1cpQlhlSrUqji2n7Ta+pFOkBYEkVXo1iFpMarVerUnIAoR6pO/iVKUxpmYFSdw4lZDE9GdrVAQ9HEMCFBBOhC+6LXtYcBwmJ/wNtD/pKvoP1gFk23sbCYjE1qz4qlTzVqoCrVw4Xq0qJSolMpIy5GVid/7qpZToZsL2C0kSlilptmQYpwpJBJUJTtcjQm3EacriaZ/wCBtof9JV9B+s3j7C9gV8LhagxFM02eszhTa+XIi3Nt2qmAbOiInToiIgCIiAIiIAiIgCIiAcK1IMCCLgixB3TTvtI9mFeuy1cNUvlLMKdQnQtYnK+p3i9jzOs3LE5R1Ojzltfo/tWvVFSrhiag35SmQ2UKLHPpew8Jm9HvZNi69brcYwpqTmZVOaoxJJNz7q6nfrxm/sg5T6BILHFGiflTlFLqv6I7Y2xaWGpLSpoFVRYAf1qe+Z3UryE7IlhmOvqV5COpXkJ2Su7U2mXJSmbJuLD5XO3dIykkSjFyeiQxGNpKcoGduS/mdwnKkjEXYKvco/En8pj4PDrRTO2/f367h3mZlAE9pt54cu7xlTm2TcUugcMvf95v1le6X7TGEpBl6wu5yp26mQHfdjf4cZZ5016KVFKuoZToQQCD6zlsRpPZqzCdNcYjXNTOPmuq2tyBUAj19ZsLo70lTFJcCzD31GpXxG+3Ii/lukHtL2e4dyTQZqDcl7VP7jbvK0puP2LjtnVlrKVZQbdYt8tuOZDqL8RcjvhSki9xx5FrTN1KwIuDcd0+yo9G+l1HEMVU5Kw9+kdz6XJpncxt589LGWxHBAI1B1EujKzLKLi6ZyiIkiIiIgCIiAIiIAiIgCIiAIifGNhc7hAIfb+0Mo6pT2mF2PJf1Ovx7pH7Ho5mzcF1/SRWKxfWOz/Paw8Bw9BbykrRxHVUC3E3P5CZpStmxQ4xr3MjE4sNUJPuUhmPex0Uet/SSaucwXiFzN+A/P0lZwpv1FPjWrF2+rSBPoSv+aT2Ae5q1DuzWHggnEQmqMrFVsiFuQ/9TowFS9NTz/8AIyP6RYrsqnE9o/lMrBmy0l+iD8D/AOQi9keNRs5YHE5qtYfNIH4/7TLxWHWohRhcGV/YNW+JxPIsbeRt+Qk+lXUfSGniNfw/CdQmqejS229kfsuKZRcA9pbaWIN9Dv03g8LzY3QDpEa6tRqEdavaB+ep3m3MHf8AWv4RvtTwY6unX3FXCnwY5fxIlf6CIXx1LIbZCSx4AFG7J7yP1nYupF8qyY7ZuKIiaDCIiIAiIgCIiAIiIAiIgCYG3cR1eHqtxCEDxOg+JmfIPpjUth8vznQehz/yzknSJQVySKmosVHIEfh+hmRtPEdmmnh+v5fGYVSrZ1HO/wAAZ0bTrdtB9Bz90KPzmQ9Fomdm1v8AmAx3UcIB9qoUIPjfOJO4Q2oU1+edfC5J+Ep9KvbO38WpTQfVVKjj/UPSTmLxVlpqOFMDwLDX4TtlThZi7RxPWVC3M2HhuEktqYrKwUbzZB6a/gJCYLt11XgG/A2/M/dnbtDEZneoPkK7jva2VPiyjynCUltIyeivu9d899/c5JH8smGxPZLcUqH4Nr8GPpMfZWGUYQICASLjUcPd/ASNo4vNUqi+joX8DlJt639J0rauTJfphhVq4R1YZl7JI3aBgTqO6dOytj08JQDIoU3RmPIZlLXJ1Jte5MycRWzYMnjkt5jSZW0qPWUHXmpP5yXuV20uP2SsT4jXAI4i8+zSZxERAEREAREQBERAEREASqdOq39wnNnY/ZA/WWuUzpqb16S8Qh/zsLf6DIZPSXYFc0VfF1O2h7yPUidOMrWrUid2Srf/ACf7z7tdSPFWJ+DAfEiRuLxqntkgBM1z9F1Nj4X/AAmY9BkxSQ9VhTa3av3+7kF/LvkjiK5A5sdB/XIAX8prraPTatUtRw1OwWygsGLki25VItuli6AYnE1KqDFIchBZWKMCRYsDc+8rZSL81tykuLqyFpFpwVHqgzcQoHm2g89T6GZNXCBKQDjWoVO6+gbMBbidx9Jn0Nnl3UMNL9ZU72Pur5C/rMrb+z2q0aip77LkB3EKxAfKeDZb2M5RU5qyHxXtAwGHIpvWVSNMoOZhbTXqwQPAmRGC2/ha9aqaFVWBVio1VjdTewYA72PpNZbV6PdTiq61AAFqso5WFiov9QrJ/YOxwysqIEFN8M7vmJJdnZgFv7hyAAgcN8scNElCt/JtHB4kGh1fElreAGY/gZYsvYt9G3wlD2NXzVadtzlvRhlB9LmbAkIlGZUz5s4fuqY5Io8wLH4zImBsZiUIO8VKg8usYj4ETPmldGd9iIidOCIiAIiIAiIgCIiAJR9vnNjrfNCL6Xf+aXiUfai//IN35T/+YH5SrL6S/wAf1fsQe3KJzOB4jx0I+MpWOo3QAGy6Am1xluCCRyDqT9VmmxukNHVX56H8R+cqNXDgVGQ6q+ovwOpt3/K9ZnRuW0jB2p0f6pv2gA5K/aLKDUFOq2r03C6hSblWtxtv33v2a7OqoKlSoGCFEppnUqWytUYkK2qqM9hcC+s6+gTWZ6T+8gshOpK8PTUX45by8JLudqinK6XE7QJ9nFxcEXsbb+U4NUChQzamyjvPcPjOGYr/AEm6Kpi2D9ZUosNGNPIM+4AvmU3IAsDwkLt/ZlPB4NKNC92qXLMb1Hdlymo54nUd24C0vjia26XYw1MQq8KR6x9eyttFU8ySb/Z8Jxtl+LevgkOi6BsQltyKW+9dVH3bmXtXuNP6tKJ0X7CO494sKSd5AGY+R/Ay50eyoHISKZzMrZ2bLFjVH0833gP0mfIbYda5DfPphvu5R/NJmaYO4mWapiIiSIiIiAIiIAiIgCIiAJUekeHKYylV+TUXKeQZb/iGH3TLdK507H/Lq/ykqoynkQGB/wApMhkVxZbhdTRgbVo5qTDiNR5Sj7bSypUHyWv5X3eZAHnL3hcQHXxAPrv+IMqm1KQIFPkW9b9k+W+ZEb4dUdVJmBWrTNnG7kQfknu75cdl9KqTACtek/HMDk8c47I8zKJsmobFDvQ2twtw9N3lM5qttALngBxMknR2cFJbNlWSoAdGG8EG/oRO12AFzYADedLDjrNT4TC1KbOwuAXJvTLKwN9dVsd95IYzFVKyZXdqij5JIt9oADN9q8lZn/wP5JLpD0qd2FDCnKGUs1ci/ZBAPVjjv946crytYuiKdLKtzdgWJN2bW7EniSJ3N2aq33lWHqV/S041u230UPkWOh9BfzPdItmiMFFaLVsXDZWp09/VJdjzqPqx9SZJ7axvV0m55SfIf7kTD2CdKlQ8W+A1/OQm2ccarBR8tgAPog2X1N/Q904VONy/BaujwYHDrywpzeJNK34N6SxyI6PqGD1huYhE+rSLL/qL+VpLzVjVRMWT1MRESZAREQBERAEREAREQBKb7TcetKjTLGwzk+LBSAPHU+hlymhPajtpsTjaiBr06F6SAHTMB+9bxz3X7AkZdF/jwcp/g7Ng7WxVQv1ToiruBW9s24fCWHofg3xdCrUqdqolQqbXF/QzWVCuy6qxW44EjTym2vYq3/L1x/3v5VlXFG3NcY2jCx2yNcyXDDRgDqw5XO4xgKPZBzW04LqOYJN9b75sXHbLSpqRZvnD8+cqu0NlPRa5F1Y6MOB5Hlf8ZGUaK8eZS0YFwum6ctDroe+djoRoQR4i068o1798gXETjqHW1Cqi5Vb6cb2NvhOmmTkK63Gljof6/rXfJPZ1QLiiTubseYUFR59r0mVtHCg0us4glX77Ei84xezGfaVqPVLvJObgPq95nGhQynOdXI0F7lbjVmtu03D9NMzYGzxUuzi4/EmZ22BSw1BiAEB3nuGp3/1rBFtXQ2V01wWGpph69UpUGbTq6pXtVGK3ZVKjSx1PGXTD11qKrowZGAKspBUg7iCNCJ5y2zSqVC2KK2RyMuouAAFS48AJNezXpI+GxVOiXPUVXyMh90M+iuORzZQe4m+4W0xlopyeMmnKL2b3iIlhhEREAREQBERAEREAjOku1BhsLWr6XRCVB3Fzoi+bEDznnjH4CrTs1UG73OYkEknVibcbm82h7atqZaVHDKTd2NRrfNp6KD4s1/sTV+O2lUrBRUa+XdoB5m28yEuz0fEg1Hl8kfRO8cj8N4my/YxjwtStRJ96zgc9LH/SPUTXmzqtOniEaquZDcMN+tjY24yR/wD7IoYxcThxlCkHLuzLpnFuF9/iBIl2SPKLiejZxqIGBBAIOhB1BmJsbalPE0UrUmBVhfwPEHkZmzp5TVMwP2Bl/u2uvzH7QHcrbx53kPtwr1TEoEdCLgWJN9BltvH6TL270kp0AVXt1LHs3sqnm7cB6mawXHV8grO61C5fMWU2uWNxo26Qcb6LIZEntmftFTe5utwGPEow91jbw4cvGZlLGM1Fkbe1jpuvxt3HfOHR1xX60va9ja3CwAE57Pw4ZiW0prqx53OgHeZS+zemmrJijtFKNNUQGpUtfKmup33O6VXp1TqnDGrXNruqqm4De27wG8y/4Oiqi4QL3WF/Oay9q3SKnUdMNTbNkJZ7bsx0A8hf7wnY9kIv9RVm2jUaktIt2Bw08tZisxAJU2I1BG8EbiPOfEHOciJeaUeocNVzorfOUNpu1F9J2yO6OVg+Ew7jc1CkRz1RTrJGWnisREQcEREAREQBERANCe0/HtV2jWDaCkFpKO4KHJ8yxPhaVWbJ9svRphUTHUVuGy0qwHzhpTqHxHYJ7kmt3QqbMLHiJW+z1sEk4KhtDA1Fph2UhSdDManUzMPqmZ9falSrTNFiMoPLXQWF5E4M9vyP4i84TsufRjH1sJRetQrgam9JrFbjdpvue63nLRsbpntCuCanVU0IIXIhDt33ZiAPKU3YGxusIqVPc4Di1vyltTQAAWFj4jwnUjzfLzRvjHv5MXaOLFMXteoRpfd9YyEOPKoKB1Yljrxucx07iT5TNpjrazE+6nqbbh9658pXMc2bFAj3bk+Auy3/AK5zpnxQTdfuWjYDspd0vpbT5173EsOAxSjLoSL57D5RIAWQGyqlqbtya/8AlW0umwtnCmgY6uRcnlfgOUzTez04UsaOOKWvVBzWpU9511I7yNfLSaVxKZq9V/psF5WBI08puXpFtamENJWzVGsAo1A13uRuX9Jp1hqZLGizGrJTbWylorTK1M2bfu5bxbhMLZ2K6qotQrmynd5WmKrXn2Wlta2ehPZ/juvwFGpzzrblkqOgHoJYpRfYxiM2zFX5lWqvq5qfzy9SxdHj5FU2vsRETpAREQBERAEREA6sTh1qIyOAysCrA7iDvE83dJ9iYrDV6gqqSFbKHGqFd6klRpcEHUDUz0tKxt/Ah8SgJsKtNhuuM1M318Q3+WQn1Zo8fJxkedaLWJLaA692+cA4D3Ftbj11E3NtD2fUi+fqFOpvkJUNf5ygi/OVnpD0LpUKb1lWoppg1MhN1YLqR2hfcDxlfI3KaaMnZuMWpTRl4jd83TdMhTu566ymHb4SrmpgikRusOPcJaNm40OoIsN+l7yxM8bPheOX0fcURRpuQNbM1+bMf1lHr1CtdNeCA9+pMsPSTGlnWkNwszeOpVfz8pBVaKNme/bvYLfkp0tv75xl3jLt/TLvgaSimrX0Kdrvvr8CT6y0jDVKqZqz9Ulr5FNiB9I8Jr/YuMYM4HugBrAE7z8Dukt0xxWJrYNWXNlNswW+o17u18m/D4yiUf1UehCXKKowOkO0KLU6yUQAi1KaK4Ny7fvC5vxFtJUK1Sw750jEMFCBTZbsQAeNgxPkB6TIFegaWYm9Tfv79AOFpYlRanSPuFp+6CbXIueVzqZm9JcNSolRTqZ8w11Btrbhz/KRiio4JRS1uCgsfgDNpeynoCyn9sxtEq6n9xScaqRvqsp3G+ig6ixPzSJJWRy5VBWWT2RbGq4bAkVlZGq1WqhG95VKIq3HySct7HUX1sdBdoiWnlylydiIiCIiIgCIiAIiIAkN0qok0RVX3qLrVG/cLq+76DMfISZnGrTDAqwuCCCOYOhE41aOp07MOhVDKGG4gH1mJtrArWouhF7qbem7zmL0dYqHoMbtSYrc7yOB89/nJdmsCTuGsoL+no8u0cG/WGkRc02K+Yaw+NpLYLFGk9xfcQe63cf/AHoJLYoIcdWqL7pdnPLsi1vDMWPlPmBwy1AWdQSWNvLvHff0li6K/Iypy30iGa5a543Ynv0/ry8JH4NM1ew4ufHfaTz4dVqsoGgS9jruF5C7Cxa06wc77gDuuwzH0vEtIs8apX+DYGE2eAgQKCxIA42JIHn4yx9IUFPDimvzWA8Qv/uYWwrGoGO4Zj6C0x+lm0c1RKQNiV0+sxWZvc2tbSXRl9DtkM9BAQLkZ3NtO2S1u/fJrD9BsOpJCoC2ptTW59fGS3RvZ3UUFS9+OvC+4eFpKSyjNPK70QlHYFNWpqt75g2lgAqWbdyvlX7Us0jdmNneo/BT1S/Z1qEfaOU//XJKXQVIzZJOT2IiJMgIiIAiIgCIiAIiIAiIgFexq9XjUbhWQqeWZLW8yCPuzM2qrGjUCe8UYDxIkB7Scd1JwFS9v+cVDyOelVGvnaWem9wCNxF/WUyWzQvSmaGq4dqCurgqTpc7iByPHjM3ApZEHdr4nf8AGbX2tsCnWVhYAsDcHVTfmJpPFbTfDVnw1SmzPSdk0OpG9Tbj2SD5zsZfJRkwOW4bO6sv76oOGT+WV2ts3LS63MN408QTpz3Tsx+22LlkBQkWN9/fI/DEldZ1mvxcUobkX/oftcVKIUm1RFyt3j53gePfecOieIbG7UAOtNGLnwW4HrvlEwmMakWKGxIK37jvtNs+xHZOWnUxJGrnKp7gdfw+Mr40aJyqJtGR3SHagw2Gq12+QhIHM27I9ZIzXftixJalh8Ip7WIqqoHmBe31mQfaMGOKt0XLoPh2TAYcP77U+tfvesTVqHzZyZOzhSphVCjcAAPLSc5oKG7diIiDgiIgCIiAIiIAiIgCIiAaz9vbEYPDkaEYpSPHqaxEtXRLaAr4SjVHykB+ErHtuxNIUMNTqEXNcuF33C0qis2nAF1HmJ1+xvaIfCvSB/u6hAvvse0PgQJVPs1RX+o2FNN+1mmcPjkxKgfvaOU3GmamQD55WT7s3HNY+3Gl+5oN/wBwjyyNf45fSQR3F6jUm0MQalQubXOum6fMP7sx2Ml8R1IoIU9/5W/vveTNhiYM07NnBLHRRrqTuAtxvPSPRXZQwuEo0OKoobvawzH1mhfZzsj9p2hRUi6Uz1z8rUyCoPi2Wej5GRmzS9hNX1Np08Xt5KLLmFKqEQ6EXo03rMe49YLfZE2HtnaK4ehUrNuRS3jbcPM6TQPQvaZp7Twtdzq+IOc9+Izox8L1LxHshCNpv6PS8REvMgiIgCIiAIiIAiIgCIiAJ043FLSptUc2VAWJ7h+J7p3Tzx046eVNoMAmalhhqiXsz33PVsbE23LqB375xuizFjc3REdMdvvjsQ+IfQHs00+ZTBOVdOOpJPMnhaWP2KY3JiqlO+jqPUZv9vhKKykiwFz3SW6CY00MfRJ0BJQ+diPiAPOVM9CUVxpHpKUL2zYfNgQ/zKgP3gV/OXhXlb9pVDPszEgbwgcfZYE/AGQMsNSR51ncT2P65znTwd6ZqZt3DwnS57IlhsRuD2F7Ny0cRiCNalQU1+rTW9x9pz6TZ95VvZvhOq2bhl4snWHxqEv+cshaVtmOe5Mo/tixwTBinxqPlA4WscxPPS80qfEjkRvB4EcjNie0/adOpj0oubpRp68usqWNjb6IX70oGLy52ye7fSTiacSqJ6T6E7d/bcFSrm2cjLUA4VE7L6cASMwHJhJ2aP8AYv0g6nEthHP7uvdk7qqj+ZARrxRRxm8JanZgyw4SoRETpWIiIAiIgCIiAIiIAnlHauGaliMQliVp161O/DsVGUfhPV08nbYxbl8Qc2rYisW3a5qjE/jIyNHjOmz5QxBQ5hY6H4zGqYli/WDRgQw7itiPwmIKh5z5nMgbbPTnRvaQr4alVHykB+AmRtigKuHq0juem6+qkSleyas37IBfQXt95pd2Yyozyjs8uo2g8J3rTzMqDexVR4sQPznXjjarUA3Co4Hkxkn0XN8Sl/nr8DcfECW+xfZ6OwFMJSpoNyoqjyAE7Xewudw1nUGMhOmtdlwGJZTYik+viLSozqNs0dtjGmvXq1ib9ZUZvInsjyWw8piTpzmduCN6iA6gsL+stNfRkbPdhWommCanW0ygG8uHUoB3lrCer5pn2QbOpVMbXqvTVnpU0NM29ws1QMQBpeygXtca8zNzScejB5MrlXwIiJIziIiAIiIB/9k= http/data:image/jpeg;base64,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 http/data:image/jpeg;base64,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  
+
+8. Thiên Yết : Nam – 16 tuổi 
+
+Hoạt bát , vui vẻ , tuy nhiên đầu óc khá nhạy bén và xảo quyệt , làm người đối diện khó mà đoán được con người bên trong của cậu .​ 
+9. Nhân Mã : Nữ - 16 tuổi 
+
+Tinh nghịch, vô tư và thường có những câu nói rất bá đạo.Thích giả nai và lấy việc đi chọc ghẹo người khác làm thú vui . Là bạn thân của Kim Ngưu .​ 
+10. Ma Kết : Nữ – 16 tuổi 
+
+Thông minh , năng động và rất hài hước . Trí nhớ và khả năng phán đoán chính xác của cô không phải ai cũng có được .​ 
+
+11. Bảo Bình : Nam – 16 tuổi 
+
+Là một con mọt sách chính hiệu , ít nói và trầm tính . Luôn giữ vẻ bình tĩnh và là một hacker chuyên nghiệp . Bạn thân lâu năm của Sư Tử​ 
+12. Song Ngư : Nam – 16 tuổi 
+
+Lãng tử đào hoa , lãng mạn và luôn làm cho người khác cảm thấy dễ chịu . Có óc sáng tạo và rất giỏi chơi đàn viôlông .​ 
+
+ Mục lục 
+Chương 1 : Ngày nhập học đầu tiên
+Chương 2 : Sự nhầm lẫn
+Chương 3 : Thảm họa xảy ra
+Chương 4 : Con gái hay vận động viên ?
+Couple
+Chương 5 : Rảnh rỗi sinh nông nổi  
+Chương 6 : Chuyến cắm trại đáng nhớ 
+Chap 7: Kẻ theo đuổi phiền phức
+Chap 8: Màn tỏ tình gây sốt
+
+
+​
+       Chương 1 : Ngày nhập học đầu tiên​
+“ Reng .. reng .. reng ..’’
+
+6:00 sáng , tại nhà của Nhân Mã ...
+
+  Nhân Mã uể oải ngồi dậy , với tay tắt ngóm cái đồng hồ báo thức đang kêu ầm ĩ kia đi . Cô ngáp dài , dụi dụi mắt rồi rủa thầm :
+
+- Cái đống sắt đáng ghét ,sao cứ nhè lúc người ta đang ngủ ngon mà phá đám vậy chớ.
+
+  Nhân Mã vừa ra khỏi phóng chưa được mấy bước chân liền phải bịt tai lại ngay lập tức vì tiếng hét như loa phát thanh của con bạn thân .
+
+- Mã Mã , cậu xuống đây ngay cho tớ ! Cậu có định đến trường không đó hả ? _ Kim Ngưu gọi lớn .
+
+  Bây giờ , cô mới sực nhớ ra hôm nay là ngày nhập học đầu tiên của mình tại trường Zodias . Cô lập tức phi thẳng từ trên tầng ba xuống tầng một .
+
+“Rầm ...”
+
+“ Au ui da …”
+
+  Nhân Mã vì chạy nhanh cho nên không may bước hụt và ngã bổ nhào vào Kim Ngưu đang đứng đợi dưới chân cầu thang . Kim Ngưu đẩy Nhân Mã ra , lồm cồm bò dậy , quát cô :
+
+- Mã Mã , bộ cậu không có mắt hay sao mà đi đứng hậu đậu như vậy ? Ngực tớ suýt thụt ra đằng sau rồi nè .
+
+  Nhân Mã mặt nhăn mày nhó đưa tay lên xoa xoa vào cục u to như trái ổi trên đầu rồi chống tay vào bậc cầu thang đứng dậy . Cô nhìn con bạn thân đang tức tối cằn nhằn bằng con mắt ngây thơ vô “ số“  tội , lắp bắp xin lỗi . Kim Ngưu chán nản thở dài , giục :
+
+- Thôi đủ rồi đó . Cậu chuẩn bị nhanh lên còn đi học . Cậu mà làm tớ bị muộn là tớ không tha cho cậu đâu đó .
+
+  Trong khi đó , ở nhà của Xử Nữ…
+
+  Xử Nữ bỏ tọt miếng bánh cuối cùng trong phần ăn sáng của mình vào miệng , rồi quay sang liếc nhìn Cự Giải . Lúc này , cô bạn còn đang cắm mặt vào cuốn nội quy – quy định của học sinh trường trung học Zodias để nghiên cứu cái gì đó . Đã gần nửa tiếng rồi nhưng bữa sáng của Cự Giải vẫn còn nguyên nửa ,  Xử Nữ giục gọi kiểu gì Cự Giải vẫn chẳng hề nhúc nhích và vẫn cứ chúi mũi vào quyển sách . Cô bèn giật cuốn sách ra khỏi tay cô bạn , nói :
+
+- Cậu cứ tập trung ăn xong bữa sáng đi , tớ ra đây một lát .
+
+Cự Giải vừa ngạc nhiên vừa tức giận . Cô gọi  :
+
+- Cậu cầm quyển sách đi đâu thế ?
+
+- Tớ không ăn thịt nó đâu , cậu cứ yên tâm _  Xử Nữ ôm cuốn sách ra ngoài .
+
+  Cự Giải đành ngồi ăn nốt bữa sáng đã nguội ngắt trong lúc chờ cô bạn thân về . Khoảng mười phút sau thì cô đã ăn xong và Xử Nữ cũng về đến nhà . Trên tay cô là cuốn sách và môt tập tài liệu . Cô đưa cho bạn tập tài liệu và bảo :
+
+- Tớ phô tô mục một dành cho học sinh lớp mười ra rồi đó , cậu cầm tới trường mà đọc đi .
+
+  Cự Giải cười toe toét , bám vào cổ Xử Nữ đu qua đu lại . Xử Nữ đẩy nhẹ cô ra , hỏi :
+
+- Vậy chúng ta đến trường được rồi chứ ?
+
+  Cự Giải vui vẻ gật đầu , mỉm cười vui vẻ .
+
+
+  Tại nhà của Thiên Bình …
+
+  Thiên Bình lúc này đang ở trong phòng khách sốt ruột chờ Bạch Dương tới . Hôm qua, cậu đã hứa sẽ chở cô đi học nhưng chẳng hiểu cậu đang làm cái trò gì mà giờ này vẫn không thấy mặt mũi đâu . Thiên Bình có cảm giác như cổ của cô phải dài ra mấy phân rồi ấy chứ . Cái tên này , làm gì mà lâu thế không biết . Bạch Dương toàn chê Thiên Bình giờ cao su , nhưng có thể vì chơi với cô lâu năm rồi nên thỉnh thoảng cũng bị nhiễm .
+
+  Mặc cho Thiên Bình đang chờ Bạch Dương đến nỗi mắt mỏi cổ dài thì cậu còn mải cười đùa với thằng bạn hàng xóm , trông hai chàng có vẻ phởn chí lắm . Cuối cùng , không còn đủ kiên nhẫn nữa , Thiên Bình đành cầm máy gọi ngay cho Bạch Dương . Cô hét :
+
+- Này cái thanh kẹo cao su chết dẫm kia , cậu biệt tích ở đâu rồi mà mãi không tới đón tớ vậy hả ?
+
+- Được rồi được rồi , bây giờ tớ đến là được chứ gì _ Bạch Dương nhăn nhó xoa tai .
+
+  Thiên Bình hiếm khi nặng lời với ai , cô phải hét lên như hôm nay là xảy ra biến lớn rồi. Bạch Dương cố gắng đạp xe với tốc độ thần sầu , chứ để Thiên Bình đợi lâu thêm chắc cậu sẽ bị cô xé xác mất . Dự đoán quả không sai , khi cậu đến nơi thì nét mặt Thiên Bình đã lạnh như đá cục rồi . Cậu bèn im re đèo tảng băng đó đến trường .
+
+  Tại nhà của Bảo Bình …
+
+- Xin phép bố mẹ con đi học _ Bảo Bình xách cặp lên rồi quay sang chào bố mẹ .
+
+  Cậu chậm rãi đi tới bến xe buýt . Do thói quen hay cúi mặt xuống đất khi đi bộ nên cậu đã đâm sầm vào một cô gái cũng vừa mới chạy tới . Bảo Bình định quay sang trách cô gái đó thì đã không thấy cô đâu rồi . Cậu nhặt chiếc cặp rơi dưới đất khoác lên vai rồi nhanh chóng leo lên xe buýt . Bác lái chuẩn bị đóng cửa xe lại thì một một anh chàng hấp tấp lao tới giữ cánh cửa lại , trèo lên xe . Vừa nhác thấy Bảo Bình , anh chàng liền hét to :
+
+- Ê , Bảo Bảo !
+
+  Bảo Bình cau trán , lườm cậu ta :
+
+- Sư Tử , tớ đã nói với cậu bao nhiêu lần rồi , đừng có gọi tớ là Bảo Bảo nữa .
+
+  Sư Tử cười khì khì , nhìn thằng bạn với vẻ mặt gian gian :
+
+- Sao tớ lại không được gọi như thế nhỉ ? Cả nhà ai cũng gọi cậu là Bảo Bảo mà .
+
+- Cậu đâu có phải người nhà của tớ _ Bảo Bình lạnh lùng .
+
+  Sư Tử không chịu thua liền lên tiếng bắt bẻ :
+
+- Không phải mẹ cậu đã bảo cậu phải coi tớ như anh em à . Tớ sinh trước cậu nên là anh
+
+trai của cậu , tớ được phép gọi chứ .
+
+  Bảo Bình chán nản quay mặt đi chỗ khác , thằng cha này đúng là ác mồm độc miệng mà. Từ trước đến giờ chưa ai thắng nổi nó trong cái khoản tranh cãi , huống chi cậu lại là thằng ít khi mở miệng .
+
+  Ma Kết – cô nàng vừa đâm vào Bảo Bình ngồi yên lặng dưới cuối chiếc xe buýt , ung dung nghe nhạc. Cô có nhìn thấy Bảo Bình và định chạy ra xin lỗi nhưng rồi lại thôi . Bây giờ đối với cô việc quan trọng nhất là mình sẽ trở thành học sinh của trường Zodias danh tiếng , và cô đã mong chờ nó từ lâu lắm rồi .
+
+  Trong khi đó , Song Ngư đã đến trường từ bao giờ và đang ngồi đọc sách rồi . Đột nhiên , cậu ngẩng đầu lên rồi nhìn ra cửa sổ . Không hiểu sao Song Ngư có cảm giác những người bạn cùng lớp của mình sẽ khá kì lạ dù cậu chưa gặp bao giờ . Nếu biết điều mà mình cảm thấy là thật một trăm phần trăm thì Song Ngư sẽ sốc nặng mất .
+
+Song Tử và Thiên Yết ngồi ở hai bàn phía góc lớp chơi oẳn tù xì. Dù chưa hề gặp nhau bao giờ nhưng hai người lại tỏ ra quen biết như thể họ là bạn lâu năm rồi. Thấy Song Ngư ngồi một mình ở bàn đầu , Song Tử định ra bắt chuyện nhưng Thiên Yết giữ cậu lại không cho đi nên thôi .
+
+  7:00 sáng , tại trường trung học Zodias…
+
+  Các cô cậu học sinh lớp mười năm nay đã tập trung đông đủ cả . Trường Zodias có tổng cộng mười hai lớp , trong đó các khối mười , mười một , mười hai đều có bốn lớp . Đây là một ngôi trường cấp cao nên mỗi lớp chỉ có đúng mười hai học sinh không hơn không kém . Mười hai cô cậu Bạch Dương , Kim Ngưu , Song Tử , Cự Giải , Sư Tử , Xử Nữ , Thiên Bình , Thiên Yết ,Nhân Mã , Ma Kết , Bảo Bình , Song Ngư đều được xếp chung vào lớp 10A1 .
+
+  Trước khi vào lớp , học sinh phải đứng vào vị trí hàng dọc của lớp nghe về nội quy – quy định của trường , giới thiệu qua về giáo viên chủ nhiệm và nhận phòng kí túc xá . Không hiểu sao , nhà trường tự dưng gặp sự cố về mấy chiếc mic , hại học sinh phải đứng suốt ba mươi phút đồng hồ dưới trời nắng . Đến khi học sinh lê được cái thân xác tàn tạ vào lớp thì sân trường cũng đầy những vỏ chai nước lọc .
+
+  Ngoài lớp 10A1 , các lớp khác đều đã ổn định hết . vì cô giáo chủ nhiệm chưa vào nên đám học sinh cứ nhốn nháo cả lên . Nhác thấy bóng thầy hiệu trưởng từ xa đi đến , Thiên Yết vội vàng gào to :
+
+- Các cậu ơi thầy hiệu trưởng , thầy hiệu trưởng !
+
+  Nghe nhắc đến thầy hiệu trưởng , cả lớp đổ xô chạy vào lớp chọn chỗ ngồi . Lớp đó có tổng cộng mười hai bàn đơn được đặt ngay ngắn thành bốn hàng dọc . Tuy nhiên , trừ Cự Giải và Nhân Mã ra thì mỗi người đã chọn cho mình được một chỗ ngồi để chờ cô giáo đến . Chuyện là thế này :
+
+  Sau Song Ngư thì Cự Giải và Nhân Mã là những người tiếp theo vào lớp . Dãy đầu có bốn bàn , Song Ngư thì đã ngồi một bàn sát cửa lớp nên chỉ còn ba bàn . Hai nàng Kim Ngưu và Xử Nữ cũng đã yên vị ở hai bàn rồi , giờ còn mỗi một bàn ở giữa . Cự Giải với Nhân Mã đều muốn ngồi chỗ đó , cạnh bạn thân của mình . Thế là hai người sinh ra tranh nhau . Thực chất dãy cuối còn một bàn nhưng vì xung quanh bàn đó toàn con trai nên chẳng ai muốn xuống . Cuối cùng , vì không thể chịu nổi cái thảm họa chỗ ngồi này thêm giây nào nữa , Ma Kết ngồi đằng sau đành đứng dậy đi sang chỗ của Song Ngư . Cô phải lịch sự hết sức có thể để nhờ cậu chuyển chỗ . Song Ngư thấy cô bạn này khá đáng yêu , hơn nữa vì cậu thấy xung quanh toàn con gái nên gật đầu đồng ý . Không may cho cậu , chỗ cậu ngồi lại trúng giữa hai thằng mồm năm miệng mười là Song Tử và Sư Tử . Nhưng cũng nhờ hai cái mồm đó nên cậu có thêm được hai thằng bạn .
+
+  Song Ngư vừa chuyển xuống bàn dưới thì Nhân Mã lập tức ôm cặp vui vẻ ngồi vào chỗ của cậu , cô quay xuống chỗ Ma Kết cười toe toét :
+
+- Cảm ơn cậu nhé. Tớ là Nhân Mã .
+
+  Đoạn , cô ngó sang làm quen với Cự Giải luôn, cô muốn có càng nhiều bạn càng tốt .
+
+  Một lúc sau , cô chủ nhiệm vào lớp . Cô cười tươi chào học sinh :
+
+- Xin chào các em , cô là Bạch Huệ . Từ nay cô sẽ là giáo viên chủ nhiệm của các em , chúng ta cùng làm quen nhé .
+
+  Vậy là trong nguyên một tiết đầu , cô Bạch Huệ toàn phải trả lời những câu hỏi cực kì “ bá đạo “ của học sinh . Buồn cười nhất trong số đó là Kim Ngưu với câu hỏi nghìn năm có một .
+
+  Tiết hai sau đó , mười hai cô cậu lớp 10A1 được phát mỗi người một bản sơ đồ các khu vực trong trường và số phòng kí túc xá . Ai nấy mừng rơn như kiểu vừa nhặt được kim cương . Khi họ chuẩn bị chạy về phòng của mình thì bị cô giữ lại . Cô Huệ hỏi :
+
+- Vậy , ai sẽ là lớp trưởng của các em ?
+
+  Cô vừa dứt lời , cả đám học sinh liền quay sang chỉ trỏ nhau , cuối cùng làm theo lời của Bảo Bình chỉ thẳng vào Sư Tử . Sư Tử được các bạn bầu chọn thì thích lắm , nhưng ra vẻ làm cao từ chối . Ai dè , Nhân Mã nhí nhố thấy vậy thì tưởng thật , và kết quả là Bạch Dương được nhận chức vụ này . Sư Tử tròn mắt nhìn Nhân Mã , dần dần chuyển từ ngạc nhiên sang tức giận rồi lẩm bẩm bực dọc :
+
+- Con nhỏ đáng ghét , mi dám chuyển chức lớp trưởng từ tay ta sang tay tên đầu đất đó hả , ta sẽ không để yên đâu nhé . Người đâu mà cả tin thấy sợ .
+
+  Nhân Mã hồn nhiên vẫn chẳng biết gì hết , nhưng Thiên Yết thì có . Cậu thấy Sư Tử nhìn cô với ánh mắt hình viên đạn thì muốn ra cảnh báo , nhưng ai đời một thằng con trai như cậu lại chạy ra loan tin với một đứa con gái chưa quen biết , như vậy có thánh mới tin . Nghĩ là làm , cậu đành ngồi yên một chỗ xem tiếp cái sơ đồ cô Huệ vừa “ban phát” .
+
+  Xong xuôi đâu đấy , cả lớp theo sơ đồ chạy thẳng về phòng kí túc xá , con gái sang kí túc nữ và con trai thì sang kí túc nam . Hôm nay quả là một ngày mệt mỏi , ai cũng chỉ muốn ngả lưng cho thoải mái .
+
+  Ngày nhập học đầu tiên khép lại như vậy đó .
+
+
+       Chương 2 : Sự nhầm lẫn ​                        Nhân vật chính : Thiên Bình , Song Tử , Cự Giải , Nhân Mã , Sư Tử
+
+                                                          Nhân vật phụ : Bảo Bình , Xử Nữ
+
+6:58 sáng hôm sau , tại trường Zodias …
+
+  - Ôi trời ơi , mình sắp bị muộn mất rồi , chạy nhanh lên nào , Thiên Bình .
+
+  Thiên Bình ba chân bốn cẳng chạy thật nhanh từ hướng kì túc xá đến khối lớp mười , mặt cô lộ rõ sự lo lắng . Giờ học sẽ bắt đầu lúc 7:00 và chỉ còn hai phút nữa là vào lớp . Do mải nhìn đồng hồ , cô lao luôn vào một cậu con trai đang đi từ phía căng tin tới theo hướng ngược lại với cô . Hai người ngã sóng soài ra đất . Cậu con trai kia đứng dậy , phủi phủi tay rồi đỡ Thiên Bình dậy . Dù sao cô cũng đang mặc váy đồng phục , ngã như vậy trông không hay chút nào . Cậu nhìn cô một lượt từ đầu đến chân , hỏi một cách ngạc nhiên :
+
+- Sao cậu lại đeo cặp sách vậy ? Còn mặc cả đồng phục làm gì ?
+
+Cô tròn mắt hỏi lại cậu :
+
+- Để đi học chứ còn làm gì . Mà sao cậu vẫn còn ở đây vậy ? Muộn học rồi đó .
+
+Cậu nghe Thiên Bình nòi xong thì không nhịn được cười . Thiên Bình thấy cậu ta tự nhiên nhìn mình rồi lăn ra cười thì không hiểu gì hết . Khi cô định mặc kệ cậu đi tiếp , cậu mới trả lời cô :
+
+- Hôm nay được nghỉ mà , cậu không đọc thông báo à ?
+
+Thiên Bình ngớ người ra , lắp bắp mãi mới ra được một câu :
+
+- Thông báo ư , thông báo nào vậy ?
+
+- Sáng nay ban giám hiệu đã cho dán thông báo ở bảng tin rồi mà _ Cậu con trai đó cười .
+
+Cô liền hấp tấp phóng qua bảng tin trường xem , quả thật đúng là hôm nay được nghỉ học . Bây giờ Thiên Bình mới hiểu chuyện gì đang xảy ra . Hóa ra đó là lí do mà hôm nay Kim Ngưu không gọi cô dậy đi học như thường lệ . Thấy cậu bạn tốt bụng kia vẫn đứng đấy , cô liền chạy đến cảm ơn người ta . Cô gãi gãi đầu , mỉm cười :
+
+- Cảm ơn cậu vì đã nhắc tớ nhé . Tớ là Thiên Bình , học lớp 10A1 .
+
+Cậu bạn kia chào lại :
+
+- Tớ là Song Tử , học cùng lớp với cậu đó .
+
+Cô vẫy chào với cậu rồi chạy về phòng của mình . Cậu gật đầu một cái rồi mang bữa sáng của mình về kí túc xá .
+
+Vì nhà trường cho học sinh nghỉ học nên tất nhiên là sáu cô gái của chúng ta sẽ rỗng lịch trình cả ngày rồi . Cự Giải đang yên đang lành tự dưng lại muốn làm bánh ngọt nên tính rủ cả Xử Nữ vào nhà bếp của kí túc xá nữ < nhà bếp này để đề phòng căng tin gặp sự cố > . Xử Nữ không muốn tham gia nhưng dù cô có nói kiểu gì đi nữa thì Cự Giải vẫn một mực kéo cô xuống đó. Xử Nữ chả còn cách nào khác đành xuống phụ Cự Giải vậy .
+
+Một tiếng rưỡi sau , tại phòng của Nhân Mã …
+
+Cô vươn vai , đứng đậy khỏi bàn học . Cuối cùng , cô cũng đã ‘ cày ‘ xong cuốn sách mà cô vừa mượn từ thư viện trường về sáng nay . Nhân Mã cũng chợt nhớ ra là mình chưa ăn gì cả , thảo nào nãy giờ bụng cô cứ réo òng ọc . Cô vừa mò ra khỏi phòng thì thấy Cự Giải và Xử Nữ đang từ phía nhà bếp đi lên , trên tay bê một chiếc bánh ngọt . Nhân Mã vội chạy đến cạnh Cự Giải , miệng suýt xoa khen ngợi tài làm bánh của cô nàng . Đột nhiên , Xử Nữđứng khựng lại , bảo :
+
+- Tớ bỏ quên đống đĩa với thìa rồi , hai cậu đi trước đi để tớ quay lại nhà bếp lấy nhé .
+
+Cự Giải gật đầu . Cô đỡ lấy chiếc bánh Xử Nữ đang cầm , cùng Nhân Mã tiến về phòng mình . Đi được nửa đường thì đến lượt Cự Giải bỏ Nhân Mã một mình về phòng với lí do bỏ quên điện thoại .
+
+Sư Tử vừa từ phòng tin học về , định bụng qua căng tin tìm cái gì đó tọng vào mồm . Nhác thấy Nhân Mã đang ôm cái bánh đi dọc hành lang kí túc , cậu liền nảy ra ý đồ trả thù cô . Sư Tử giả bộ vừa uống nước vừa tiến về phía Nhân Mã theo chiều ngược lại , khi gần chạm mặt cô cậu cố tình làm đổ chai nước . Nhân Mã bị trượt chân dập mông xuống đất , chiếc bánh cũng vì thế mà úp thẳng xuống đất luôn . Sư Tử liền giở giọng lo lắng cho cô , hỏi một cách đắc ý :
+
+- Tớ xin lỗi nhé , tớ không cố ý . Cậu có đau lắm không ?
+
+Nhân Mã há hốc mồm , mắt trợn tròn , nói không thành tiếng :
+
+- Tớ không sao , nhưng mà .. cái bánh này là của người khác ..
+
+Sư Tử ngạc nhiên lắm , định quay ra hỏi thì Cự Giải xuất hiện . Nhìn thấy cái bánh nát bét nằm ụp xuống vũng nước , cô đã hiểu hết . Nhân Mã lúng túng :
+
+- Tớ xin lỗi , tại tớ hậu đậu nên…
+
+Cự Giải nở nụ cười méo xệch , cắt ngang lời Nhân Mã :
+
+- Không sao đâu , chỉ là cái bánh thôi mà , tớ làm lại cũng được .
+
+Sư Tử nhìn qua là biết Cự Giải đang tức giận như thế nào . Đợi Cự Giải đi rồi , cậu và Nhân Mã mới lóc cóc đi nhờ bác lao công dọn giùm đống hỗn độn kia đi . Nhân Mã dù còn sợ nhưng vẫn cố gắng làm quen với Sư Tử . Sư Tử đang rối mù đầu óc mà cứ bị Nhân Mã làm phiền , bèn đồng ý cho qua chuyện .
+
+Bảo Bình thấy thằng bạn đi lâu thì thích lắm . Thằng quỷ con đó đi rồi thì cậu mới được yên thân đọc sách và làm thí nghiệm . Nhưng có vẻ sự tự do không ủng hộ cậu , mới đó mà Sư Tử đã mò về rồi . Bảo Bình đành ôm sách vở sang phòng thí nghiệm , không quên buông lời chửi rủa Sư Tử :
+
+- Cái đồ phá đám lắm mồm , không ngày nào là không gây chuyện .
+
+Cự Giải vè phòng trong lúc cái đầu đang bốc khói ngùn ngụt . Cô tức lắm nhưng vì muốn giữ hình tượng nên phải nhịn , phải nhịn . Xử Nữ ngồi cùng phòng , Nhân Mã và Sư Tử bị một mẻ sợ mất mật , lần sau có ngu gì thì mới chọc tức con bé Cự Giải . Cuối cùng , Cự Giải đứng dậy qua phòng dạy võ để xin học với ý định :
+
+- Đứa nào dám chọc tức ta , ta dùng võ đánh cho nó tè ra quần luôn .
+
+Học viên trong lớp võ thuật gần như chết khiếp vì cô bé này . Lúc đầu , mấy đàn chị vênh vênh định ra trêu trọc cô nhưng sau khi trêu thử thì cạch đến già luôn . Nguyên do vì sao ư?
+
+Cự Giải học võ từ năm lên sáu , đến giờ trình độ của cô không kém bất cứ ai trong lớp ,. Mấy bà chị vừa buông lời nói xấu , lập tức
+
+“ Rầm “
+
+Một cánh cửa tủ lập tức bay ra và trở về bên đất mẹ . Thấy các học viên khác quay ra nhìn mình , cô cười , bảo :
+
+- À , tại em thấy có con ruồi cứ bay vo ve bên dưới chân , khó chịu quá nên đạp cho một phát . Ai dè làm cửa gãy luôn .
+
+Không chỉ các học viên mà cả thầy giáo cũng sốc nặng . Sư Tử và Nhân Mã đứng ngoài nghe trộm cũng thấy lạnh sống lưng , mặt xuất hiện ba vạch đen . Nhìn vẻ mặt đờ đẫn của chín trên mười người trong lớp và vẻ mặt tươi cười hớn hở của Cự Giải , hai con người đã gây ra tai nạn bánh ngọt kia phải cúi đầu bái phục :
+
+- Con bé này , mi từ hành tinh khác xuống hay sao mà giỏi làm rối loạn thần kinh người khác vậy hả ?
+
+Tuy nhiên , Sư Tử hiểu hết ẩn ý trong câu nói của Cự Giải chứ . Cô vừa có ý mỉa mai lời nói của các học viên nữ kia , vừa có ý rằng họ nên bớt ăn nói thiếu suy nghĩ đi kẻo lúc lãnh hậu quả lây sang cả người khác . Cuối cùng cho họ thấy rằng cô không phải là người dễ bắt nạt. Sư Tử ngồi nghe mà choáng váng đầu óc , Nhân Mã tưởng cậu bị sốc tinh thần nên ra sức lay gọi , thậm chí còn tát cậu mấy cái . Sư Tử định quay sang nện cho cô một trận nhưng vì sợ lộ nên cố gắng kiềm chế . Nhân Mã đầu óc đơn giản không để ý rằng mặt Sư Tử đang đen sì còn hơn cả bị quệt nhọ nồi , nhăn nhó phụng phịu .
+
+Bảo Bình vừa từ phòng thì nghiệm đi ra , chợt thấy hai cái bóng quen quen đang rình mò trước cửa lớp học võ . Cậu vừa đi tới định lay vai Sư Tử liền bị hắn kéo xuống luôn . Trong khi Bảo Bình đang nhìn hai người một nam một nữ với vẻ khó hiểu không để đâu cho hết thì Sư Tử thầm thì :
+
+- Bảo Bảo này , cứ ra khỏi đây đã rồi tớ sẽ nói sau .
+
+Nhân Mã liếc Bảo Bình rồi lẩm bẩm :
+
+- Nè Sư Tử , Bảo Bảo là sao vậy hả ? Cậu …
+
+Cô chưa nói hết câu liền bị Sư Tử kéo xuống cầu thang và đuổi thẳng về phòng . Nhân Mã căm phẫn nhìn theo Sư Tử nhưng cậu không hề để ý tới cô mà cùng Bảo Bình đi thẳng . Cô lầm bầm khẽ :
+
+- Bảo Bảo ư , hình như đó là tên của cậu đeo kính . Đó là bạn thân của Sư Tử thì phải .
+
+Cô rảo bước về phía phòng mình , đột nhiên trong đầu cô lóe lên một ý nghĩ . Cô quyết định sẽ chuộc tội với Cự Giải bằng cách làm một chiếc bánh tặng cho cô bạn . Nói là làm , cô liền chạy đi kiếm Sư Tử . Dù nhà trường đã quy định học sinh nữ không được qua kí túc xá nam và ngược lại nhưng Nhân Mã vẫn bấp chấp tất cả để xông thẳng sang kí túc xá nam tìm Sư Tử . Cuối cùng , nhờ lời nói đáng tin cậy của Song Tử nên Nhân Mã cũng tìm được phòng của Sư Tử và Bảo Bình . Cô đập cửa rầm rầm , gọi to :
+
+- Sư Tử , Sư Tử , mau mở cửa ra tớ cần gặp cậu . Nhanh lên không tớ phá cửa xông vào đó !
+
+Sư Tử đang tu coca liền bị sặc , coca từ mũi cậu phun ra thành hai dòng thác rất ấn tượng . Cậu chạy vội vào nhà tắm rửa mặt , không quên nhờ Bảo Bình mở cửa cho Nhân Mã . Nhân Mã thấy Bảo Bình ra mở cửa liền reo lên sung sướng :
+
+- A ! Bảo Bảo ! Xin chào cậu .
+
+Bảo Bình tối sầm mặt , không nói được câu nào . Tại sao Nhân Mã lại biết cái tên này của cậu . Cậu liền nhớ ra , sáng nay Sư Tử đã gọi cậu là Bảo Bảo trước mặt Nhân Mã , ở cửa phòng học võ . Cậu cố gắng bình tĩnh , nghiến răng :
+
+- Tớ không phải là Bảo Bảo , mà là Bảo Bình .
+
+Nhân Mã nhăn mặt :
+
+- Tớ thấy Sư Tử gọi cậu như vậy nên bắt chước thôi , xin lỗi cậu nhé . À mà Sư Tử đâu rồi ?
+
+Mặt cậu càng ngày càng đầy những vạch đen , cậu rít qua kẽ răng :
+
+- Sư Tử , cậu mau ra tiếp chuyện bạn mới của cậu đi . Còn cậu đợi chút nhé .
+
+Sư Tử vừa ra khỏi phòng , Nhân Mã liền kéo cậu sang phòng bếp ngay mà không giải thích. Hai tiếng sau ..
+
+Cuối cùng thì hai con người kia cũng hoàn thành chiếc bánh ngọt có một không hai . Thật khó có thể miêu tả được tác phẩm của Nhân Mã và Sư Tử . Cô nàng Nhân Mã hí hửng bê cái đống hỗn độn đó tiến về phòng Cự Giải , theo đằng sau là Sư Tử với nét mặt thất vọng không để đâu cho hết .
+
+“ Cộc .. cộc .. cộc .. “
+
+“ Cạch “
+
+- Ủa , Nhân Mã đó hả ? Cậu qua đây làm gì vậy ? _ Xử Nữ ngạc nhiên hỏi .
+
+- Cự Giải có trong phòng không vậy ? Tớ cần gặp cậu ấy . _ Nhân Mã hào hứng .
+
+- Cậu ấy đi học võ , chắc cũng sắp về rồi đấy . Cậu vào đi .
+
+Nhân Mã tung tăng chạy vào , Sư Tử định vào theo nhưng bị Xử Nữ đẩy ra vì là con trai , không được phép vào . Vừa lúc đó thì Cự Giải về , nhìn hai tên đã nhét cục tức vào cô buổi sáng bằng ánh mắt hình viên đạn . Nhân Mã thấy tình hình căng thẳng quá nên chạy đến , giơ chiếc bánh ra trước mặt Cự Giải tươi cười :
+
+- Giải Nhi à , tớ thành thật xin lỗi cậu mà . Tớ đã làm chiếc bánh này bù cho cậu , tha thứ cho tớ nhé .
+
+Cự Giải thấy cô cũng chân thành nên đồng ý . Nhân Mã bê bánh vào phòng , Cự Giải , Xử Nữ , Sư Tử theo sau . Cô lấy dao cắt cho mỗi người một miếng bánh rồi giục mọi người mau ăn thử. Vừa ăn xong miếng đầu tiên , mặt mọi người lập tức biến sắc . Nhưng vì sợ Nhân Mã tự ái , ba người đành nở nụ cười cứng ngắc , nói :
+
+- Ừm , ngon , ngon lắm . Nhân Mã khéo tay thật đó .
+
+Sư Tử bảo Nhân Mã :
+
+- Mã Mã này , bánh của cậu ngon lắm , chỉ có điều hơi thiếu vị ngọt thôi .
+
+Hai cô gái còn lại cũng gật đầu lia lịa tỏ vẻ đồng ý . Tuy nhiên , ý cậu là bánh của cô quá mặn không ngọt chút nào , nhưng cô lại hiểu lầm thành mình nướng bánh mà cho ít đường vào quá . Cô trả lời hồn nhiên :
+
+- Tớ cho mấy thìa đường đầy vào rồi mà vẫn nhạt ư ? Có lẽ khẩu vị của các cậu không giống tớ nên thấy nhạt , lần sau tớ sẽ rút kinh nghiệm .
+
+Cự Giải nghe xong , xém ộc máu mồm mà ngất ngay tại trận , Xử Nữ thì khuôn mặt tối đen khóe miệng giật giật , Sư Tử thì trợn tròn mắt không nói được cái gì . Mấy thìa muối đầy ư ? Nhân Mã à , cậu định đầu độc người khác đó hả ? Chúng tớ vẫn còn trẻ chưa muốn chết đâu , cậu tha cho tụi tớ đi mà .
+
+Cuối cùng ba con chuột bạch của Nhân Mã cũng ngất xỉu thực sự khi nghe tuyên bố hùng hồn của cô :
+
+- Ngày mai tớ sẽ làm lại chiếc bánh khác , chắc chắn nó sẽ đậm vị hơn chiếc bánh này rất nhiều !
+
+Sau ngày hôm nay , Sư Tử , Cự Giải và Xử Nữ đã rút ra được một bài học xương máu có lẽ đến kiếp sau vẫn không thể quên được :
+
+  ĐỪNG – BAO - GIỜ - ĐỂ - NHÂN - MÃ – VÀO - BẾP !!!!!!!!!!!!!!!

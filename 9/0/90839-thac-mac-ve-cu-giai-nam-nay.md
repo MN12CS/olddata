@@ -1,0 +1,19 @@
+---
+title: "Thắc mắc về Cự Giải nam này..."
+date: 2025-06-14T09:58:12Z
+slug: thac-mac-ve-cu-giai-nam-nay
+draft: false
+---
+
+## Thắc mắc về Cự Giải nam này...
+
+## LittleWings
+
+Mình là Thiên Bình, bọn mình quen nhau khi đánh chung rank ở game, nói chuyện vs nhau cũng hợp cạ lắm, bằng tuổi, mà lại ở xa, mình ở miền Bắc, ổng ở miền Nam. Rồi ổng có flirt mình, cũng ns xưng ae vs nhau, mình kb sao chứ đây là người khiến mình rất nghe lời.. Thế rồi cũng yêu, yêu được 70 ngày thì ổng nói ct mình, r ổng lạnh nhạt với mình, mình ns chung cũng đau buồn, r 1 tg sau có ny mới, ổng ms bắt đầu bóng gió về tc của ổng dành cho mình. Lúc đó ổng chỉ bóng gió th, mình cũng k để ý lắm vì nghĩ ổng thực sự k còn yêu mình nữa, r sau khi mình yêu nym đc khoảng 10 tháng, ổng xin sđt của mình r mới nhắn tin, lần đầu tiên ổng nhắn tin ngọt ngào nv, quan tâm tới mình, r ổng ms nói, ban đầu anh chỉ yêu chơi em th, rồi dần dần anh nhận ra rằng a thích em mất r, anh k muốn em phải chờ đợi anh, khoảng cách địa lí của 2 đứa mình quá xa.. Ổng có ns ổng khóc vì mình, lúc đó ổng hỏi còn yêu ổng k mình tl là h chỉ yêu quý th, tại vì mình đang yêu ng khác kia mà..
+Rồi cũng bẵng đi 1 tg, ổng lại lạnh với mình, ổng k xưng ae nữa, ổng có nym, ổng cũng khoe vs mình, "đáng yêu lắm" đó là lời của ổng, nhỏ ấy ở gần ảnh, có đi coi phim vs nhau r, còn first kiss nữa. Vậy mà 1 2 tháng ổng nhắn tin hỏi mình là "làm e gái a đc k" rồi mình cũng đồng ý, rồi ổng có tâm sự vs mình về nhỏ, xong ổng lại chia tay nhỏ ấy, mình ns thật lúc đó mình sợ cái kịch bản giống mình n lại diễn ra lắm vì nhỏ đó có nym chớp nhoáng, ổng đưa mình link tường nhà có rela hẹn hò của nhỏ, rồi "có nym rồi, anh buồn lắm, k dám yêu nữa". Ổng chưa bh nói ra là ổng buồn vs mình, mình tính hàn gắn lại, ổng ns làm v thì ổng sẽ block mình, thế là sau khi nghĩ kĩ mình cũng có ns với nhỏ, qua qua về chuyện ảnh chỉ giả vờ lạnh nhạt như v thôi, nhưng rồi ổng lại block nhỏ, bảo vs mình lần sau đừng làm v nữa, anh k thích.
+Rồi mình cũng chia tay, phải ns thật là mình rất yêu ng đó, nhưng mình vẫn từ bỏ, ban đầu mình hối hận vì quyết định ấy lắm, rồi lại nhận ra rằng mình đúng. Ổng ở bên mình suốt thời gian đó, r dần dần nc cũng lại nhiều lên, ổng hỏi mình về ng đó, mình cũng kể, lúc đó lòng mình đau lắm, rồi ảnh ns "thực sự anh chẳng vui tí nào khi chúc em và nó hp" rồi nói sẽ đợi, mình hỏi đợi làm gì, "để tiếp tục 70 ngày còn dang dở". Sau mấy lời đó tự dưng mình không còn nhói lòng khi nghĩ đến người mình mới ct nữa.
+Cái gì tới cũng tới, ổng nói yêu mình, mình lại về với ổng.. dần dần mình cũng biết được vài điều bí mật của ổng .. 15 ngày sau, ổng nói sẽ off 1 tg, mình nghĩ ngợi lung tung lắm, rồi 2 hôm sau ổng ol lại, ổng ns bị cảm xoàng, mình k có tin là cảm xoàng sẽ p vô bệnh viện đâu, rồi mình cũng có dặn dò ổng ăn uống thuốc đầy đủ, trong đó có thuốc an thần, nên ổng ns không muốn uống vì ngủ lâu sẽ để mình phải đợi, mình vẫn bắt ổng uống. Rồi 2 ngày sau bọn mình cãi nhau.. ổng cứ cười cợt mãi, giọng đó mãi, "giận hờn gì nhau mà làm lành" nói v đó.. rồi xưng cô tôi với mình. Ổng nói ổng mệt, ổng không thích người trẻ con, tạm gác chuyện yêu đương lại, rồi nói ra bệnh thật của ổng, tắc nghẽn mạch máu não.. 
+Mình chẳng biết ý của ổng nữa, mình thực sự thay đổi nhiều lắm vì ổng, rồi vẫn là một đứa trẻ con đối với ổng s. Mình k hiểu, ổng ns chán yêu..  Nhưng ổng không chia tay mình, tên đệm Wife's và Husband's vẫn ở trên fb, ổng nói mọi thứ như cũ, gác chuyện yêu đương qua 1 bên th.
+Dạo này mình k ngủ sớm như thường lệ nữa, toàn thức khuya, điều mà mình chẳng bh làm, rồi cũng có nc vs ổng, dù tn thì ổng vẫn nói câu gì đó, khiến mình cười mà ngủ ngon, nhưng mình vẫn nghĩ nhiều lắm.
+Mình có chút hi vọng rằng ổng vẫn yêu mình. Nhưng mình cũng thi thoảng bị dập tắt nhờ cách nc của ổng, lại về như cũ "Uk, ukm, scđ, kqt, ờ".. ns chung mình vẫn đâm đầu vào lắm.
+Không có cách để thay đổi 1 người lạnh lùng, chỉ cần yêu thương thôi. Mình yêu lắm, mình thật ngốc quá ^^

@@ -1,0 +1,27 @@
+---
+title: "[ Nhật Ký ] Trò đùa"
+date: 2025-06-14T06:43:16Z
+slug: nhat-ky-tro-dua
+draft: false
+---
+
+## [ Nhật Ký ] Trò đùa
+
+## Alice CanCer
+
+Đã bao giờ...bạn yêu một người chưa ?
+      Đã bao giờ ... bạn đau khổ vì một người chưa ?
+                Và đây là câu chuyện của ...
+                         "Đứa bạn thân chết bằm dễ mến của tôi"
+                     ___________________________________________
+ Nó là một đứa yêu đời, luôn nhìn cuộc sống bằng màu hồng. Linh, nó luôn làm mọi người xung quanh dễ chịu. Tôi vẫn nhớ...nhớ cái hồi tôi mới vào trường. Hồi đó còn bỡ ngỡ, tôi đâu có đủ can đảm, chỉ biết ngắm mọi người chơi đùa từ xa. Là nó - Linh, chính nó đã giúp tôi thoát ra cái vỏ bọc ngày nào, không còn chút ngại ngùng, không còn chút sợ hãi. Tôi và nó cùng với một đứa bạn thân nữa, tên đứa này cũng là Linh - bọn tôi thường gọi là Bắp Cải, 3 đứa đã có biết bao kỷ niệm trong mấy năm qua. Rồi đến một ngày ... thằng cha già nhỏ mọn, cà chớn và nhàm chán đó đến. Thằng đó chuyển đến lớp tôi, nó là Hiếu. Từng ngày trôi qua, nó và Bắp Cải ngày một thân. Tôi cũng bắt gặp con Linh hay lén nhìn nó. Một ngày, thằng đó nói với tôi và Bắp Cải rằng nó thích con Linh và cần sự giúp đỡ. Đời nào tôi chịu giúp một thằng điên như nó...nhưng rồi tôi nghĩ đến Linh, và rồi tôi và Bắp Cải đồng ý. Nhưng trớ trêu thay, thằng bạn tôi - Nguyên cũng thích con Linh. Thằng này rất kiên nhẫn, tính tình tốt bụng nhưng khá điên, nó theo đuổi con Linh từ hồi lớp 6 lận. Con Linh biết chứ...nhưng nó chỉ lặng lẽ, không nói ra tình cảm thật sự. Sự thật nó "đổ" rồi đấy, thích thằng Nguyên lắm chứ, nhưng....thằng này lại rất tự nhiên, ở chỗ đông người vẫn khoác vai con Linh như bình thường. Con Linh dần cảm thấy chán ghét, nó quyết định .... quyết định chọn Hiếu. Thằng Nguyên nghe xong thì choáng váng, nó khẽ liếc mắt nhìn thằng Hiếu đang vui vẻ chơi đùa. Không ngại khi đứng trước mặt con Linh, nó xông ra, lạm dụng mình đã học võ những 3 năm, còn thằng Hiếu chưa từng được biết, nó giơ nắm đấm, cũng may thằng Hiếu cũng khá nhanh nhẹn, nó tránh được. Có lẽ ... chỉ cần chậm một tí nữa thôi thì .... Con Linh nhìn thằng hiếu với ánh mắt ngưỡng mộ, tôi có thể nhìn thấy được con mắt nó đang long lanh đến cỡ nào. Nó luôn kể với tôi, rằng thằng Hiếu hay nhắn tin cho nó vào mỗi tối, chúc nó ngủ ngon mỗi ngày và luôn nhắc nhở, quan tâm tới nó. Con Bắp Cải và tôi tỏ ý hài lòng, còn gì tuyệt hơn là nhìn thấy đứa bạn thân mình hạnh phúc chứ ?
+   Nhưng rồi ... bất ngờ, cô chuyển chỗ, cô cho Thúy ngồi gần nó, con này nổi tiếng bà chằn nhưng sôi nổi lắm. Thúy không xinh cũng chả đẹp, đã thế nó còn hay nghe nhạc cải lương nên bị gọi là "Bà Bà". Thằng Hiếu lúc đầu chằng có ấn tượng gì về nó, nhưng mỗi ngày, hai đứa nó ngày một thân. Có hôm bọn nó còn đuổi nhau, té nước khắp sân trường. Con Linh nhìn thấy đau lòng lắm chứ, nhưng nó vẫn cố tự nhủ rằng "Họ chỉ là bạn...bạn thân thôi". Nhưng từ khi con Thúy chuyển đến, thằng Hiếu ít nhắn tin với con Linh hẳn. Không còn những lời chúc ngủ ngon mỗi tối, không còn những lời hỏi han quan tâm như trước, giờ đây toàn con Linh chủ động nhắn. Tôi biết rằng nó đang cố gắng ... cố gắng giữ thằng Hiếu lại bên mình. Khi lớp tôi tổ chức làm mặt nạ, con Linh vui vẻ mời nó...nhưng nó không vào, nó vào nhóm con Thúy. Con Linh thật sự rất sốc nhưng nó vẫn cố giấu đi sự thất vọng của mình qua chiếc mặt nạ. Điều này thì chỉ có tôi và Bắp Cải biết mà thôi. Dần dần, nó không là con bé yêu đời, không còn là con bé vui vẻ bước tới làm quen với tôi, giờ nó chỉ là một đứa con gái u uất, sầu tư, nụ cười của nó như dần biến mất. Nhìn khuôn mặt hốc hắc của nó, bàn tay tôi bất giác nắm chặt. Sao thằng đó có thể nhởn nhơ vui đùa mà không quan tâm đến sự hiện diện của con Linh cơ chứ ? Con Thúy có vẻ cũng thích thằng Hiếu, có chuyện gì, nó đều đem ra kể với con Linh, xong tối nào nó cũng gọi điện kể lể, phàn nàn về thằng Hiếu. Ba đứa tôi biết, nó cố tình nhưng cũng không thể trách, đó là lòng ghen - thứ chứng tỏ Thúy thích thằng Hiếu thật lòng. Con Linh nghe con Thúy kể chuyện thì cũng cố gắng cười mặc dù trái tim nó đang tan nát. Nhưng nó vẫn kiên trì theo đuổi đến cùng. Nó thường xuyên gửi tin nhắn yêu thương cho thằng Hiếu, nó cố gắng nói chuyện với thằng Hiếu thật nhiều. Rồi một hôm, thằng Hiếu nói với nó, một câu, một câu khiến nó mừng rỡ tột cùng.
+- Tôi nay ra công viên gần nhà, tớ có chuyện muốn nói !
+ Con Linh đang mong....mong đợi lời tỏ tình của thằng Hiếu và sự hối hận vì đã bỏ rơi nó. Nó vui vẻ, rất vui. Tôi và con Bắp Cải chỉ hân hoan chúc mừng nhưng tôi có cảm giác có cái gì đó không ổn. Tối đó, tôi đang học, lúc đó là 9 giờ tối, nó gọi tôi. Tôi và con Bắp Cải vội ra công viên, thấy nó đang ngồi đó, nước mắt lưng tròng. Nó ngẩng mặt lên, giọng nghẹn ngào.
+- Hiếu, anh ấy bỏ tao rồi, anh ấy thích Thúy hơn tao mày ạ, anh ấy hẹn tao ra đây là để nói...lời chia tay !
+ Tôi và con Bắp Cải chẳng biết làm gì, chỉ biết ngồi nhìn nó khóc. 
+- Mày đừng buồn, đời còn dài trai già còn nhiều....tao nhầm, chỉ có giai còn nhiều thôi, nói chung là mày cứ vui lên đi, lũ này FA từ đó đến giờ mà có bao giờ buồn đâu - Bắp Cải cười nói
+- Uk ! Tao cũng muốn thấy Linh Xinh vui vẻ của tao hồi trước - Tôi cũng cười nói.
+ Nó cũng cười, cười một nụ cười tươi, nụ cười giống như hồi trước. Nhưng từ đó đến giờ, nó vẫn chưa vui vẻ lên là bao, vẫn dõi theo thằng Hiếu và Thúy. Giờ đây, tôi muốn nhắn nhủ rằng : "Hãy cố gắng vượt qua nỗi đau này Linh nhé !" 
+~ Thân gửi Linh
+Nguồn : Câu chuyện có thật của bạn tôi và được viết lại bới tôi - Alice

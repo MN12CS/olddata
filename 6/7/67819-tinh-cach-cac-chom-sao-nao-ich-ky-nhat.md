@@ -1,0 +1,27 @@
+---
+title: "Tính cách Các chòm sao nào ích kỷ nhất?"
+date: 2025-06-14T06:11:51Z
+slug: tinh-cach-cac-chom-sao-nao-ich-ky-nhat
+draft: false
+---
+
+## Tính cách Các chòm sao nào ích kỷ nhất?
+
+## wander
+
+Các chòm sao nào ích kỷ nhất?​
+
+Bạch Dương
+Sư Tử
+Ma Kết
+Song Tử
+Nhân Mã
+Thiên Bình
+Bảo Bình
+Thiên Yết
+Kim Ngưu
+Xử Nữ
+Song Ngư
+Cự Giải
+Theo my astro blog
+P/s: nếu bạn nào muốn xách bài của mình đi thì ghi giùm là do wander MN12CS dịch nhé. Mình là TY nên khả năng làm ầm lên là hơi bị cao đó  dù mình cũng dịch ko xin phép tác giả

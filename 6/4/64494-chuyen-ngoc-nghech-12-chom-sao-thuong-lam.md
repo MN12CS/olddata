@@ -1,0 +1,64 @@
+---
+title: "Chuyện ngốc nghếch 12 chòm sao thường làm"
+date: 2025-06-14T05:32:18Z
+slug: chuyen-ngoc-nghech-12-chom-sao-thuong-lam
+draft: false
+---
+
+## Chuyện ngốc nghếch 12 chòm sao thường làm
+
+## Reiring
+
+Bạch Dương (21/3 – 19/4): Đi theo dõi người khác
+
+Bạch Dương có tính tò mò nhưng lại hiếu thắng, thích phiêu lưu và rất gan dạ. Cậu ấy đã nhắm vào ai, muốn biết nhiều hơn về người đó thì không kể kẻ ấy là “thường dân” hay con nhà quyền quý hoặc xã hội đen… Bạch Dương cũng len len đi theo dõi hết. “Cừu đực” cẩn thận nhé, có khi bạn chưa tìm hiểu thêm được gì về người ta đã bị đàn em của họ cho “ăn bùn” hoặc bị các chú cảnh sát lôi về đồn vì nghi ngờ trộm cướp đấy.
+
+Kim Ngưu (20/4- 20/5): Không phân biệt nặng nhẹ chuyện ăn uống
+
+Kim Ngưu tham ăn vô đối. Cậu ấy đã thích cái gì là ăn, ăn cho bằng sạch, cho hả hê, không cần biết cái dạ dày của mình than khóc vì bị chèn ép quá nhiều. Bởi cái thói không phân biệt được nặng nhẹ trong chuyện ăn uống ấy mà nhiều Kim Ngưu hay mắc các bệnh liên quan đến đường ruột, dạ dày. Nhiều bạn khác thì đau buồn vì sao thân hình và cái bụng của mình cứ ngày một tròn xoe ý.
+
+Song Tử (21/5 – 21/6): Nghĩ rằng mình là người cầm đầu
+
+Song Tử có biệt tài “chém gió″ khiến ai cũng phải gật đầu tin răm rắp. Thế là cậu ấy cho rằng mình sẽ là thủ lĩnh của cả nhóm. Nhưng không phải thế đâu Song Tử nhé. Võ mồm chỉ giúp bạn được làm quân sư thôi, ngôi vị “đại ca” luôn thuộc về kẻ khác mạnh hơn, gan dạ hơn chứ không phải người lúc thường thì to còi, khi lâm trận thì co rúm lại một chỗ như bạn đâu nhé. Đừng tự huyễn hoặc bản thân hay vượt quá giới hạn cho phép không có ngày bạn bị thủ lĩnh “xử” đấy.
+
+Cự Giải (22/6 – 22/7): Bỏ học một tuần lễ vì người yêu
+
+Ôi, con người yếu đuối này cực kỳ lụy tình, nhạy cảm luôn. Cậu ấy đã yêu ai là trao hết cuộc đời cho kẻ ấy. Người ấy muốn Cự Giải đi chơi cùng họ thế là nàng răm ráp nghe theo và bỏ học liền. “Cua nhỏ” ơi, dùng lý trí để phân biệt nặng nhẹ đi nhé. Nếu cứ làm “mèo con ngoan ngoan nghe lời” thế, bạn sẽ làm người ta mau chán mà “đá thẳng chân” mất thôi. Phải có cá tính, phải cứng đầu, bí hiểm một chút mới khiến nửa kia tò mò, phấn kích khám phá con người bạn.
+
+Sư Tử (23/7 – 22/8): Chơi quá độ quên làm bài tập
+
+Sư Tử là vua vung tiền không tiếc tay cho các cuộc vui. Cậu ấy giống như các thiếu gia ham chơi ngày đêm mà quên tất cả chuyện “trần thế” ấy. Bởi chơi quá độ nên Sư Tử oai phong là thế cũng hay bị thầy cô làm mất mặt trước lớp khi phạt tội không làm bài tập.
+
+Xử Nữ (23/8 – 22/9): Kể chuyện cười thiếu muối
+
+Xử Nữ khôn khéo, thông minh và cầu toàn là thế nhưng lại mắc chứng kể chuyện cười vô cùng “thiếu muối”. Con người này bình thường nói cái gì liên quan đến công việc cũng khiến người khác hài lòng vì có lý, logic, sáng tạo thế. Tuy nhiên, chẳng thể hiểu sao ngoài công việc, cậu ấy lại như một kẻ ngốc khi cứ thích kể những câu chuyện cười mà 100 người nghe xong đều thẫn thờ không hiểu rồi sau đó phải tự cù nách để có thể cười.
+
+Thiên Bình (23/9 – 22/10): Thấy người khác có cái gì cũng muốn
+
+Bệnh của Thiên Bình không chỉ là suốt ngày mâu thuẫn với đắn đo mà còn ở chỗ ham thích đồ của người khác.
+
+Cậu ấy mà thấy ai đó có gì mới, lạ hơn mình là y như rằng người cứ “sốt hết cả lên”. Thế rồi, Thiên Bình sẽ gạt công việc dù quan trọng đến mấy sang một bên để đi lùng cho bằng được món đồ kia. Thiên Bình sành điệu quyết không để thua kém người khác hay bị mang danh không theo kịp thời cuộc (cái danh này tự cậu ấy gán cho mình).
+
+Thần Nông (23/10 – 21/11): Làm trò trẻ con với người yêu
+
+Thần Nông vốn lạnh lùng nhưng thực chất có một trái tim rất ấm áp. Khi ai đó đã mở được cánh cửa đi vào trái tim của cậu ấy, Thần Nông bỗng biến thành đứa trẻ ngốc nghếch, đáng yêu vô cùng. Cậu ấy có thể làm những trò thật sự trẻ con mà người ngoài ít khi tưởng tượng được như: mặc áo đôi hình con vịt ngộ nghĩnh, đi sở thú cùng người ấy và cười sằng sặc như một đứa bé chưa bao giờ được ngắm các con vật… Tuy nhiên, Thần Nông chỉ cho phép mình sống thật – trẻ con trước mặt người yêu thôi nhé. Ngoài lúc ở cạnh người đó ra và đặc biệt trong công việc, cậu ấy vẫn là một “sát thủ” vô cùng máu lạnh.
+
+Nhân Mã (22/11 – 21/12): Cách ngày bỏ học để đi chơi
+
+Độ ham chơi của Nhân Mã còn khủng hơn Sư Tử quên làm bài tập nhiều. Con người chỉ thích đi và đi, ai rủ rê đến đâu khám phá vùng đất mới, thú chơi mới là cậu ấy ok liền. Nhân Mã chẳng quan tâm khi đó mình có phải đến lớp không nữa. Và rồi một tuần chắc cậu ấy có mặt trên trường được 3, 4 buổi mất. Tuy vậy, thành tích học tập của Nhân Mã vẫn cao lắm nhé cho nên thầy cô hay bố mẹ cũng chẳng thể nói được gì.
+
+Ma Kết (22/12 – 19/1): Lái xe lạc đường
+
+Con người làm việc cực kỳ cẩn trọng, luôn suy tính trước sau này lại thường xuyên bị trở thành kẻ ngốc khi liên tiếp lạc đường đấy.
+
+Trí nhớ của cậu ấy thật là tệ kinh khủng, nhất là trong chuyện nhớ đường xá. Tại Ma Kết cứ đi xe rồi để đầu óc suy nghĩ lung tung mọi chuyện nên chẳng lưu được vào đầu các vị trí, các con phố. Vì tội này nên cậu ấy còn hay bị công an túm vì vượt đèn đỏ lúc nào không hay ý.
+
+Bảo Bình (20/1 – 18/2): Tò mò, tọc mạch
+
+Con người thích khám phá những điều mới lạ này bị mắc bệnh suốt ngày tìm tòi, đôi khi trở thành kẻ tọc mạch chuyện người khác. Tại cậu ấy tò mò quá, nên phải làm mọi cách để giải đáp tất cả các nghi vấn hay điều mình chưa rõ dù là chuyện nhỏ nhất. Bảo Bình thường xuyên bị người ta ghét bởi thói ” vô tình tọc mạch” này đấy
+
+Song Ngư (19/02 – 20/03): “Phóng điện” tình yêu bừa bãi
+
+Haha. Song Ngư vô tư, lãng mạn, đa tình cứ thấy chàng/nàng nào điển trai, xinh gái như phim Hàn là nghiêng ngả. Cậu ấy chẳng cần hiểu gì về người ta đã cho phép mình “phóng điện ái tình” và như một chiếc “đuôi sam” suốt ngày lẽo đẽo nhí nhảnh đi bên người đó. Tuy vậy, sự vô tư này của Song Ngưu lại thường mang lại cho cậu ấy những người tình tuyệt vời đấy.
+
+Nguồn: Sưu tầm​

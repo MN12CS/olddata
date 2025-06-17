@@ -1,0 +1,15 @@
+---
+title: "Các bạn Ngưu nam giải thích hộ mình với!"
+date: 2025-06-14T05:43:30Z
+slug: cac-ban-nguu-nam-giai-thich-ho-minh-voi
+draft: false
+---
+
+## Các bạn Ngưu nam giải thích hộ mình với!
+
+## arieschan12
+
+Mình là 1 nữ BD, tình hình là mình và ngưu ấy cùng học chung 1 khoa, chúng mình làm bạn với nhau cũng 2 năm rồi. Mình và ngưu ấy lúc đầu chơi với nhau rất vui, nói chuyện hợp, đi chơi chung có, riêng có, nói chung gần như là bạn thân vậy. 
+Mình thầm thích ngưu ấy từ lâu, nhưng không nói gì. Lặng lẽ quan sát ngưu có bạn gái, rồi chia tay, rồi chuyện buồn học hành, mình đều ở bên động viên cả. Sau khi chia tay bạn gái cũ được một thời gian thì ngưu đề nghị mình làm bạn gái ngưu, ngưu nói ngưu biết mình thích ngưu từ lâu, ở bên mình ngưu thấy được chăm sóc tốt nhất (chứ không phải vì có tình cảm với mình) mình thấy buồn, nhưng rốt cuộc vẫn đồng ý. 
+Làm người yêu thì bắt đầu có mâu thuẫn, những chuyện nhỏ nhưng ngưu nhớ dai, lúc cần thì đem ra nói la lại. Hoặc có lúc ngưu buồn bực cũng không nói, im im tích tiểu thành đại, dù mình đã cố góp ý là những chuyện như vậy nên nói ra để thông cảm và sửa đổi nhưng ngưu vẫn chứng nào tật nấy. 
+Gần đây 2 đứa phải xa nhau 1 tháng để về quê nghỉ hè. Xa nhau thì nhớ nên đôi lúc ngưu cũng nói nhớ mình. Tuy nhiên tới khi 2 đứa gặp thì lại có chuyện. Rồi ngưu hay than chán nản, với cuộc sống, với học tập...đi chơi với mình cũng không vui nữa mà vùi đầu vào điện thoại, laptop, tivi. Đỉnh điểm là gần đây khoa có tổ chức đi du lịch tập thể, ngưu và mình tham gia. Sau chuyến đi mình thấy tinh thần ngưu có vẻ không vui (chỉ với mình hoặc các bạn mình thôi còn các bạn khác vẫn bình thường). Buổi tối đó ngưu đưa mình về rồi im luôn. Hôm đó điện thoại mình bị hỏng. Mẹ mình gọi mình không được bèn gọi ngưu hỏi han, ngưu trả lời mẹ bình thường nhưng nhắn tin face với mình, bảo "anh nản em rồi", ngưu bảo mình "không biết cách nói chuyện, không biết cách xã giao, không biết nghĩ sâu xa"...rằng đi với mình ngưu chẳng được tự hào trong khi đi với mình ngưu phải lo lắng đủ thứ... Nói thật tính của mình ngưu biết từ khi 2 đứa còn làm bạn, vậy sao giờ còn thốt ra như thế? Ngưu trả lời :"qua đợt đi chơi này thấy khác!" Ngưu bảo ngưu lo lắng cho mình nhưng thật ra mình ốm, mình chảy máu, mình sợ hãi đều không có ngưu bên cạnh. Mình công nhận trong giao tiếp hằng ngày ngưu rất chu đáo, thế nhưng những lúc thật sự muốn được ngưu che chở lại...mất tiêu (dù là vì ở xa hoặc đang nhậu với bạn). Nhưng khi mình hỏi "nên??? (ý hỏi anh muốn chia tay phải k?) thì ngưu không trả lời rồi bảo đi ngủ. Cứ thế im lặng suốt 1 tuần rồi, 2 đứa k liên lạc với nhau. Hôm qua gặp lại trên khoa, ngưu nhìn mình có vẻ ngạc nhiên nhưng rồi nhanh chóng bơ đi (vì mình vừa cắt quả đầu mới). Mình cũng im lặng nhìn ngưu, mỉm cười rồi quay đi. Tối về, trên face ngưu đăng 1 bài thơ đại loại như nhớ, cô độc, buồn vì thiếu người yêu. Nhưng mình nhắn tin xuống nước ngưu lại chẳng trả lời. Hic, mình buồn quá. Phải chăng ngưu đã thay lòng? ngưu có người khác rồi?mình nên làm thế nào đây?

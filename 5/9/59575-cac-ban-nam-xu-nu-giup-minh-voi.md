@@ -1,0 +1,18 @@
+---
+title: "Các bạn nam Xử Nữ giúp mình với!"
+date: 2025-06-14T04:26:50Z
+slug: cac-ban-nam-xu-nu-giup-minh-voi
+draft: false
+---
+
+## Các bạn nam Xử Nữ giúp mình với!
+
+## sunflowers95
+
+Mình là 1 Nhân Mã. Mình có quen 1 bạn nam Xử Nữ (chính hiệu). Lúc đầu, là hắn xin số mình để chọc, cũng là hắn chủ động add fb. Lúc sau là mình chủ động kiếm cớ gặp hắn vì thấy có chút hứng thú, mà cũng không hiểu sao lại hứng thú.  Thế là tải 1 loạt ảnh trên fb hắn về rồi thỉnh thoảng mở ra xem, tự hỏi mình thấy con người này thú vị chỗ nào?  Nhưng chung quy lúc ấy cũng chỉ xem là cho vui, để giết thời gian nhàn rỗi mà thôi. Lúc sau khi thấy trong laptop mình có ảnh của hắn thế là hắn thành chủ động. Chủ động mời mình đi ăn kem mừng sinh nhật mình dù sinh nhật đã qua gần nửa tháng, chủ động rủ đi dạo loanh quanh, chủ động rủ đi ăn, lại tra hỏi vì sao hôm qua lên fb lúc 2h khuya,rủ chạy thể dục chung… Mình tiếp nhận thứ tình cảm ấy và cảm giác là như bay lên mây. Qua tiếp xúc mới biết là mình với hắn có quá nhiều điểm khác nhau: mình trễ giờ- hắn rất đúng hẹn, mình thức khuya- hắn ngủ sớm, mình dậy trễ - hắn lại thức khá sớm, mình hay ăn vặt- hắn thì tuyệt nhiên không....Nói chung vì khác nhau như vậy nên càng ngày mình càng bị hút bởi hắn. Sau đó cả 2 đứa đều về quê ăn tết, lại bận việc nhà nên nt là hầu như không. Thế nhưng hắn cũng có lần nt nói trời lạnh nên mặc đủ ấm ra đường. Lần đầu tiên hắn quan tâm đến mình 1 cách công khai như vậy, cũng là lần hiếm hoi trong 18 năm cảm nhận được sự rung động xuất phát từ trái tim to lớn đến nhường ấy. Thế là lúc ấy mình đã quyết định sẽ dành tình cảm chân thành và nghiêm túc nhất cho hắn– 1 điều tuyệt nhiên trong suốt 18 năm qua mình không hề làm cho bất kì người con trai nào. Sau tết cũng có gặp gỡ đôi ba lần, thái độ của hắn vẫn như trước Tết. Nhưng sau đó hắn nói mắc thi lấy chứng chỉ gì gì đó, cũng trong thời gian ấy mình bận rôn rất nhiều công chuyện nên hơn 1 tháng sau mới nt lại với hắn. Là mình chủ động rủ hắn đi ăn. Là mình mong chờ được gặp hắn biết bao nhiêu, chính với ý nghĩ sẽ được gắp hắn khiến mình lấy thêm dộng lực trong 1 tháng bận rộn mệt mỏi ấy. Cũng là hắn dội cho mình gáo nước lạnh khi rep lại là “Có cần thiết phải như vậy không?” Mình thực sự sock. Nhưng cũng lấy hết can đảm nt lại nói mời 1 bữa cơm mà khó thế à, hắn không thèm rep lại, hôm sau mình nói " Đã suy nghĩ cả đêm không hiểu vì sao lại nt mời ăn thì nói vậy đã thế không thèm rep lại tn". Hắn lại táng cho mình " Đừng suy nghĩ nhiều nữa, xóa số N đi".  Xóa à? Số của hắn có lúc nào mình lưu vô máy đâu mà là lưu thẳng vô não rồi? Xóa thế nào đây? Mình đau khổ quay quắt mấy ngày, lại để cho bản hân có thêm thời gian suy nghĩ lại về mối quan hệ này. Nhưng chính lúc ấy mình mới biết mình đã thích hắn từ lúc nào không hay. Hình ảnh cúa hắn, lời nói của hắn, hành động của hắn, từng thứ từng thứ dần dần hiện về. Sau đó, con bạn thân nói nên bày tỏ tình cảm cho hắn biết như vậy để sau này không hối hận lại đỡ phải dùng dằng, tự mình hy vọng rồi lại tự mình đau khổ. Thế là chần chừ mãi cũng quyết định gửi tn tỏ tình. Hắn trả lời khá dài nhưng chung quy lại là: vẫn chưa sẵn sàng để yêu, hy vọng mình tìm người tốt hơn hắn.
+
+Vậy các bạn nam Xử cho mình hỏi thế này tức là mình nên buông bỏ tình cảm này hay là vẫn kiên trì đeo bám đây ạ? Tình cảm của hắn đối với mình là hết sạch rồi phải không? Hắn từ trước tới nay là người mình không đọc nổi suy nghĩ và khó hiểu vô cùng. Mong nhận lời khuyên từ các bạn.
+
+P/S: Ngày mai là tròn 2 tuần bị từ chối tình cảm. Tưởng là quên được ai ngờ ngày càng đau, vẫn còn nhớ hắn quay quắt chết đi được.
+
+Cuối cùng, cảm ơn các bạn đã kiên nhẫn đọc tới đây!

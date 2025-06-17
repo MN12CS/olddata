@@ -1,0 +1,26 @@
+---
+title: "Câu chuyện ngắn về 2 Cự Giải"
+date: 2025-06-14T05:40:46Z
+slug: cau-chuyen-ngan-ve-2-cu-giai
+draft: false
+---
+
+## Câu chuyện ngắn về 2 Cự Giải
+
+## skyfall
+
+Mình 21/7, em ấy 22/7, mình  lớn hơn em ấy 5 tuổi nhưng mà vẫn có nhiều suy nghĩ của 2 đứa rất giống nhau và hợp nhau đến không ngờ, dù sao thì mình cũng dành tâm trí và trải qua nhiều chuyện nên mình gần như có thể hiểu em ấy bằng lý trí lẫn cảm giác của 1 Cự Giải. Em ấy vừa tròn 18 tuổi, vừa đậu Đại Học và là 1 cô gái rất ngoan hiền, xinh xắn, không ham chơi, chăm chỉ, chịu khó, lâu lâu cũng hơi lười nhát 1 tí và chưa từng yêu ai. Mình thì trưởng thành, trải qua vài mối tình thật sự nghiêm túc và đều đổ vỡ vì nhiều chuyện, lạnh lùng, nghiêm nghị, khẳng định là chẳng có gì đặt biệt từ ngoại hình cho đến gia cảnh, học vấn này nọ.
+
+  Sau 1 năm, mình và em ấy nói chuyện với nhau thật nhiều, tất cả mọi thứ xung quanh em ấy mình đều biết và mình cũng thế, bằng tất cả những suy nghĩ mình nói thật cho em ấy tất cả về bản thân mình và thể hiện mình 1 cách không che giấu khi được nói chuyện cùng em ấy. Khoảng 4 tháng gần đây cuộc nói chuyện ngọt ngào hơn bao giờ hết, mình và em ấy đều trân trọng từng phút, từng giây được trò chuyện cùng nhau thật nhiều.Hằng ngày mình đều hát cho em ấy ngủ, đôi khi em ấy cũng hát cho mình những bài hát thể hiện chút nào đó cảm giác của em ấy dành cho mình, và mình biết mình muốn gắn bó cùng em ấy thật lâu. Mình nói “thương” em ấy rất nhiều và em ấy cũng “em thương anh nhiều lắm”, em ấy bảo không dùng từ “yêu” vì nghe nó chẳng chắc chắn chút nào cho tương lai cả, mặc dù vài lần thật sự em ấy gần như nói ra từ ấy và mình cảm thấy thật sự hạnh phúc vì em ấy đã bắt đầu có ý định khẳng định mình trước gia đình và bạn bè sau 1 thời gian nữa.
+
+  Em ấy vào TP HCM đi học, mình muốn gặp em ấy nhưng em ấy cứ bảo sợ không xinh, ngốc ngếch, trẻ con làm mình không thích, nhưng mình đâu quan tâm đến những điều đó vì mình đã khẳng định tình cảm của mình và nhất định không thay đổi rồi. Mình tìm em ấy và 2 đứa cuối cùng đã ngồi cạnh bên nhau, mình sợ rằng em ấy lại nghĩ lung tung về tình cảm của mình, mình nắm tay em ấy, em ấy cũng giữ chặt tay mình, mình nói em ấy là người đầu tiên mà mình dám tưởng tượng đến tương lai và cảm giác không muốn buông đôi bàn tay của em ấy, rồi em ấy cũng nói “em thương anh” trước mặt mình rồi e thẹn chạy nhanh vào lớp. Mình biết tình cảm của 2 đứa đã thay đổi 1 bước khác nữa rồi, mặc dù em ấy vẫn nói là chưa sẵn sàng cho 1 mối quan hệ nghiêm túc nào cả, và bảo mình đợi em ấy trưởng thành hơn tí nữa.
+
+  Em ấy mới vào học nên còn nhiều chuyện phải lo, mà còn làm lớp phó nữa nên mình cũng không muốn vì mình mà em ấy ảnh hưởng đến công việc và làm quen các bạn mới để cho bớt lạc lõng, tách biệt. Ít gọi điện thoại hơn, ít nhắn tin hơn, nhưng hằng ngày mình vẫn nhắn tin chúc buổi sáng, tối cho em ấy, nhắn tin trên FB cũng nhiều mỗi khi thấy em ấy đăng status buồn vui, mặc dù 1-2 ngày mới thấy trả lời 1 tin, nhưng mình vẫn tự nhủ là không sao đâu mình tin tưởng em ấy rất nhiều.
+
+  Rồi 1 ngày mình vô tình biết được em ấy thích 1 người khác cùng lớp, nhưng mình không nói ra, và cố gắng hơn nữa, quan tâm cô ấy nhiều hơn nữa, cố gắng gọi điện cho em ấy….cuối cùng nhận được 1 cuộc gọi từ em ấy và em ấy thừa nhận chuyện cảm mến người kia thuộc Sư Tử, người ta cũng có cảm tình với em ấy nữa, nhưng mà cả 2 đều không thừa nhận, nói ra trước mọi người thôi. Em ấy bảo tình cảm trước kia dành cho mình chỉ là tình cảm trẻ con thôi mà bây giờ em ấy mới nhận ra…và mỗi lần mình cố gắng liên lạc thì lại làm cô ấy bối rối và “sợ” không biết phải làm như thế nào.
+
+  Mình lại gục ngã 1 lần nữa, nhưng thật sự vẫn không tin là tình cảm của 1 Cự Giải lại dễ dàng thay đổi như thế, bởi vì mình thật sự đã quyết định gắn bó với em ấy nhiều lắm. Mình chấp nhận được ở bên cạnh cô ấy như những người từng có thể nói cho nhau tất cả, được nghe những gì xảy ra xung quanh cố ấy, sợ ai đó làm tổn thương cô ấy, sợ cô ấy trưởng thành mà phải chịu nhiều đau khổ, vì mình biết bản thân mình đã trưởng thành hơn nhờ Thất Bại, Mát Mác, Đau Thương. Mình vẫn cố gắng trò chuyện thật nhiều nhưng cảm thấy cực kỳ mất niềm tin, mình giữ điều đó trong lòng cố gắng bên cạnh em ấy, kể chuyện vui cho em ấy nghe, nhưng chỉ còn lại sự thờ ơ, nỗi “sợ” và 1 khoảng cách bắt đầu lớn đần ra giữa mình và em ấy.
+
+  Và giờ đây, hơn nửa tháng hỗn độn đầy đau xót, mình tìm hiểu nhiều hơn về Cự Giải nữ, về những câu chuyện tương tự giống mình, suy nghĩ kỹ hơn về những điều mình và em ấy đã nói với nhau. Mình vẫn chẳng tìm được lý do mà cô ấy lại làm thế cả, mỗi người mỗi câu chuyện, mỗi lý do khác nhau. Mình mong những người ai đọc hết được “cảm xúc” của mình trong những gì mình viết ra sẽ cho mình lời khuyên và giúp mình giải đáp những thắc mắc mà lý trí của mình đã không còn sử dụng được nữa.
+
+  Mình có yêu cô ấy thật nhiều không? Mình có nên tiếp tục bên cạnh cô ấy bất chấp sự thờ ơ và nỗi “sợ” của cô ấy? Hay mình nên để cô ấy yên, giấu đi tình cảm dành cho cô ấy và để cho Duyên Phận quyết định? Giờ đây, 3 ngày rồi mình không liên lạc với cô ấy, mình cảm thấy đã ổn định hơn rất nhiều, nhưng trong thâm tâm vẫn muốn nói với em ấy …. Anh nhớ Em nhiều lắm….
